@@ -1,6 +1,6 @@
-# TechiDaily
+# Twitter Videos Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://twitter-videos.techidaily.com](https://twitter-videos.techidaily.com)
 
 ## Publish
 

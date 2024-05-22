@@ -8,9 +8,9 @@ const fs = require('fs');
 const path = require('path');
 
 // ------------------------------------------------------------------------------------------- 以下内容需要自己替换
-const subSiteAuthor = 'Nova';
-const subSiteKeywords = `` + ','; // 关键字，多个关键字用逗号分隔
-const indexNowKey = 'ec9c9516ea82433086d979e16e1960e0'; // 替换为你的API密钥
+const subSiteAuthor = 'Robert';
+const subSiteKeywords = `Videos on Twitter,Twitter video posts,Twitter video updates,Twitter video sharing,Twitter video content,Twitter video footage,Twitter video recordings,Twitter video streams,Twitter video files` + ','; // 关键字，多个关键字用逗号分隔
+const indexNowKey = 'bcb46b4c33f94bc5ab6e37ee9fda116f'; // 替换为你的API密钥
 
 
 
