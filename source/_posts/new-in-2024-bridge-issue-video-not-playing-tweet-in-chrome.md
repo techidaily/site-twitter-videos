@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Bridge Issue  Video Not Playing Tweet in Chrome\""
-date: 2024-05-21T04:03:34.155Z
-updated: 2024-05-22T04:03:34.155Z
+date: 2024-06-10T20:38:14.302Z
+updated: 2024-06-11T20:38:14.302Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Bridge Issue: Video Not Playing Tweet in Chrome\""
 excerpt: "\"This Article Describes [New] In 2024, Bridge Issue: Video Not Playing Tweet in Chrome\""
 keywords: "Chromium Play Issue,Bridge Video Error,Tweet Stream Glitch,YouTube Video Halt,Chrome Viewing Problem,Streaming Disruption,Browser Media Stop"
-thumbnail: https://www.lifewire.com/thmb/LQMb1e3-Mg4L1lN_8a1V_-CacMg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-155096051-5b1bf60d43a1030036cfac94.jpg
+thumbnail: https://thmb.techidaily.com/667c07bdb92da3d0cfc85ccd305dbbf14b3797ec47ad22d2523d6d2404f16cd1.jpg
 ---
 
 ## Bridge Issue: Video Not Playing Tweet in Chrome

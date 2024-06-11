@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] TweetVid Puller  IPhone App for Easy Video Extraction\""
-date: 2024-05-21T02:49:24.628Z
-updated: 2024-05-22T02:49:24.628Z
+date: 2024-06-10T20:38:19.437Z
+updated: 2024-06-11T20:38:19.437Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] TweetVid Puller: IPhone App for Easy Video Extraction\""
 excerpt: "\"This Article Describes [Updated] TweetVid Puller: IPhone App for Easy Video Extraction\""
 keywords: "\"IPhone Video Extractor,TweetVid Puller,Quick iPad Vid Grab,Easy Photo Extractions,IOS Video Download App,Mobile Video Stripper,User-Friendly Video Excavation\""
-thumbnail: https://www.lifewire.com/thmb/eRGHIfyY7XLVnijHEhZdbc86gZ4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/brainstorming-business-businessman-businesswoman-colleagues-communication-1431569-pxhere.com-a3fe04375b74482188dd8e567d8d348d.jpg
+thumbnail: https://thmb.techidaily.com/06b4f561e77b6da888e1e3e26d3fff8eafe69267efcd4ca3c81ccca7b6840330.jpg
 ---
 
 ## TweetVid Puller: IPhone App for Easy Video Extraction

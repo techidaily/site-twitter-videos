@@ -1,7 +1,7 @@
 ---
 title: "\"Amazon Original Elite  Social Favorites and Watch Count Hits\""
-date: 2024-05-21T04:24:43.289Z
-updated: 2024-05-22T04:24:43.289Z
+date: 2024-06-10T20:38:15.642Z
+updated: 2024-06-11T20:38:15.642Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Amazon Original Elite: Social Favorites and Watch Count Hits\""
 excerpt: "\"This Article Describes Amazon Original Elite: Social Favorites and Watch Count Hits\""
 keywords: "\"Elite Amazon Originals,Amazon Prime Views,Social TV Series Ranking,Favorite Shows Amazon,Top-Viewed Elite Content,Amazon Watch Count,Elite Series Popularity\""
-thumbnail: https://www.lifewire.com/thmb/necVDHY0jw2X8abfnDNPSwKEgJc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-973902638-5c055ec346e0fb0001dfd9f1.jpg
+thumbnail: https://thmb.techidaily.com/f13aeea6c73457fbc5bbd1b6bff4a0c00a428af0a90b0cd758e49ef9cfc3066d.jpg
 ---
 
 ## Amazon Original Elite: Social Favorites and Watch Count Hits

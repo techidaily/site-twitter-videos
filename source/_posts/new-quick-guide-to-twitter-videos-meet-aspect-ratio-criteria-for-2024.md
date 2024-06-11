@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Quick Guide to Twitter Videos  Meet Aspect Ratio Criteria for 2024\""
-date: 2024-05-21T03:46:53.256Z
-updated: 2024-05-22T03:46:53.256Z
+date: 2024-06-10T20:38:20.364Z
+updated: 2024-06-11T20:38:20.364Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Quick Guide to Twitter Videos: Meet Aspect Ratio Criteria for 2024\""
 excerpt: "\"This Article Describes [New] Quick Guide to Twitter Videos: Meet Aspect Ratio Criteria for 2024\""
 keywords: "Twitter Video Guide,TwitAspect Ratio,Met Aspect Criteria,Quick Video Tips,Social Media Vids,Engaging Tweets,Ratio in Videos"
-thumbnail: https://www.lifewire.com/thmb/INF6SYasZPz8DbBoNXqU2flP540=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/before-you-buy-a-video-projector-1847845-v3-ED-8a08e03f2cfc4835a13872618bd4ad00.png
+thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb90774e1fcb8b0eea83e6c871.png
 ---
 
 ## Quick Guide to Twitter Videos: Meet Aspect Ratio Criteria

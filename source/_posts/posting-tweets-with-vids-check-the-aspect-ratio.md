@@ -1,7 +1,7 @@
 ---
 title: "Posting Tweets with Vids? Check the Aspect Ratio"
-date: 2024-05-21T02:34:46.252Z
-updated: 2024-05-22T02:34:46.252Z
+date: 2024-06-10T20:38:24.543Z
+updated: 2024-06-11T20:38:24.543Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Posting Tweets with Vids? Check the Aspect Ratio"
 excerpt: "This Article Describes Posting Tweets with Vids? Check the Aspect Ratio"
 keywords: "Tweet Video Balance,Aspect Ratio for Vids,Optimal Tweet Sizing,Videography on Tweets,Correct Tweet Imagery,Tweet Video Proportions,Tweet with Video Aspects"
-thumbnail: https://www.lifewire.com/thmb/olqeipohCHW2E73yes0iZRJNyvo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1289905642-df07b09295454f57a05a4e866c2924ad.jpg
+thumbnail: https://thmb.techidaily.com/de76a8c110eaff7a166a09fee629e954d26d490c5f1eecc48133ce74b4cc31e3.jpg
 ---
 
 ## Posting Tweets with Vids? Check the Aspect Ratio

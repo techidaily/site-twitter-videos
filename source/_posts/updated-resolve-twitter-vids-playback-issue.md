@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Resolve Twitter Vids Playback Issue"
-date: 2024-05-21T04:32:32.986Z
-updated: 2024-05-22T04:32:32.986Z
+date: 2024-06-10T20:38:19.866Z
+updated: 2024-06-11T20:38:19.866Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Resolve Twitter Vids Playback Issue"
 excerpt: "This Article Describes [Updated] Resolve Twitter Vids Playback Issue"
 keywords: "Fix Tweet Videos,Stop Tweet Video Pause,Unblock TwitTv Streaming,End Tweet Video Halt,TweeVideo Resume Play,Clear Tweet Buffer,Enhance Tweet View"
-thumbnail: https://www.lifewire.com/thmb/m4BcH-XQSOpQcuE-5vTn1swsxLE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-591408071-5bc7767d4cedfd0026a2ce3f.jpg
+thumbnail: https://thmb.techidaily.com/a1ac37f5d8004b4ebc86b20658724b93ef9aff951f603f30c9c8797a450783bc.jpg
 ---
 
 ## Resolve Twitter Vids Playback Issue

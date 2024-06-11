@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 10 Best Funny Videos on Twitter"
-date: 2024-05-21T04:01:31.015Z
-updated: 2024-05-22T04:01:31.015Z
+date: 2024-06-10T20:38:12.158Z
+updated: 2024-06-11T20:38:12.158Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] 10 Best Funny Videos on Twitter"
 excerpt: "This Article Describes [Updated] 10 Best Funny Videos on Twitter"
 keywords: "\"Laugh-Out-Loud Tweets,Humorous Tweet Threads,Chuckle Channels,Giggles in Twittersphere,Funny Twitter Videos,Comedy on Twitter,Hilarious Tweet Tracks\""
-thumbnail: https://www.lifewire.com/thmb/gZnowx2JtDk-nfa-Qpq0XcIEObA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-640608114-590235945f9b5810dcabd4b5.jpg
+thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d79191204bcd93add24c922b6881.jpg
 ---
 
 ## 10 Best Funny Videos on Twitter

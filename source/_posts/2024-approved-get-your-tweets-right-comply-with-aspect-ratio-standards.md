@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Get Your Tweets Right  Comply with Aspect Ratio Standards\""
-date: 2024-05-21T03:30:48.977Z
-updated: 2024-05-22T03:30:48.977Z
+date: 2024-06-10T20:38:18.285Z
+updated: 2024-06-11T20:38:18.285Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Get Your Tweets Right: Comply with Aspect Ratio Standards\""
 excerpt: "\"This Article Describes 2024 Approved: Get Your Tweets Right: Comply with Aspect Ratio Standards\""
 keywords: "Tweet Alignment,Twitter Format,Profile Picture Ratios,Image Resizing Tweets,Social Media Images,Content Display Standard,Post Visual Standards"
-thumbnail: https://www.lifewire.com/thmb/jMUwjhD5E_K6IoDuBpUXPdSSank=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/what-comes-with-the-nintendo-switch-5113752-dac1b1a21ded4322969307b942a600eb.jpg
+thumbnail: https://thmb.techidaily.com/a08727f11a7832f787474e1a64a135e87ab43cd2d3040a1084f509333c65c397.jpg
 ---
 
 ## Get Your Tweets Right: Comply with Aspect Ratio Standards

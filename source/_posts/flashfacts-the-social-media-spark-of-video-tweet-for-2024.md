@@ -1,7 +1,7 @@
 ---
 title: "\"FlashFacts  The Social Media Spark of Video Tweet for 2024\""
-date: 2024-05-21T04:37:52.024Z
-updated: 2024-05-22T04:37:52.024Z
+date: 2024-06-10T20:38:25.154Z
+updated: 2024-06-11T20:38:25.154Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes FlashFacts: The Social Media Spark of Video Tweet for 2024\""
 excerpt: "\"This Article Describes FlashFacts: The Social Media Spark of Video Tweet for 2024\""
 keywords: "Social Media Vids,Video Tweets Impact,Flash Facts Insight,Viral Video Trends,Video Content Shares,Twitter Video Spark,Social Sparks in Videos"
-thumbnail: https://www.lifewire.com/thmb/ZxVz3on7lqegyGY9rZJkS_PLOK0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/DirecTVdownIsTheServiceDown-8ae14322bf344d6fac8f78f2bfc6418d.JPG
+thumbnail: https://thmb.techidaily.com/1382e80fe89cdc85e3f86df652866f8b806d3041c2bfdfcea85ed48c584b9f54.JPG
 ---
 
 ## FlashFacts: The Social Media Spark of Video Tweet

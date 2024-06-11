@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Viral Verdict  Twitter's Top 10 Threads\""
-date: 2024-05-21T02:30:44.562Z
-updated: 2024-05-22T02:30:44.562Z
+date: 2024-06-10T20:38:12.351Z
+updated: 2024-06-11T20:38:12.351Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] The Viral Verdict: Twitter's Top 10 Threads\""
 excerpt: "\"This Article Describes [New] The Viral Verdict: Twitter's Top 10 Threads\""
 keywords: "Viral Tweets Analysis,Trending Twitter Threads,TopTweetsViral,Social Media Impact Study,Hashtag Popularity Exam,Networking Trends in Tweet,Online Conversation Peaks"
-thumbnail: https://www.lifewire.com/thmb/fxTkV6WtKE82Yk7N0Qz__P0Ie4k=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/ecotech_robothands_gettyimages-1179633351_koya79_cropped_1745_v3-c9e218ef95494c239b2edfb8294fe2a1.jpg
+thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad53016173b55a4a0650b3071.jpg
 ---
 
 ## The Viral Verdict: Twitter's Top 10 Threads

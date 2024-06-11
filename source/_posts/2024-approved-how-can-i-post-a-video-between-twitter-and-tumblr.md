@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How Can I Post a Video Between Twitter and Tumblr?\""
-date: 2024-05-21T02:54:33.036Z
-updated: 2024-05-22T02:54:33.036Z
+date: 2024-06-10T20:38:16.736Z
+updated: 2024-06-11T20:38:16.736Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: How Can I Post a Video Between Twitter and Tumblr?\""
 excerpt: "\"This Article Describes 2024 Approved: How Can I Post a Video Between Twitter and Tumblr?\""
 keywords: "Video on TwitTum Post,Share Video TwitHub,Upload Vid to TumblrTwitter,Tweeting a Tumblrvideo,TwitterTumblr Video Share,Post Video TwitBlog,Link Video to TwitTumbler"
-thumbnail: https://www.lifewire.com/thmb/kTs9ODFvQwp9mTeioLTkl4euZm0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-fix-it-when-tiktok-isnt-working-9006ab8028fe47a0afeeb1cedbbb96d8.jpg
+thumbnail: https://thmb.techidaily.com/8e7429f26cf226f9f9f144f8b464e629b87419e8b1e2596cca527bf6aeb943f1.jpg
 ---
 
 ## How Can I Post a Video Between Twitter and Tumblr?

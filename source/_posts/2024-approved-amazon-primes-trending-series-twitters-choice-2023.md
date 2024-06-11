@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Amazon Prime's Trending Series - Twitter's Choice, 2023\""
-date: 2024-05-21T04:31:14.584Z
-updated: 2024-05-22T04:31:14.584Z
+date: 2024-06-10T20:38:14.202Z
+updated: 2024-06-11T20:38:14.202Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Amazon Prime's Trending Series - Twitter's Choice, 2023\""
 excerpt: "\"This Article Describes 2024 Approved: Amazon Prime's Trending Series - Twitter's Choice, 2023\""
 keywords: "Amazon Prime Showcase,Prime Trending Twit,Amazon Prime Hitlist,Prime Popular Tweets,Prime Series Topsys,Prime Top Tweets '23,Prime Twitter Winner"
-thumbnail: https://www.lifewire.com/thmb/ZyJlD6mN45XM86KjO968BS_pxbk=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/483595971-56a9feea5f9b58b7d00068b5.jpg
+thumbnail: https://thmb.techidaily.com/1b9c0ec4aac0a389de35bac2a472d37b33435d994c1a8448795d8b564ff658a3.jpg
 ---
 
 ## Amazon Prime's Trending Series - Twitter's Choice, 2023

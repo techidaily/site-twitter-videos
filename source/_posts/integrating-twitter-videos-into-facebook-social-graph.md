@@ -1,7 +1,7 @@
 ---
 title: "Integrating Twitter Videos Into Facebook Social Graph"
-date: 2024-05-21T04:36:52.298Z
-updated: 2024-05-22T04:36:52.298Z
+date: 2024-06-10T20:38:21.631Z
+updated: 2024-06-11T20:38:21.631Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Integrating Twitter Videos Into Facebook Social Graph"
 excerpt: "This Article Describes Integrating Twitter Videos Into Facebook Social Graph"
 keywords: "Video on FB Integration,Tweet to Social Graph,Social Media Video Use,Tweeting to Connect,Facebook Video Sharing,Twitter Content Adaptation,Video in Social Networks"
-thumbnail: https://www.lifewire.com/thmb/DwsDy9imoz85_yJbP3D7n-APAnE=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed2-60f231b72c19491683c2166c9285b34d.jpg
+thumbnail: https://thmb.techidaily.com/9c2b7ca2e1893d88d6bb8597241a29c970bfa10f3bf7e355bd7f5437be375738.jpg
 ---
 
 ## Integrating Twitter Videos Into Facebook Social Graph

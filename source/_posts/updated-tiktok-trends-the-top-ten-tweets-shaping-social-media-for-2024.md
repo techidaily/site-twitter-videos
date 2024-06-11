@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] TikTok Trends  The Top Ten Tweets Shaping Social Media for 2024\""
-date: 2024-05-21T02:39:44.100Z
-updated: 2024-05-22T02:39:44.100Z
+date: 2024-06-10T20:38:12.842Z
+updated: 2024-06-11T20:38:12.842Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] TikTok Trends: The Top Ten Tweets Shaping Social Media for 2024\""
 excerpt: "\"This Article Describes [Updated] TikTok Trends: The Top Ten Tweets Shaping Social Media for 2024\""
 keywords: "TikTok Trends,Top Ten Tweets,Social Media Influence,Viral Video Content,TikTok Popularity,Hashtag Challenges,Engaging Posts"
-thumbnail: https://www.lifewire.com/thmb/XUH2PwYnQnxL2aJCYqzrM26jUr0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Four_Types_Of-AI-ddd77c84af074c66987f6e8e6cdfa0a0.jpeg
+thumbnail: https://thmb.techidaily.com/61e5e75a143019f7f7c8689be3de97fce55d395ac791171ba491fd10d2883ba4.jpeg
 ---
 
 ## TikTok Trends: The Top Ten Tweets Shaping Social Media

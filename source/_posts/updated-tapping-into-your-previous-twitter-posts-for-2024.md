@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tapping Into Your Previous Twitter Posts for 2024"
-date: 2024-05-21T04:05:25.120Z
-updated: 2024-05-22T04:05:25.120Z
+date: 2024-06-10T20:38:13.994Z
+updated: 2024-06-11T20:38:13.994Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Tapping Into Your Previous Twitter Posts for 2024"
 excerpt: "This Article Describes [Updated] Tapping Into Your Previous Twitter Posts for 2024"
 keywords: "Twitter Past Insights,Retweet Archive Access,Prior Tweet Retrieval,Old Tweets Explore,Historical Twitter Views,Previous Twitter Content,Archive Twitter Posts"
-thumbnail: https://www.lifewire.com/thmb/dQQ6K-YemgwELjvg6ZsDbY1lSus=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed1-da6285c1120045d79e82ad7259c4240b.png
+thumbnail: https://thmb.techidaily.com/3098d762b6d8dcd72acd0532421367ade2e95fba7b5406862c612e4d87ad3713.png
 ---
 
 ## Tapping Into Your Previous Twitter Posts

@@ -1,7 +1,7 @@
 ---
 title: "1 TikTok Videos That Trended on Twitter"
-date: 2024-05-21T03:11:29.880Z
-updated: 2024-05-22T03:11:29.880Z
+date: 2024-06-10T20:38:23.192Z
+updated: 2024-06-11T20:38:23.192Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes 1 TikTok Videos That Trended on Twitter"
 excerpt: "This Article Describes 1 TikTok Videos That Trended on Twitter"
 keywords: "Trending TikTok Tweets,Popular TikTok Content,Viral TikToks on Twitter,TikTok Hits on Social Media,Bestselling TikTok Videos,Famous TikTok Threads,Trending TikTok Challenges"
-thumbnail: https://www.lifewire.com/thmb/AfexZ2-k2mQOT3K5CpxU6ZDxBBU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/outlook-email-laptop-54a6bbf773ea4d67b3714ccbab66d8ed.jpg
+thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2f673e094959a8fdb4cdbd5b.jpg
 ---
 
 ## 1 TikTok Videos That Trended on Twitter

@@ -1,7 +1,7 @@
 ---
 title: "Cyber Celebrity Surge 2024"
-date: 2024-05-21T04:45:15.471Z
-updated: 2024-05-22T04:45:15.472Z
+date: 2024-06-10T20:38:21.135Z
+updated: 2024-06-11T20:38:21.135Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Cyber Celebrity Surge 2024"
 excerpt: "This Article Describes Cyber Celebrity Surge 2024"
 keywords: "\"Cyber Fame Rise,Digital Star Trail,Online Celeb Growth,Virtual Idol Boom,Net-Savvy Stars,Tech Influencer Surge,Social Media Stardom\""
-thumbnail: https://www.lifewire.com/thmb/IgeBPlRVmOuk11sb_EIfMaAzpgM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/changemarginsingoogledocs-5a1c6c9d4e4f7d00371a9aca.png
+thumbnail: https://thmb.techidaily.com/9cc152d1aca0892df1ca5596ac3ad03cce388893be920721cefd3090f694d72e.png
 ---
 
 ## Cyber Celebrity Surge 2024

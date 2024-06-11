@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Top 10 Hilarious TikTok Skits Unveiled for 2024"
-date: 2024-05-21T03:28:56.590Z
-updated: 2024-05-22T03:28:56.590Z
+date: 2024-06-10T20:38:21.110Z
+updated: 2024-06-11T20:38:21.110Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Top 10 Hilarious TikTok Skits Unveiled for 2024"
 excerpt: "This Article Describes [Updated] Top 10 Hilarious TikTok Skits Unveiled for 2024"
 keywords: "Funny TikToks Top 10,Hilarity on TikTok,Comedy in Shorts (TikTok),Hilarious Skits Reviewed,TikTok Laughter Guide,Chuckles From TikTok,Joke Videos Best 10"
-thumbnail: https://www.lifewire.com/thmb/uOuMw8_e1pBrdfuZB3txnHBxmfk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/sofya-NomETWcv2Fo-unsplash-be3fc2855a7e477db0273993fd22e822.jpg
+thumbnail: https://thmb.techidaily.com/f8f467b332b89dbb4d8c51eef116fbbce4476e735f93f6027b47c78945bb4e75.jpg
 ---
 
 ## Top 10 Hilarious TikTok Skits Unveiled

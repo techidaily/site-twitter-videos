@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Laughing Matters  The Viral Meme Scoreboard for 2024\""
-date: 2024-05-21T03:21:50.552Z
-updated: 2024-05-22T03:21:50.552Z
+date: 2024-06-10T20:38:28.019Z
+updated: 2024-06-11T20:38:28.019Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Laughing Matters: The Viral Meme Scoreboard for 2024\""
 excerpt: "\"This Article Describes [New] Laughing Matters: The Viral Meme Scoreboard for 2024\""
 keywords: "Laugter Scores,Memes Ranking,Humor Index,Vocal Fun,Chuckle Chart,Giggle List,Smile Ratings"
-thumbnail: https://www.lifewire.com/thmb/N1gZqeYPtYPjx-jCkHgnlF3Fpgk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Supervised-vs-Unsupervised-Learning-85da94eaf40b4082a0e9ecf9caa5cc48.jpg
+thumbnail: https://thmb.techidaily.com/2b3cfba87301486dbbd741d1b746c08f2612d680177b5f240dd8a8230542393a.jpg
 ---
 
 ## Laughing Matters: The Viral Meme Scoreboard

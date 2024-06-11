@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Directly Sharing Twitter Videos Onto Your Instagram Account\""
-date: 2024-05-21T03:33:28.331Z
-updated: 2024-05-22T03:33:28.331Z
+date: 2024-06-10T20:38:20.025Z
+updated: 2024-06-11T20:38:20.025Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Directly Sharing Twitter Videos Onto Your Instagram Account\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Directly Sharing Twitter Videos Onto Your Instagram Account\""
 keywords: "\"Share Twt-to-IG Videos,Direct Tweet to Insta,Instagram Tweet Video,Instagram From Twitter,Quick Twitter To Instagram,Social Media Crossposting,Twitter Content for Instagram\""
-thumbnail: https://www.lifewire.com/thmb/tPZQXZ5f5-0L_L7obmLf1Q98jIY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/laptop-569944733df78cafda90169f.jpg
+thumbnail: https://thmb.techidaily.com/1ee4d598dddce3a6246087c27cdd3992445e17b0d9a8038ff04440aee38e00e3.jpg
 ---
 
 ## Directly Sharing Twitter Videos Onto Your Instagram Account

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Comedy Kings and Queens  Who's Tops for 2024\""
-date: 2024-05-21T04:40:03.649Z
-updated: 2024-05-22T04:40:03.649Z
+date: 2024-06-10T20:38:14.040Z
+updated: 2024-06-11T20:38:14.040Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Comedy Kings and Queens: Who's Tops for 2024\""
 excerpt: "\"This Article Describes [Updated] Comedy Kings and Queens: Who's Tops for 2024\""
 keywords: "Comedy Stars Ranking,Humor Leaders List,Top Comedians Worldwide,Best Comedian Ranks,Funniest Personalities Score,Laugh Masters Tally,Highest Gig Performers"
-thumbnail: https://www.lifewire.com/thmb/VTa54zqLTISyl15tDVs4zKfJz0U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-172856695-56fd56205f9b586195c6365c.jpg
+thumbnail: https://thmb.techidaily.com/fb708f6b02bb2770894398e8943ab9eb4326fec35c13c96d34e093f48763187e.jpg
 ---
 
 ## Comedy Kings and Queens: Who's Tops?

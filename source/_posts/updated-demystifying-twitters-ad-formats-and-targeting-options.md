@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Demystifying Twitter's Ad Formats and Targeting Options"
-date: 2024-05-21T03:49:25.366Z
-updated: 2024-05-22T03:49:25.366Z
+date: 2024-06-10T20:38:21.834Z
+updated: 2024-06-11T20:38:21.834Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Demystifying Twitter's Ad Formats and Targeting Options"
 excerpt: "This Article Describes [Updated] Demystifying Twitter's Ad Formats and Targeting Options"
 keywords: "Twitter Ad Guide,Twitter Promo Strategies,TwitAd Types Explained,Social Media AdTech,Targeted Twitter Campaigns,Engage With Twitter Ads,Platform Ad Formats Twitter"
-thumbnail: https://www.lifewire.com/thmb/5owBLzwnt_3v9IE_c1lfqXviKB8=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1322139186-40ca0a58cede45ecb6d18fb76538658b.jpg
+thumbnail: https://thmb.techidaily.com/2b0e79e191f0ed82f151a5598b1f3bbb7dbdcce948e1ec31321e7ff03bc36bee.jpg
 ---
 
 ## Demystifying Twitter's Ad Formats and Targeting Options

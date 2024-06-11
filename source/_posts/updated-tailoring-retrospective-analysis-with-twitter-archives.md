@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tailoring Retrospective Analysis with Twitter Archives"
-date: 2024-05-21T03:20:01.273Z
-updated: 2024-05-22T03:20:01.273Z
+date: 2024-06-10T20:38:24.217Z
+updated: 2024-06-11T20:38:24.217Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Tailoring Retrospective Analysis with Twitter Archives"
 excerpt: "This Article Describes [Updated] Tailoring Retrospective Analysis with Twitter Archives"
 keywords: "\"Twitter Retrospect,Archive Data Analysis,Social Media Study,Data-Driven Insights,Tweet Historical Review,Retroactive Analytics,Tweets Impact Eval\""
-thumbnail: https://www.lifewire.com/thmb/Xx8MZlS4QS9KGvb8ZuSVztsqNrQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-safely-use-airport-charging-stations-4690583-01-6085c56e46b34f84b5f5d2d976e20677.jpg
+thumbnail: https://thmb.techidaily.com/6cd087da3f927fb5541ee18a5c4f27fd477ab52940ff719d4e3de086cc546e4e.jpg
 ---
 
 ## Tailoring Retrospective Analysis with Twitter Archives

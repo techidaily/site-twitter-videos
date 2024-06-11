@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  What Makes a Viral Video  The TikTok-Twitter Link\""
-date: 2024-05-21T03:36:01.201Z
-updated: 2024-05-22T03:36:01.201Z
+date: 2024-06-10T20:38:28.407Z
+updated: 2024-06-11T20:38:28.407Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: What Makes a Viral Video: The TikTok-Twitter Link\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: What Makes a Viral Video: The TikTok-Twitter Link\""
 keywords: "Viral Video Trends,TikTok Influence,Twitter Vlogging,Social Media Sensation,Content Goes Viral,Link Sharing Dynamics,Platform Virality"
-thumbnail: https://www.lifewire.com/thmb/qR96858ZncFkcqtTmO__DrnVCZg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-google-maps-cac605f400644927a40e7361175725d8.jpg
+thumbnail: https://thmb.techidaily.com/d5e8491d3f34992956d5390f8a8c8192037db1bb4f39254b71c759c472e8e33a.jpg
 ---
 
 ## What Makes a Viral Video: The TikTok-Twitter Link

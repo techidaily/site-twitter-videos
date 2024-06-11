@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Convert Twitter Vids Into AAC/MP4 Files"
-date: 2024-05-21T03:33:18.961Z
-updated: 2024-05-22T03:33:18.961Z
+date: 2024-06-10T20:38:16.446Z
+updated: 2024-06-11T20:38:16.446Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Convert Twitter Vids Into AAC/MP4 Files"
 excerpt: "This Article Describes [New] In 2024, Convert Twitter Vids Into AAC/MP4 Files"
 keywords: "Twitter Video Conversion,Tweet MP4 Export,YouTube to MP4,Social Media File Maker,Twitter Video Editing,AAC Video Creation,Quick Video Converter"
-thumbnail: https://www.lifewire.com/thmb/XgfyBKYvqv8gtnRlFpU9E6AWsUg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/savescreenshotonxboxseriesxs-4f0cc19fdaa4472a9f607b07a85e75f9.jpg
+thumbnail: https://thmb.techidaily.com/15a61f0827860e342a65d573fdf8ef935cbe188b573d2796a1411e612ad84808.jpg
 ---
 
 ## Convert Twitter Vids Into AAC/MP4 Files

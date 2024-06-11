@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Twitter Clips for Instagram Display"
-date: 2024-05-21T04:36:56.347Z
-updated: 2024-05-22T04:36:56.347Z
+date: 2024-06-10T20:38:24.488Z
+updated: 2024-06-11T20:38:24.488Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Optimizing Twitter Clips for Instagram Display"
 excerpt: "This Article Describes Optimizing Twitter Clips for Instagram Display"
 keywords: "\"Social Media Optimization,Twitter Content Strategy,Instagram Video Trends,Cross-Platform Engagement,Tweet Visuals Enhancement,Promoting Tweets on Insta,Video Clip SEO for Instagram\""
-thumbnail: https://www.lifewire.com/thmb/gzHpHKbSd5o6D_hdSTFod8z3AV8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-769729481-5bd367dcc9e77c007c015257.jpg
+thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6ed8b5f1e4a621d2eef1f390.jpg
 ---
 
 ## Optimizing Twitter Clips for Instagram Display

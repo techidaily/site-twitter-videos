@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Integrating Vids on Twitter + Tumblr Platforms\""
-date: 2024-05-21T04:46:29.618Z
-updated: 2024-05-22T04:46:29.618Z
+date: 2024-06-10T20:38:23.332Z
+updated: 2024-06-11T20:38:23.332Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Integrating Vids on Twitter + Tumblr Platforms\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Integrating Vids on Twitter + Tumblr Platforms\""
 keywords: "Twitter Vid Integration,Tumblr Video Addition,Social Media Video Share,YouTube Embedding Tweets,Vimeo Content on Twitter,Livestreaming to Tumblin',Multimedia on Microblogging Platforms"
-thumbnail: https://www.lifewire.com/thmb/Jz4ZKPDnqHGvdTa0nIbce_kihiw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/blackiphonescreen-565bb1bcd29b4b2dba8e452a50ee1213.jpg
+thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960550c4309b2e36a11fd875c9.jpg
 ---
 
 ## Integrating Vids on Twitter + Tumblr Platforms

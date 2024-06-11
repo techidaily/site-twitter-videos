@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Most Trending Twitch Originals From Amazon Prime"
-date: 2024-05-21T04:29:40.900Z
-updated: 2024-05-22T04:29:40.900Z
+date: 2024-06-10T20:38:14.128Z
+updated: 2024-06-11T20:38:14.128Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, The Most Trending Twitch Originals From Amazon Prime"
 excerpt: "This Article Describes [New] In 2024, The Most Trending Twitch Originals From Amazon Prime"
 keywords: "Twitch Originals Streaming,Prime Twitch Series,Trending Prime Originals,Popular Twitch Content,Amazon Original Twitch,Twitch Prime Originals,Top Twitch Prime Shows"
-thumbnail: https://www.lifewire.com/thmb/md1qW4dSt0BWTpSe9CF4ZL9YHXk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nxtpaper5g-c6c5242b7a834ccba6007ad8127cc8ef.jpeg
+thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6ab330fc24fdad62a19d7e96.jpeg
 ---
 
 ## The Most Trending Twitch Originals From Amazon Prime

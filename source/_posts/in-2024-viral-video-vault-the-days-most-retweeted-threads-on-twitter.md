@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Viral Video Vault  The Day's Most Retweeted Threads on Twitter\""
-date: 2024-05-21T03:57:06.674Z
-updated: 2024-05-22T03:57:06.674Z
+date: 2024-06-10T20:38:23.478Z
+updated: 2024-06-11T20:38:23.478Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Viral Video Vault: The Day's Most Retweeted Threads on Twitter\""
 excerpt: "\"This Article Describes In 2024, Viral Video Vault: The Day's Most Retweeted Threads on Twitter\""
 keywords: "Viral Tweet Tracks,Top Tweets Daily,Popular Twitter Threads,Trending Twitters,Shared Vine Videos,Hottest Twitter Threads,Retweeted Video Threads"
-thumbnail: https://www.lifewire.com/thmb/UCCJI6MO1FwbR0mTqx5aB-FS3_0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/how-to-add-tiktok-filters-and-effects-f3c195b2fe1449cb8b2906eea3305b22.jpg
+thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2f2b7f6dd74a2f0921700773.jpg
 ---
 
 ## Viral Video Vault: The Day's Most Retweeted Threads on Twitter

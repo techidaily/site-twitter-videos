@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Instant Transmission  Tweets as Vids on WhatsApp\""
-date: 2024-05-21T03:09:31.668Z
-updated: 2024-05-22T03:09:31.668Z
+date: 2024-06-10T20:38:25.816Z
+updated: 2024-06-11T20:38:25.816Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Instant Transmission: Tweets as Vids on WhatsApp\""
 excerpt: "\"This Article Describes [Updated] In 2024, Instant Transmission: Tweets as Vids on WhatsApp\""
 keywords: "\"Twits to Video,WhatsApp Vids,Instant Tweets,Viddy Chat App,Real-Time Messaging,Social Media Videos,Live Tweet Features\""
-thumbnail: https://www.lifewire.com/thmb/G-iW0FJ22KzS4XxqQv7mqoC_hc8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Featured-MonopolyGO-Holding-iPhone-8605534-fc32a4de91374628b778efea2caafee1.jpg
+thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d0308246b622538179ed42958d614.jpg
 ---
 
 ## Instant Transmission: Tweets as Vids on WhatsApp

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Interplatform Video Uploading  Twitter & Tumblr Synced\""
-date: 2024-05-21T02:42:05.575Z
-updated: 2024-05-22T02:42:05.575Z
+date: 2024-06-10T20:38:23.309Z
+updated: 2024-06-11T20:38:23.309Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Interplatform Video Uploading: Twitter & Tumblr Synced\""
 excerpt: "\"This Article Describes 2024 Approved: Interplatform Video Uploading: Twitter & Tumblr Synced\""
 keywords: "\"Interplatform Uploading,Twitter Video Sync,Tumblr Video Link,Cross-Platform Sharing,Social Media Video Sync,Video Upload Syncing,Platform Interlinked Uploads\""
-thumbnail: https://www.lifewire.com/thmb/tog6m8Yd2L1pQ_0Pktyl-fbgcRs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/camera-56e0976d3df78c5ba0566b37.jpg
+thumbnail: https://thmb.techidaily.com/d3a69700e0cb55adae67e72e210fb2f2a9d54f1a94f5e0b261b4ccf5f3207b46.jpg
 ---
 
 ## Interplatform Video Uploading: Twitter & Tumblr Synced

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Instagram Edge  Sharing Your Twitter Video Library for 2024\""
-date: 2024-05-21T04:16:31.817Z
-updated: 2024-05-22T04:16:31.817Z
+date: 2024-06-10T20:38:25.862Z
+updated: 2024-06-11T20:38:25.862Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Instagram Edge: Sharing Your Twitter Video Library for 2024\""
 excerpt: "\"This Article Describes [Updated] Instagram Edge: Sharing Your Twitter Video Library for 2024\""
 keywords: "\"Instagram Video Upload,Share Twitter Media,Social Platform Integration,Video Content Cross-Posting,Multiplatform Engagement,Stream Twitter Videos,Social Media Video Sharing\""
-thumbnail: https://www.lifewire.com/thmb/36O6mR-32uZPQcZCa_oWmrz1kHY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Childlearningonline_WillieBThomas_Getty-3e51600a64d742a0b5db4fadacead069.jpg
+thumbnail: https://thmb.techidaily.com/52f8da45eabd9e84edabed13a325d84ff2b39dca8fb87ff4960ee8bff73c07e4.jpg
 ---
 
 ## Instagram Edge: Sharing Your Twitter Video Library

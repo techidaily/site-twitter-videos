@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Amazon Prime Series  Most Liked & Watched on Twitter for 2024\""
-date: 2024-05-21T03:32:05.620Z
-updated: 2024-05-22T03:32:05.620Z
+date: 2024-06-10T20:38:16.667Z
+updated: 2024-06-11T20:38:16.667Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter for 2024\""
 excerpt: "\"This Article Describes The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter for 2024\""
 keywords: "Prime TV Favorites,Top Prime Shows,Best Prime Originals,Prestigious Prime Content,A+ Prime Series Watch,Twitter's Prime Hits,Popular Prime Episode Views"
-thumbnail: https://www.lifewire.com/thmb/HCLMP6GMUtopX7mh_Wu068K9So8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/carsolarbatterycharger-5680a3b85f9b586a9edda02a.jpg
+thumbnail: https://thmb.techidaily.com/6d08ef0c51b7d66c7e631fe3667e11cb568cec8b149ae12a4fa97fbfe5c6637e.jpg
 ---
 
 ## The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter

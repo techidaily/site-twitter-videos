@@ -1,7 +1,7 @@
 ---
 title: "[New] Custom Thumbnail for Twitter Videos for 2024"
-date: 2024-05-21T03:45:48.468Z
-updated: 2024-05-22T03:45:48.468Z
+date: 2024-06-10T20:38:16.036Z
+updated: 2024-06-11T20:38:16.036Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Custom Thumbnail for Twitter Videos for 2024"
 excerpt: "This Article Describes [New] Custom Thumbnail for Twitter Videos for 2024"
 keywords: "Twitter Video Thumbnails,Custom Video Images,Tweet Graphics,Social Media Themes,Customized Tweets,Video Image Creation,Online Thumbnail Design"
-thumbnail: https://www.lifewire.com/thmb/wD2BaL-uGeo9Ore30VI3QWyk2QY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1307393933-75641c476c1e4a5aab36b94eeafc92c8.jpg
+thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e906117f4f6cafe9378e4fe6f.jpg
 ---
 
 ## Custom Thumbnail for Twitter Videos

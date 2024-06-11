@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Sending Instagram Direct Messages with Twitter Videos"
-date: 2024-05-21T03:16:21.398Z
-updated: 2024-05-22T03:16:21.398Z
+date: 2024-06-10T20:38:14.831Z
+updated: 2024-06-11T20:38:14.831Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Sending Instagram Direct Messages with Twitter Videos"
 excerpt: "This Article Describes [Updated] In 2024, Sending Instagram Direct Messages with Twitter Videos"
 keywords: "Twitter Direct Message,Instagram Video DMs,Sending InstaDMs,Share Videos on Instagram,Instagram to Twitter DM,Integrate Instagram & Twitter,Use Twitter for Instagram DM"
-thumbnail: https://www.lifewire.com/thmb/bqDvuF_UsKT1P3NOnjWAao-AJkY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/buy-used-iphone-5717c2523df78c3fa23ddc70.jpg
+thumbnail: https://thmb.techidaily.com/fa8cb6ca311af8694c1fd2b592b0789e69f6337924778efc705315343e4f909c.jpg
 ---
 
 ## Sending Instagram Direct Messages with Twitter Videos

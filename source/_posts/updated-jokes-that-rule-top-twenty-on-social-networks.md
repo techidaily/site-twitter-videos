@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Jokes that Rule  Top Twenty on Social Networks\""
-date: 2024-05-21T04:38:10.867Z
-updated: 2024-05-22T04:38:10.867Z
+date: 2024-06-10T20:38:12.624Z
+updated: 2024-06-11T20:38:12.624Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Jokes that Rule: Top Twenty on Social Networks\""
 excerpt: "\"This Article Describes [Updated] Jokes that Rule: Top Twenty on Social Networks\""
 keywords: "Jokes Ruling SNS,Social Joke Tops,Humor Leaders SN,Funny SNS Trends,Hits Top Twenty Joke,Popular Joke Networks,Top Social Jokes"
-thumbnail: https://www.lifewire.com/thmb/JwdIPs6Dto-nAm_me_78jeSYiCg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/emoji-badges-on-blue-background-884378360-5a143b71bfbf4c91b99b2e3a051c6ac8.jpg
+thumbnail: https://thmb.techidaily.com/a05ae5ee6982c15ff3eed9139528bca4d5df10563908a6200578c04353f69c36.jpg
 ---
 
 ## Jokes that Rule: Top Twenty on Social Networks

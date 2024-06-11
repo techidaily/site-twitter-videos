@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Post Photos and Videos on Twitter From Smartphones for 2024"
-date: 2024-05-21T03:03:13.075Z
-updated: 2024-05-22T03:03:13.075Z
+date: 2024-06-10T20:38:21.299Z
+updated: 2024-06-11T20:38:21.299Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How To Post Photos and Videos on Twitter From Smartphones for 2024"
 excerpt: "This Article Describes [Updated] How To Post Photos and Videos on Twitter From Smartphones for 2024"
 keywords: "PhotoTweet,VideoTwitterPost,SmartphoneSnapShare,MobileMediaUpload,TweetPhotoUpload,TwtivideoFromPhone,SharePicsOnTwit"
-thumbnail: https://www.lifewire.com/thmb/jBnabVblnU-pVzdwjWgW35QXhjQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/PreetAnand-4c9eb5ff333041e2a6a25710d87b4a34.png
+thumbnail: https://thmb.techidaily.com/6af9f284b317fd0fc6915e0019f4adbc9dd81ab605d1c55ebd68e10c11778128.png
 ---
 
 ## How To Post Photos and Videos on Twitter From Smartphones

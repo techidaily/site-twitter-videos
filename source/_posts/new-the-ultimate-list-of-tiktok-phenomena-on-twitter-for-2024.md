@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate List of TikTok Phenomena on Twitter for 2024"
-date: 2024-05-21T04:44:14.104Z
-updated: 2024-05-22T04:44:14.104Z
+date: 2024-06-10T20:38:21.253Z
+updated: 2024-06-11T20:38:21.253Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] The Ultimate List of TikTok Phenomena on Twitter for 2024"
 excerpt: "This Article Describes [New] The Ultimate List of TikTok Phenomena on Twitter for 2024"
 keywords: "TikTok Trends,TikTok Tweets,Social Media Hits,Viral Video Sites,TikTok Influencers,Twitter Phenomena,Popular Online Moments"
-thumbnail: https://www.lifewire.com/thmb/zPbrz0xYT6-e-Siew_kTQcwmGaI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MayHabib-d884611c85bf4b909b33ee1410d6544b.jpeg
+thumbnail: https://thmb.techidaily.com/a9e60c359d76678f8aad5193db4d1713b6255faff22e113abbe3abedfe2cc94d.jpeg
 ---
 
 ## The Ultimate List of TikTok Phenomena on Twitter

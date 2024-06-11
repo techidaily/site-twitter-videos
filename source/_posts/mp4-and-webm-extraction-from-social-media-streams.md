@@ -1,7 +1,7 @@
 ---
 title: "MP4 & WebM Extraction From Social Media Streams"
-date: 2024-05-21T04:30:56.634Z
-updated: 2024-05-22T04:30:56.634Z
+date: 2024-06-10T20:38:25.975Z
+updated: 2024-06-11T20:38:25.975Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes MP4 & WebM Extraction From Social Media Streams"
 excerpt: "This Article Describes MP4 & WebM Extraction From Social Media Streams"
 keywords: "MP4 Extraction,WebM Extraction,Stream Sources,Social Media Extract,Online Stream Keywords,Media Format Conversion,Video Source Harvesting"
-thumbnail: https://www.lifewire.com/thmb/j1p_eafOIBzeuVMoFiTu1Hxzxe4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Familyroadtrip_Maskot_Getty-c760389eb6e64d6682aa79ceb9552967.jpg
+thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f4a1f3aaa3fc523cba06c6cc.jpg
 ---
 
 ## MP4 & WebM Extraction From Social Media Streams

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Amazon's Favorite Originals - Twitter Top Picks\""
-date: 2024-05-21T03:49:13.229Z
-updated: 2024-05-22T03:49:13.229Z
+date: 2024-06-10T20:38:16.370Z
+updated: 2024-06-11T20:38:16.370Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Amazon's Favorite Originals - Twitter Top Picks\""
 excerpt: "\"This Article Describes [New] Amazon's Favorite Originals - Twitter Top Picks\""
 keywords: "Amazon Originals Tweets,Prime Original Shows,TwitFavored Originals,EchoTop TV Selections,AMAZON TOP Pick Series,Prime Top Twitter Picks,Amazon's Prime Favorites"
-thumbnail: https://www.lifewire.com/thmb/4yyTl7MKn_iYQkYcgHkPBGkXxu4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/kilian-seiler-PZLgTUAhxMM-unsplash-b385dd48498742aea28827a455b88525.jpg
+thumbnail: https://thmb.techidaily.com/d62120d0f92dda8643d1fb18ba050a4238aed422d93382b937c3fa171ed251d1.jpg
 ---
 
 ## Amazon's Favorite Originals - Twitter Top Picks

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Post a Video Between Twitter and Tumblr for 2024"
-date: 2024-05-21T03:33:51.514Z
-updated: 2024-05-22T03:33:51.514Z
+date: 2024-06-10T20:38:12.189Z
+updated: 2024-06-11T20:38:12.189Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] How to Post a Video Between Twitter and Tumblr for 2024"
 excerpt: "This Article Describes [Updated] How to Post a Video Between Twitter and Tumblr for 2024"
 keywords: "\"Video Sharing on Social Media,Tweeting Videos Online,Tumblr Video Upload Guide,Integrating Twit & Tumb Video,Cross-Platform Video Posting,Video Content Distribution,Multi-Network Video Share\""
-thumbnail: https://www.lifewire.com/thmb/MKk-90YHRjjdWtcB0KiFaftz0HE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Featured-Roku-Channel-Wall-TV-8642282-a29d8c11f145487dbf3682e2be258c52.jpg
+thumbnail: https://thmb.techidaily.com/bd1f3164b21938808543fb77a181f9a976b01572cf9b49cfe1852edc61f82d53.jpg
 ---
 
 ## How to Post a Video Between Twitter and Tumblr?

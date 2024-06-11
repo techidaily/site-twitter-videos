@@ -1,7 +1,7 @@
 ---
 title: "\"Prime Video Kingmakers  Top Tweeted & Most Watched Originals for 2024\""
-date: 2024-05-21T02:42:26.882Z
-updated: 2024-05-22T02:42:26.882Z
+date: 2024-06-10T20:38:21.867Z
+updated: 2024-06-11T20:38:21.867Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Prime Video Kingmakers: Top Tweeted & Most Watched Originals for 2024\""
 excerpt: "\"This Article Describes Prime Video Kingmakers: Top Tweeted & Most Watched Originals for 2024\""
 keywords: "Prime Video Originals,Popular TV Shows,Streaming Hits,Video Kingpins,Trending Series,Most Viewed Content,Top Tweets Reels"
-thumbnail: https://www.lifewire.com/thmb/E4gPFTZX9qtIL-wmVSrf9SyCM6g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/tesla-phone-concept-2236595eafcc4248a93b0b3b73bda251.png
+thumbnail: https://thmb.techidaily.com/f1ae1ebf673254b46f0a821d8d5736e61a916c4eb6fabc72096593a99e32594f.png
 ---
 
 ## Prime Video Kingmakers: Top Tweeted & Most Watched Originals

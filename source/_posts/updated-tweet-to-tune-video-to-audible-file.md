@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Tweet-to-Tune  Video to Audible File\""
-date: 2024-05-21T03:14:07.268Z
-updated: 2024-05-22T03:14:07.268Z
+date: 2024-06-10T20:38:23.262Z
+updated: 2024-06-11T20:38:23.262Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Tweet-to-Tune: Video to Audible File\""
 excerpt: "\"This Article Describes [Updated] Tweet-to-Tune: Video to Audible File\""
 keywords: "Audio Tweet Conversion,Music Video Audible,Tunes From Tweets,Vocalize Tweets,Audible Tweet Video,Sound Transform Tweets,Convert Tweets to Audio"
-thumbnail: https://www.lifewire.com/thmb/8WqruqRuI3DvnOciFRtMSEwttKs=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/SocialMedia_GettyImages-1167165311_KornburutWoradee_EyeEm_CROPPED-9cc5d3f943a74a51b2f4fe746197af63.jpg
+thumbnail: https://thmb.techidaily.com/2ceae87a9b9364e8de7f8199f6943542799e9e444d1e94cece6744b91d0b78e1.jpg
 ---
 
 ## Tweet-to-Tune: Video to Audible File

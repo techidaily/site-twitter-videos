@@ -1,7 +1,7 @@
 ---
 title: "\"Enhancing Tweets  Adding Media Files for 2024\""
-date: 2024-05-21T04:01:21.731Z
-updated: 2024-05-22T04:01:21.731Z
+date: 2024-06-10T20:38:17.349Z
+updated: 2024-06-11T20:38:17.349Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Enhancing Tweets: Adding Media Files for 2024\""
 excerpt: "\"This Article Describes Enhancing Tweets: Adding Media Files for 2024\""
 keywords: "Media Tweet Boost,Add Image to Tweets,Embed Video in Tweets,Twitter Image Upload,Enhance Tweet Visibility,Include Files in Tweets,Social Media Multimedia"
-thumbnail: https://www.lifewire.com/thmb/0hl6X6YrycGsqkYdOW8_cJPpWFs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/netflixlogo-56a4b4183df78cf77283d151.jpg
+thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f1438428a2471f9b4a0fdcaefb.jpg
 ---
 
 ## Enhancing Tweets: Adding Media Files

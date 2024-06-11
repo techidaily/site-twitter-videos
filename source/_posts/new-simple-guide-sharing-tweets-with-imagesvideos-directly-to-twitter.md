@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Simple Guide  Sharing Tweets with Images/Videos Directly to Twitter\""
-date: 2024-05-21T03:25:43.651Z
-updated: 2024-05-22T03:25:43.651Z
+date: 2024-06-10T20:38:23.649Z
+updated: 2024-06-11T20:38:23.649Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Simple Guide: Sharing Tweets with Images/Videos Directly to Twitter\""
 excerpt: "\"This Article Describes [New] Simple Guide: Sharing Tweets with Images/Videos Directly to Twitter\""
 keywords: "\"Share Tweets Image Video Twitter,Direct Tweet Media Upload,Twitter Image-Video Sharing,Media Tweeting Guide,Images/Videos to Twitter,Twitter Media Integration,Quick Media Tweet Upload\""
-thumbnail: https://www.lifewire.com/thmb/kaKmEcJ4wgeshIkJ4JE3bp3u-NU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1369568023-c596ac8d6b5a4f3682bda2fa0feb12bd.jpg
+thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8ee44c6197adf88943656c52.jpg
 ---
 
 ## Simple Guide: Sharing Tweets with Images/Videos Directly to Twitter

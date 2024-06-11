@@ -1,7 +1,7 @@
 ---
 title: "[New] Customize Twitter Video Snapshot"
-date: 2024-05-21T03:36:54.965Z
-updated: 2024-05-22T03:36:54.965Z
+date: 2024-06-10T20:38:24.181Z
+updated: 2024-06-11T20:38:24.181Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Customize Twitter Video Snapshot"
 excerpt: "This Article Describes [New] Customize Twitter Video Snapshot"
 keywords: "\"TwitTV Customization,Twitter Video Snap,Personalized Tweets,Tweet Snippets,Social Media Videos,Twitter Image Capsule,User-Tweets Archive\""
-thumbnail: https://www.lifewire.com/thmb/LLn7hdNldySWzZ7VIiItwytVfPY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/espnplus-6d79c347f2df42d7a38cdb0ba9a2472b.jpg
+thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf769458408d36b67b305252021.jpg
 ---
 
 ## Customize Twitter Video Snapshot

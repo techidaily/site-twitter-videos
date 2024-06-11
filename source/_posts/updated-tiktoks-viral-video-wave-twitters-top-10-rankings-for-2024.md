@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] TikTok's Viral Video Wave  Twitter's Top 10 Rankings for 2024\""
-date: 2024-05-21T03:17:04.272Z
-updated: 2024-05-22T03:17:04.272Z
+date: 2024-06-10T20:38:19.291Z
+updated: 2024-06-11T20:38:19.291Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] TikTok's Viral Video Wave: Twitter's Top 10 Rankings for 2024\""
 excerpt: "\"This Article Describes [Updated] TikTok's Viral Video Wave: Twitter's Top 10 Rankings for 2024\""
 keywords: "TikTok Trends,Viral Videos,TikTok Fame,TikTok Popularity,Twitter Top Lists,Video Rankings,Social Media Hit"
-thumbnail: https://www.lifewire.com/thmb/HkONQq5zPXfHst-EQTzodPIPJRI=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/AI_Choreograph_GettyImagesPlus-1473211827_CROPPED-137fc9eef04a43a79554344a6f11d1b7.jpg
+thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2f4d2dd7c34adab834ad1c13.jpg
 ---
 
 ## TikTok's Viral Video Wave: Twitter's Top 10 Rankings

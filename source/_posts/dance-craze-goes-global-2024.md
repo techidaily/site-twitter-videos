@@ -1,7 +1,7 @@
 ---
 title: "Dance Craze Goes Global 2024"
-date: 2024-05-21T02:53:03.429Z
-updated: 2024-05-22T02:53:03.429Z
+date: 2024-06-10T20:38:24.734Z
+updated: 2024-06-11T20:38:24.734Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Dance Craze Goes Global 2024"
 excerpt: "This Article Describes Dance Craze Goes Global 2024"
 keywords: "DanceGlobal2024,WorldDanceTrend,DanceFever2024,InternationalDance,RhythmicCulturalShift,BeatWorldwideRevamp,GlobalDanceWave"
-thumbnail: https://www.lifewire.com/thmb/G7UyM6yly4YWcsiu8kN1fpWKHp8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/mgwheel00-df5fd550ae664063ad12d2cf861f32fc.jpg
+thumbnail: https://thmb.techidaily.com/afa50b24e25ed08989c229ae73d3b233da6ab60b7cf21c80e9cb56c9f6856e1f.jpg
 ---
 
 ## Dance Craze Goes Global 2024

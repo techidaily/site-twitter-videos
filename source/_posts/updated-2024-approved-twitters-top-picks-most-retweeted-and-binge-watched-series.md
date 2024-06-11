@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Twitters' Top Picks  Most Retweeted & Binge-Watched Series\""
-date: 2024-05-21T03:35:38.800Z
-updated: 2024-05-22T03:35:38.800Z
+date: 2024-06-10T20:38:12.563Z
+updated: 2024-06-11T20:38:12.563Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Twitters' Top Picks: Most Retweeted & Binge-Watched Series\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Twitters' Top Picks: Most Retweeted & Binge-Watched Series\""
 keywords: "\"Top Twitter Trends,Viral Tweets Series,Binge-Watching Hits,Retweeting Best Shows,Popular TV Shows Twitch,Social Media Viewers,Shared Showlists Online\""
-thumbnail: https://www.lifewire.com/thmb/FlIls8hU_ed8pQBtnCcFKYCJhVE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/005_how-to-fix-it-when-your-chromebook-won-t-turn-on-4802489-a317e6cdd7f443b38115814a3507495f.jpg
+thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d37497b921eea5c41a1afe3dd.jpg
 ---
 
 ## Twitters' Top Picks: Most Retweeted & Binge-Watched Series

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Tweaking the Viewer's Journey  The Art of Custom Thumbnail Design in Twitter\""
-date: 2024-05-21T02:36:46.527Z
-updated: 2024-05-22T02:36:46.527Z
+date: 2024-06-10T20:38:20.917Z
+updated: 2024-06-11T20:38:20.917Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Tweaking the Viewer's Journey: The Art of Custom Thumbnail Design in Twitter\""
 excerpt: "\"This Article Describes In 2024, Tweaking the Viewer's Journey: The Art of Custom Thumbnail Design in Twitter\""
 keywords: "Twitter Thumbnails Art,Tweaked Journey Viewing,Custom Thumbnail Creation,Viewer's Tailored Journey,TwitDesign Innovations,Thumbnail Enhancements,Engaging Twitter Images"
-thumbnail: https://www.lifewire.com/thmb/5dWfE2pdmNCU9qpfDVc7QhYieRw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/X-Logo-on-Phone-35c83db6a3c34b689ab069ff50b96bcc.jpg
+thumbnail: https://thmb.techidaily.com/93e8b8eb6bc88169936766a6461fe23e663eb59793bd9736b13ed221555fa6ea.jpg
 ---
 
 ## Tweaking the Viewer's Journey: The Art of Custom Thumbnail Design in Twitter

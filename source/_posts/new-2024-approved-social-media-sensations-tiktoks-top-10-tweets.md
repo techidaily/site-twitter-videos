@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Social Media Sensations  TikTok's Top 10 Tweets\""
-date: 2024-05-21T04:41:31.006Z
-updated: 2024-05-22T04:41:31.006Z
+date: 2024-06-10T20:38:24.296Z
+updated: 2024-06-11T20:38:24.296Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Social Media Sensations: TikTok's Top 10 Tweets\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Social Media Sensations: TikTok's Top 10 Tweets\""
 keywords: "TikTok Trends,Viral TikTok Videos,Popular TikToks Daily,Top TikTok Hits,TikTok's Sensational Tweets,Influential TikTok Moments,Noteworthy TikTok Content"
-thumbnail: https://www.lifewire.com/thmb/p3T148UMsHODakFi0TGFDH91XfQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-681899129-ba812f305e664b88982722779ceb0d44.jpg
+thumbnail: https://thmb.techidaily.com/77611f2e0e7b4b101c92af3b172df9c62d2c1071591d3411a278cc0334c16e37.jpg
 ---
 
 ## Social Media Sensations: TikTok's Top 10 Tweets

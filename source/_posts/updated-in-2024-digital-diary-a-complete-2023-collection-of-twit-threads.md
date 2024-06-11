@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Digital Diary  A Complete 2023 Collection of Twit-Threads\""
-date: 2024-05-21T03:15:13.712Z
-updated: 2024-05-22T03:15:13.712Z
+date: 2024-06-10T20:38:15.964Z
+updated: 2024-06-11T20:38:15.964Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Digital Diary: A Complete 2023 Collection of Twit-Threads\""
 excerpt: "\"This Article Describes [Updated] In 2024, Digital Diary: A Complete 2023 Collection of Twit-Threads\""
 keywords: "Digital Diary,Twitch Threads 2023,Yearly Twitch Compilation,Twitch Threads Guide,Digital Communication Stories,Twitch Timeline Collection,Threaded Social Media Narratives"
-thumbnail: https://www.lifewire.com/thmb/_6B5pgGL008TaT40T2jXkP9Ek6g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-image-creator-from-microsoft-designer-7fad906276724cac96622cfcf3af3322.jpg
+thumbnail: https://thmb.techidaily.com/4c3c65f6b07b6c1127c499f9b9889ab3244702ce710d3692e68eb1f54ab083aa.jpg
 ---
 
 ## Digital Diary: A Complete 2023 Collection of Twit-Threads

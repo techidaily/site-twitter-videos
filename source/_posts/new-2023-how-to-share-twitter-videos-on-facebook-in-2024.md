@@ -1,7 +1,7 @@
 ---
 title: "[New] 2023 | How to Share Twitter Videos on Facebook, In 2024"
-date: 2024-05-21T04:17:11.942Z
-updated: 2024-05-22T04:17:11.942Z
+date: 2024-06-10T20:38:18.243Z
+updated: 2024-06-11T20:38:18.243Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] 2023 | How to Share Twitter Videos on Facebook, In 2024"
 excerpt: "This Article Describes [New] 2023 | How to Share Twitter Videos on Facebook, In 2024"
 keywords: "Twitter Video Sharing,Facebook Video Tweet,Social Media CrossPost,Tweeted Videos FB,Video Tweet Share,Facebook Tweet Links,Share Tweets on FB"
-thumbnail: https://www.lifewire.com/thmb/_dH3c5dpBZLrHjdwg47aypgTCi8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/twittermute-5bc42bbd46e0fb002679ac08.jpg
+thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b40ee36dae7aad2706914652.jpg
 ---
 
 ## 2023 | How to Share Twitter Videos on Facebook?

@@ -1,7 +1,7 @@
 ---
 title: "[New] Twitter Video Requirements | How to Upload a Video on Twitter?"
-date: 2024-05-21T03:26:32.802Z
-updated: 2024-05-22T03:26:32.802Z
+date: 2024-06-10T20:38:23.544Z
+updated: 2024-06-11T20:38:23.544Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Twitter Video Requirements | How to Upload a Video on Twitter?"
 excerpt: "This Article Describes [New] Twitter Video Requirements | How to Upload a Video on Twitter?"
 keywords: "Twitter Video Guide,Uploading Videos Twitter,Twitter Video Standards,Video Posting Twitter,Twitter Video Policy,Share Videos Twitter,Comply with Twitter Video"
-thumbnail: https://www.lifewire.com/thmb/Bvvt5grcKJTS_iH0DvTCVNGQLLw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-play-1bde744425134868ba33def6d47150a7.png
+thumbnail: https://thmb.techidaily.com/a4224fc73a6465f58bae54c290236f5e5e431174596ef739d111ede45824dcdd.png
 ---
 
 ## Twitter Video Requirements | How to Upload a Video on Twitter?

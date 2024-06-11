@@ -1,7 +1,7 @@
 ---
 title: "[New] Complying with Aspect Ratios in Tweets for 2024"
-date: 2024-05-21T04:39:59.630Z
-updated: 2024-05-22T04:39:59.630Z
+date: 2024-06-10T20:38:17.742Z
+updated: 2024-06-11T20:38:17.742Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Complying with Aspect Ratios in Tweets for 2024"
 excerpt: "This Article Describes [New] Complying with Aspect Ratios in Tweets for 2024"
 keywords: "Tweet Ratio Compliance,Aspect Ratio Tweeting,Twitter SASA Ratios,Posting Image Sizes,Social Media Format Adherence,Hashtag Space Optimization,Visual Content Standards"
-thumbnail: https://www.lifewire.com/thmb/uPaLVwxbvMfcPdG68RijLj_eON0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-bd03be35e2934c6a955a7022f4319123.png
+thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7456b6ffbc01667561900748.png
 ---
 
 ## Complying with Aspect Ratios in Tweets

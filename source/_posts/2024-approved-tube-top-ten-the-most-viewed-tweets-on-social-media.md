@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tube Top Ten  The Most Viewed Tweets on Social Media\""
-date: 2024-05-21T03:07:48.261Z
-updated: 2024-05-22T03:07:48.261Z
+date: 2024-06-10T20:38:28.318Z
+updated: 2024-06-11T20:38:28.318Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Tube Top Ten: The Most Viewed Tweets on Social Media\""
 excerpt: "\"This Article Describes 2024 Approved: Tube Top Ten: The Most Viewed Tweets on Social Media\""
 keywords: "Tops Trending Tweets,Popular Tweets List,Social Media Insights,Viral Tweet Rankings,Top Viewed Tweets,Most Engaged Tweets,Leading Twitter Content"
-thumbnail: https://www.lifewire.com/thmb/EvG770zqALz3WE9QUlocxZtoGnU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/apple-airpods-pro-2nd-gen-dfe4825140b34ff88049db67933d5cbd.png
+thumbnail: https://thmb.techidaily.com/f858bf5f9e0327b42a985f450fae85190a7aad26feb7ee5b800247a93a2f3bb0.png
 ---
 
 ## Tube Top Ten: The Most Viewed Tweets on Social Media

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Twitter's Top Jokesters"
-date: 2024-05-21T03:29:24.063Z
-updated: 2024-05-22T03:29:24.063Z
+date: 2024-06-10T20:38:19.556Z
+updated: 2024-06-11T20:38:19.556Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Twitter's Top Jokesters"
 excerpt: "This Article Describes [New] In 2024, Twitter's Top Jokesters"
 keywords: "Twitter Humor Stars,Jokester Tweets Rise,Laughter on Twitter,Social Media Funny,Comedy Tweet Kings,Twitters' Top Comics,Meme Makers on Twitter"
-thumbnail: https://www.lifewire.com/thmb/KMEogKOuBs--nRX9aV9hudENKzQ=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/iStock-493217440-59f8f005054ad90010327362.png
+thumbnail: https://thmb.techidaily.com/128652f3635b5c02571aebd32ea42bdf5de3d8228fe08a4a4993ce8bcc5b8b84.png
 ---
 
 ## Twitter's Top Jokesters

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  TweetTub  IOS App for Fetching Twitter Vids\""
-date: 2024-05-21T04:36:04.828Z
-updated: 2024-05-22T04:36:04.828Z
+date: 2024-06-10T20:38:26.896Z
+updated: 2024-06-11T20:38:26.896Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: TweetTub: IOS App for Fetching Twitter Vids\""
 excerpt: "\"This Article Describes [New] 2024 Approved: TweetTub: IOS App for Fetching Twitter Vids\""
 keywords: "IOS TweetVid App,Twitter Video Downloader,TweetTube iOS App,Fetch Twitter Videos,Mobile Twitter Viewer,Streaming TwitVids iOS,IPhone/iPad Social Feed Reader"
-thumbnail: https://www.lifewire.com/thmb/lPMj5TBQ17ELvQCvU7sXIvRYnnA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/tvmonitor01-97c662b1359f4c06893ce1fb2381e706.jpg
+thumbnail: https://thmb.techidaily.com/c616a530c3b86047af7fee8d712f3caf3cb46a3e47132cccfb907573c9519566.jpg
 ---
 
 ## TweetTub: IOS App for Fetching Twitter Vids
