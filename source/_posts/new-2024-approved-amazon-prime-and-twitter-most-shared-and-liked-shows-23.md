@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Amazon Prime and Twitter  Most Shared & Liked Shows, '23\""
-date: 2024-05-21T02:37:24.484Z
-updated: 2024-05-22T02:37:24.484Z
+date: 2024-06-19T21:45:11.618Z
+updated: 2024-06-20T21:45:11.619Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Amazon Prime and Twitter: Most Shared & Liked Shows, '23\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Amazon Prime and Twitter: Most Shared & Liked Shows, '23\""
 keywords: "\"Amazon Prime TV,Twitter Popular Shows,2023 Top Series,Prime Viewers Favorites,Streaming Show Trends,Prime & Twitter Hits,Best-Liked Prime Shows\""
-thumbnail: https://www.lifewire.com/thmb/oUsuZ8YSqdbEK9Z30gubHVa5QNI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-12489005711-a34c10ab34b54fec94a92bf181c0f456.jpg
+thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5c8519728e8db299bf3f1234.jpg
 ---
 
 ## Amazon Prime and Twitter: Most Shared & Liked Shows, '23

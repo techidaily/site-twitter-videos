@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Transforming Tweets Into Audio-Based Archives\""
-date: 2024-05-21T04:43:26.803Z
-updated: 2024-05-22T04:43:26.803Z
+date: 2024-06-19T21:45:10.664Z
+updated: 2024-06-20T21:45:10.664Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Transforming Tweets Into Audio-Based Archives\""
 excerpt: "\"This Article Describes 2024 Approved: Transforming Tweets Into Audio-Based Archives\""
 keywords: "Tweet to Audio Archive,Social Media Soundtracks,Twitter Auditory Logs,Audio Tweet Preservation,Transcript to Audio Conversion,Online Tweets as Recordings,Tweeting for Audio Archiving"
-thumbnail: https://www.lifewire.com/thmb/CYuMInxhqGfsz5AC53n9L4-L5n8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/chris-briggs-Rr6KMv_NYog-unsplash-ca2d5c709f434b72a9e61f973e2edf69.jpg
+thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b542178679b34754816329310d98db4.jpg
 ---
 
 ## Transforming Tweets Into Audio-Based Archives

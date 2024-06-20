@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, TweetVidSoundscape  Instant Video-to-Sound\""
-date: 2024-05-21T04:24:11.840Z
-updated: 2024-05-22T04:24:11.840Z
+date: 2024-06-19T21:45:08.652Z
+updated: 2024-06-20T21:45:08.652Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, TweetVidSoundscape: Instant Video-to-Sound\""
 excerpt: "\"This Article Describes [Updated] In 2024, TweetVidSoundscape: Instant Video-to-Sound\""
 keywords: "\"Sound to Video Conversion,Instant Audio Extraction,Video Tweet Synthesis,Quick Soundscape Creation,Vid-Sonic Transformation,Direct Audio From Video,Immediate Sound Mapping\""
-thumbnail: https://www.lifewire.com/thmb/wnN-qVO61jMEVKBE1HStiKTk2xY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/lg-channels-guide-1800-x-0f720f6afeb842c299c88baa42f3bd88.jpg
+thumbnail: https://thmb.techidaily.com/3d4f10ff7575c64862599f681c5c76c2a7860b5686d5a4ad72e83eea7dc08de2.jpg
 ---
 
 ## TweetVidSoundscape: Instant Video-to-Sound

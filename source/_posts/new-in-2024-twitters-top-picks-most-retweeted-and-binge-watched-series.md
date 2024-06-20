@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Twitters' Top Picks  Most Retweeted & Binge-Watched Series\""
-date: 2024-05-21T04:06:05.318Z
-updated: 2024-05-22T04:06:05.318Z
+date: 2024-06-19T21:45:14.769Z
+updated: 2024-06-20T21:45:14.769Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Twitters' Top Picks: Most Retweeted & Binge-Watched Series\""
 excerpt: "\"This Article Describes [New] In 2024, Twitters' Top Picks: Most Retweeted & Binge-Watched Series\""
 keywords: "\"Top Twitter Trends,Viral Tweets Series,Binge-Watching Hits,Retweeting Best Shows,Popular TV Shows Twitch,Social Media Viewers,Shared Showlists Online\""
-thumbnail: https://www.lifewire.com/thmb/ir-tdkJhetInDNhHCkfbZa8f19M=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Flack-6b3c3167132c467db22bae39689c44ef.jpg
+thumbnail: https://thmb.techidaily.com/918ad49eae4bb09e7bbe637c097999923379261d114b5800bdb87d98b552aa6d.jpg
 ---
 
 ## Twitters' Top Picks: Most Retweeted & Binge-Watched Series

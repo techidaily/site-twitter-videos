@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Tweets to Tomes  The Full Year in Video for 2024\""
-date: 2024-05-21T04:22:39.821Z
-updated: 2024-05-22T04:22:39.821Z
+date: 2024-06-19T21:45:06.325Z
+updated: 2024-06-20T21:45:06.325Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] From Tweets to Tomes: The Full Year in Video for 2024\""
 excerpt: "\"This Article Describes [New] From Tweets to Tomes: The Full Year in Video for 2024\""
 keywords: "Video Content Journey,Social Media to Books,Yearly Digital Storytelling,Video Learning Evolution,Tweets to Text Transformation,Online Educational Growth,Visual Knowledge Progress"
-thumbnail: https://www.lifewire.com/thmb/dyswmYNpv0N5nDaCdhxQ7fAUz7s=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Taylor-Dent-candid-02cfe5d4fc174cd585cfc43cb77b48f7.jpg
+thumbnail: https://thmb.techidaily.com/144ba6c2b445ab473f613c1a9b64b4025f153684504ed90b87c56b4f36e8f03d.jpg
 ---
 
 ## From Tweets to Tomes: The Full Year in Video

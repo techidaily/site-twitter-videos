@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Prime Binge-Worthy Hits  Highest Tweets & View Counts\""
-date: 2024-05-21T02:45:19.068Z
-updated: 2024-05-22T02:45:19.068Z
+date: 2024-06-19T21:45:11.672Z
+updated: 2024-06-20T21:45:11.672Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Prime Binge-Worthy Hits: Highest Tweets & View Counts\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Prime Binge-Worthy Hits: Highest Tweets & View Counts\""
 keywords: "Prime Hit Tracks,Top Tweeted Songs,View Count Chart,Trending Music List,Popular Binge Hits,Viral Song Statistics,High Engagement Melodies"
-thumbnail: https://www.lifewire.com/thmb/AfexZ2-k2mQOT3K5CpxU6ZDxBBU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/outlook-email-laptop-54a6bbf773ea4d67b3714ccbab66d8ed.jpg
+thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2f673e094959a8fdb4cdbd5b.jpg
 ---
 
 ## Prime Binge-Worthy Hits: Highest Tweets & View Counts

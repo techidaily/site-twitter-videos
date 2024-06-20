@@ -1,7 +1,7 @@
 ---
 title: "[New] Linking Up Tweeted Movies and Music on FB Platform"
-date: 2024-05-21T03:00:55.569Z
-updated: 2024-05-22T03:00:55.569Z
+date: 2024-06-19T21:45:01.274Z
+updated: 2024-06-20T21:45:01.274Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Linking Up Tweeted Movies and Music on FB Platform"
 excerpt: "This Article Describes [New] Linking Up Tweeted Movies and Music on FB Platform"
 keywords: "Movie FB Sharing,Tweeted Film Links,Music Tweets Connect,Facebook Media Share,Netflix FB Sync,YouTube FB Integration,Band/Artist FB Updates"
-thumbnail: https://www.lifewire.com/thmb/PrGY8pAgKjzqmXRv8UVAznKJhN8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/mobile-application-of-cloud-storage-471510877-5b1eb0158023b90036f2f175.jpg
+thumbnail: https://thmb.techidaily.com/519c0ecb3a4e958d4703170c89bc9f0f4e206bb0aa2219c94653cd1097dc9a0c.jpg
 ---
 
 ## Linking Up Tweeted Movies and Music on FB Platform

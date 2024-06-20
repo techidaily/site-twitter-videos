@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Tweet-to-Facebook Video Sharing  A 2023 Perspective\""
-date: 2024-05-21T04:17:58.609Z
-updated: 2024-05-22T04:17:58.609Z
+date: 2024-06-19T21:45:02.538Z
+updated: 2024-06-20T21:45:02.538Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Tweet-to-Facebook Video Sharing: A 2023 Perspective\""
 excerpt: "\"This Article Describes [Updated] In 2024, Tweet-to-Facebook Video Sharing: A 2023 Perspective\""
 keywords: "\"Tweet to FB Share,Facebook Video Tweeting,Social Media Video Transfer,YouTube-Facebook Linking,Twitter-FB Video Sharing,2023 Tweet FB Videos,Online Video Crossposting\""
-thumbnail: https://www.lifewire.com/thmb/mDhQu1u6C7xH80NuMlX64UBqcQg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-99308150-060a5046853e43e083e9a358e487211d.jpg
+thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d01a8b699d519ecb10291bd82.jpg
 ---
 
 ## Tweet-to-Facebook Video Sharing: A 2023 Perspective

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Leveraging Past Conversations on Twitter"
-date: 2024-05-21T02:42:16.904Z
-updated: 2024-05-22T02:42:16.904Z
+date: 2024-06-19T21:45:06.836Z
+updated: 2024-06-20T21:45:06.836Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Leveraging Past Conversations on Twitter"
 excerpt: "This Article Describes [Updated] Leveraging Past Conversations on Twitter"
 keywords: "Twitter Chat History Use,Previous Tweets Strategy,Twitter Dialogue Leverage,Past Tweet Engagement Boost,Historical Twitter Interaction,Retweeting Old Discussions,Utilizing Twitter Conversations"
-thumbnail: https://www.lifewire.com/thmb/4tUkHI9DMwB9qvnmAkwvCvX7ps8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GIF-Gallery-Instagram-iPhone-8635408-3bc01cb02a56401883d0b483d91a57f0.jpg
+thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a1cf9aa58c2806ddb93b59d9.jpg
 ---
 
 ## Leveraging Past Conversations on Twitter

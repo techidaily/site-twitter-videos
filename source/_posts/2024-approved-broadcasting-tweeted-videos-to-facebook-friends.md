@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Broadcasting Tweeted Videos to Facebook Friends\""
-date: 2024-05-21T04:25:26.790Z
-updated: 2024-05-22T04:25:26.790Z
+date: 2024-06-19T21:45:03.464Z
+updated: 2024-06-20T21:45:03.464Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Broadcasting Tweeted Videos to Facebook Friends\""
 excerpt: "\"This Article Describes 2024 Approved: Broadcasting Tweeted Videos to Facebook Friends\""
 keywords: "\"Video Broadcasting on FB,Tweeting to FB Friends,Sharing Videos on FB,Live Streaming to FB,Social Media Video Transmission,Cross-Platform Tweet Viewing,Facebook Video Distribution\""
-thumbnail: https://www.lifewire.com/thmb/rg8CHiqfntWuiXPLjddFZ1BByCc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/gopro-2619915_1920-2ca3364339c348e5ba44afb3fa79458b.jpg
+thumbnail: https://thmb.techidaily.com/76a953455d282504d07d30484b3d441976cd7c068fdbe75a38577d96433ea41b.jpg
 ---
 
 ## Broadcasting Tweeted Videos to Facebook Friends

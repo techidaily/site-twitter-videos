@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, MP4 and WebM Creation From Social Media Videos"
-date: 2024-05-21T03:22:04.904Z
-updated: 2024-05-22T03:22:04.904Z
+date: 2024-06-19T21:45:01.390Z
+updated: 2024-06-20T21:45:01.390Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, MP4 and WebM Creation From Social Media Videos"
 excerpt: "This Article Describes [New] In 2024, MP4 and WebM Creation From Social Media Videos"
 keywords: "Social Video Conversion,MP4 WebM Transcoding,Create MP4/WebM Online,Social To MP4 WebM Format,Convert Social Media Videos,WebM From Social Platforms,Transcode Social Media MP4"
-thumbnail: https://www.lifewire.com/thmb/x562yeOMRuW1GNtLKp1-SW2b_FI=/2000x0/filters:no_upscale():max_bytes(150000):strip_icc()/ConnectedCarTech_metamorworks_GettyImages-966859036_CROPPED-a9460403602c4b67a7a8c1acd599c9be.jpg
+thumbnail: https://thmb.techidaily.com/3d0b2d16ee1d6e6a1474c3b5739a00253bf279f4294e6c37548bb9b82e10821e.jpg
 ---
 
 ## MP4 and WebM Creation From Social Media Videos

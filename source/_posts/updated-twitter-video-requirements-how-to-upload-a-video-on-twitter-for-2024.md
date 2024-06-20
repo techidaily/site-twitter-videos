@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Twitter Video Requirements | How to Upload a Video on Twitter for 2024"
-date: 2024-05-21T03:54:07.167Z
-updated: 2024-05-22T03:54:07.167Z
+date: 2024-06-19T21:45:16.137Z
+updated: 2024-06-20T21:45:16.137Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Twitter Video Requirements | How to Upload a Video on Twitter for 2024"
 excerpt: "This Article Describes [Updated] Twitter Video Requirements | How to Upload a Video on Twitter for 2024"
 keywords: "Twitter Video Guide,Uploading Videos Twitter,Twitter Video Standards,Video Posting Twitter,Twitter Video Policy,Share Videos Twitter,Comply with Twitter Video"
-thumbnail: https://www.lifewire.com/thmb/hfQflvBCf7d-XN3Ks-apahbRORg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/is-audible-worth-it-00616437e29b4d108264ba36057bbdde.jpg
+thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59db5ea292ed9c7e8afff15a8.jpg
 ---
 
 ## Twitter Video Requirements | How to Upload a Video on Twitter?

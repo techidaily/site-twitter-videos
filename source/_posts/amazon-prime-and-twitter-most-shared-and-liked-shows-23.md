@@ -1,7 +1,7 @@
 ---
 title: "\"Amazon Prime and Twitter  Most Shared & Liked Shows, '23\""
-date: 2024-05-21T03:48:26.226Z
-updated: 2024-05-22T03:48:26.226Z
+date: 2024-06-19T21:45:16.186Z
+updated: 2024-06-20T21:45:16.186Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Amazon Prime and Twitter: Most Shared & Liked Shows, '23\""
 excerpt: "\"This Article Describes Amazon Prime and Twitter: Most Shared & Liked Shows, '23\""
 keywords: "\"Amazon Prime TV,Twitter Popular Shows,2023 Top Series,Prime Viewers Favorites,Streaming Show Trends,Prime & Twitter Hits,Best-Liked Prime Shows\""
-thumbnail: https://www.lifewire.com/thmb/bTsxVApVGXh_PsUETQFg08xDUKk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/fog-lights-lamps-57ddd24c5f9b58651660ebb1.jpg
+thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8ad26b4b76b8430c1741deb5.jpg
 ---
 
 ## Amazon Prime and Twitter: Most Shared & Liked Shows, '23

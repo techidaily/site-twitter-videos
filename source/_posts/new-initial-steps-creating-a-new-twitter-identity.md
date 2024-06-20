@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Initial Steps  Creating a New Twitter Identity\""
-date: 2024-05-21T04:20:00.462Z
-updated: 2024-05-22T04:20:00.462Z
+date: 2024-06-19T21:45:03.318Z
+updated: 2024-06-20T21:45:03.318Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Initial Steps: Creating a New Twitter Identity\""
 excerpt: "\"This Article Describes [New] Initial Steps: Creating a New Twitter Identity\""
 keywords: "Create Twitter Account,Setup Twitter Profile,Make First Tweet,Customize Twitter Handle,Twitter Username Guide,Establishing Twitter Presence,Starting on Twitter"
-thumbnail: https://www.lifewire.com/thmb/JnBSFSr8YQadpLe99CkaKn6MzEc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/title-c0a673f2ceec4e48bf0388773f3bd360.jpg
+thumbnail: https://thmb.techidaily.com/704c497d76ce3443a342fa34e8883ce74ed2e3eea338695faa58de9221c96a80.jpg
 ---
 
 ## Initial Steps: Creating a New Twitter Identity

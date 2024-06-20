@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Memetic Mayhem  The 20 Most Shared Gems\""
-date: 2024-05-21T03:25:15.650Z
-updated: 2024-05-22T03:25:15.650Z
+date: 2024-06-19T21:45:03.801Z
+updated: 2024-06-20T21:45:03.801Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Memetic Mayhem: The 20 Most Shared Gems\""
 excerpt: "\"This Article Describes In 2024, Memetic Mayhem: The 20 Most Shared Gems\""
 keywords: "Memetic Sharing #Gems,Popular Meme Content,Viral Gem Quality,Shared Online Jokes,Highly Retweeted Gems,Collectible Meme Finds,Trending Meme Topics"
-thumbnail: https://www.lifewire.com/thmb/3zX1wSLUgOOUtfE8_n3UOx3eeL8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Amazon-Fire-Tablet-vs-iPad-c7412c25c83b4ac5b393596789f0e716.jpg
+thumbnail: https://thmb.techidaily.com/2cb259c465a86a9d87c2ab8ed232a243225880491ec4b7484688140a5b3e77f5.jpg
 ---
 
 ## Memetic Mayhem: The 20 Most Shared Gems

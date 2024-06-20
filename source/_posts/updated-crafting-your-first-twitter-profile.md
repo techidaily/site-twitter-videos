@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Your First Twitter Profile"
-date: 2024-05-21T04:19:28.927Z
-updated: 2024-05-22T04:19:28.927Z
+date: 2024-06-19T21:45:15.138Z
+updated: 2024-06-20T21:45:15.138Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Crafting Your First Twitter Profile"
 excerpt: "This Article Describes [Updated] Crafting Your First Twitter Profile"
 keywords: "\"Create Twitter Account,Newbie Twitterer Guide,Twitter Profile Basics,Twitter Identity Craft,First-Time Tweeter Tips,Startup on Twitter,Twitter Profiles for Beginners\""
-thumbnail: https://www.lifewire.com/thmb/8oicNooLZFFEIEfOpDSnixwP644=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/IMG_5800iPhoneXmockup-d101ba5d46e44d2b8180911426f30d21.jpg
+thumbnail: https://thmb.techidaily.com/250f73dd4b9929867a630f9b8f32aa45e2b59d5cab96411e7883925b75cba9fc.jpg
 ---
 
 ## Crafting Your First Twitter Profile

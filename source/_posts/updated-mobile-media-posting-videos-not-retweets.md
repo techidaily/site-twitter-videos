@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mobile Media Posting  Videos, Not Retweets\""
-date: 2024-05-21T02:42:23.243Z
-updated: 2024-05-22T02:42:23.243Z
+date: 2024-06-19T21:45:12.483Z
+updated: 2024-06-20T21:45:12.483Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Mobile Media Posting: Videos, Not Retweets\""
 excerpt: "\"This Article Describes [Updated] Mobile Media Posting: Videos, Not Retweets\""
 keywords: "\"Mobile Video Sharing,Non-Retweet Content,Mobile Streaming Media,Vids Over Tweets (Videos over Retweets),Direct Video Posts,Short Form Videos,Efficient Video Posting\""
-thumbnail: https://www.lifewire.com/thmb/QSiLR5rJcgBIPbrPOhr5HUmzqhs=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/iPhone-vs-Android-e8d8c3a54ed04d15863a5953a63202a0.jpg
+thumbnail: https://thmb.techidaily.com/d8e6bf944e6c6a44077570ad300a1fab74b99e0c0b2c51be60c5944e75e29423.jpg
 ---
 
 ## Mobile Media Posting: Videos, Not Retweets

@@ -1,7 +1,7 @@
 ---
 title: "\"Live and Learn  Twitter Video Chronicles of '23 for 2024\""
-date: 2024-05-21T04:43:05.859Z
-updated: 2024-05-22T04:43:05.859Z
+date: 2024-06-19T21:45:09.575Z
+updated: 2024-06-20T21:45:09.575Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Live and Learn: Twitter Video Chronicles of '23 for 2024\""
 excerpt: "\"This Article Describes Live and Learn: Twitter Video Chronicles of '23 for 2024\""
 keywords: "TwitterVideos2023,LiveTweetsChronicle,SocialLearningTrends,DigitalEducationJourney,YearInTwitterDocs,OnlineSocialLessons,RealTimeTwitterStories"
-thumbnail: https://www.lifewire.com/thmb/MD-H4Qz6P_9lnelH34Q5w394kTc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/pathra-e4d704c32b464fae85640612f626dd22.jpg
+thumbnail: https://thmb.techidaily.com/60aeb73e6646ca7cba89b069f503754c9115c11cb30cdb412a437151bb1d88f5.jpg
 ---
 
 ## Live and Learn: Twitter Video Chronicles of '23

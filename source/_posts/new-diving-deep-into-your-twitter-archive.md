@@ -1,7 +1,7 @@
 ---
 title: "[New] Diving Deep Into Your Twitter Archive"
-date: 2024-05-21T02:47:35.541Z
-updated: 2024-05-22T02:47:35.541Z
+date: 2024-06-19T21:45:12.373Z
+updated: 2024-06-20T21:45:12.373Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Diving Deep Into Your Twitter Archive"
 excerpt: "This Article Describes [New] Diving Deep Into Your Twitter Archive"
 keywords: "Twitter Archive Exploration,History Dive on Twitter,Analyzing Past Tweets,Archive Data Insights,Tweet Retrospection Study,Social Media Timeline Analysis,Digital Footprint Review"
-thumbnail: https://www.lifewire.com/thmb/2YUZkeZeNhj8vMsPRNrkpXcGtyw=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/ImagefromiOS-f5524448807246938b5772ae2e2a0224.png
+thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652a5ccde76155c26629dae8fb.png
 ---
 
 ## Diving Deep Into Your Twitter Archive

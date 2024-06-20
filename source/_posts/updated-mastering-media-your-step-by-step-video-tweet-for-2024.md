@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Media  Your Step-by-Step Video Tweet for 2024\""
-date: 2024-05-21T03:34:12.058Z
-updated: 2024-05-22T03:34:12.058Z
+date: 2024-06-19T21:45:07.352Z
+updated: 2024-06-20T21:45:07.352Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Mastering Media: Your Step-by-Step Video Tweet for 2024\""
 excerpt: "\"This Article Describes [Updated] Mastering Media: Your Step-by-Step Video Tweet for 2024\""
 keywords: "\"Video Tweet Basics,Content Creation Tips,Media Mastery Guide,Social Media Videos,Engaging Video Strategies,Tweet Optimization for Video,Step-by-Step Media Techniques\""
-thumbnail: https://www.lifewire.com/thmb/2AEKNpBpX9c5HV8uIuJyj9KTOVE=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-slack-reminders-4843714-11-5406c11a86b94cd3a435ed4b270b512b.jpg
+thumbnail: https://thmb.techidaily.com/7143579495d0f62e1a2cda12fd626d9036d87a576b32c356f772aa95549b6f82.jpg
 ---
 
 ## Mastering Media: Your Step-by-Step Video Tweet
