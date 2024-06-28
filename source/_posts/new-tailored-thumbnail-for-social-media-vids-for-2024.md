@@ -1,7 +1,7 @@
 ---
 title: "[New] Tailored Thumbnail for Social Media Vids for 2024"
-date: 2024-05-21T02:51:59.757Z
-updated: 2024-05-22T02:51:59.757Z
+date: 2024-06-27T22:02:03.642Z
+updated: 2024-06-28T22:02:03.642Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Tailored Thumbnail for Social Media Vids for 2024"
 excerpt: "This Article Describes [New] Tailored Thumbnail for Social Media Vids for 2024"
 keywords: "Thumbnail Optimization,Social Video Boost,Customized Vid Thumbnails,Social Media Imagery,Engaging Vid Heads,Tailored Vids Promo,Image Impact for Videos"
-thumbnail: https://www.lifewire.com/thmb/jgYC2LQD_DfpMsJmfadVTJNxl5c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Strong-AI-vs-Weak-AI-d04f84282874473da514a4e4ad8b8690.jpg
+thumbnail: https://thmb.techidaily.com/65d11e70a3e2b524202510534160699ecec295d81962cec51e81800c7f637654.jpg
 ---
 
 ## Tailored Thumbnail for Social Media Vids

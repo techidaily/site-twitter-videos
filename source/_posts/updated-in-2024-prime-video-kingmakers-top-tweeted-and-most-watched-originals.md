@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Prime Video Kingmakers  Top Tweeted & Most Watched Originals\""
-date: 2024-05-21T03:46:55.047Z
-updated: 2024-05-22T03:46:55.047Z
+date: 2024-06-27T22:02:09.560Z
+updated: 2024-06-28T22:02:09.560Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Prime Video Kingmakers: Top Tweeted & Most Watched Originals\""
 excerpt: "\"This Article Describes [Updated] In 2024, Prime Video Kingmakers: Top Tweeted & Most Watched Originals\""
 keywords: "Prime Video Originals,Popular TV Shows,Streaming Hits,Video Kingpins,Trending Series,Most Viewed Content,Top Tweets Reels"
-thumbnail: https://www.lifewire.com/thmb/aAfu0U3ot2I6BH2mrIgJWPDLpAE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/streamhallmarkchannel-fbbd67185b124b4d8187dd8d015ad7cc.jpg
+thumbnail: https://thmb.techidaily.com/212e21d96bc4724d21a24c1110e599b63bc2c397e891bb1e1f9fc06be1f08b00.jpg
 ---
 
 ## Prime Video Kingmakers: Top Tweeted & Most Watched Originals

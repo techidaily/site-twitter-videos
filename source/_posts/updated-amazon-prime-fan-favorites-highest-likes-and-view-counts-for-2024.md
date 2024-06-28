@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Amazon Prime Fan Favorites  Highest Likes & View Counts for 2024\""
-date: 2024-05-21T02:31:42.082Z
-updated: 2024-05-22T02:31:42.082Z
+date: 2024-06-27T22:02:10.363Z
+updated: 2024-06-28T22:02:10.363Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Amazon Prime Fan Favorites: Highest Likes & View Counts for 2024\""
 excerpt: "\"This Article Describes [Updated] Amazon Prime Fan Favorites: Highest Likes & View Counts for 2024\""
 keywords: "\"Amazon Prime Top Picks,Popular Prime Shows,Prime Most-Watched Series,Prime Favored Titles,Highest Prime Views,Prime Liked Programs,Prime Trending Content\""
-thumbnail: https://www.lifewire.com/thmb/fglQbPvp_9RtlOLpfs07tFE5g3U=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/is-zoom-down-or-is-it-you-4802086-f3ab10eb11874291adac62d146e14e94.jpg
+thumbnail: https://thmb.techidaily.com/ce1836626dd4307cd42ffb8054ede87619858d1bf1634f1f32732c80e0c8c7aa.jpg
 ---
 
 ## Amazon Prime Fan Favorites: Highest Likes & View Counts

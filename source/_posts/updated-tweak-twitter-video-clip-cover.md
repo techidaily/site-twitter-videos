@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tweak Twitter Video Clip Cover"
-date: 2024-05-21T03:14:06.821Z
-updated: 2024-05-22T03:14:06.821Z
+date: 2024-06-27T22:02:04.103Z
+updated: 2024-06-28T22:02:04.103Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Tweak Twitter Video Clip Cover"
 excerpt: "This Article Describes [Updated] Tweak Twitter Video Clip Cover"
 keywords: "Tweet Video Covers,Twitter Video Hats,Short Twitter Images,Quick Video Tweets,Micro Video Tweets,Twitter Video Edits,Video Cover Tweets"
-thumbnail: https://www.lifewire.com/thmb/gkHTDPF5tRElmHvxvKCu-VDPyhI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/should-you-buy-an-apple-tv-5248431-f35331ef36b749b9895a2c1e3705cf22.jpg
+thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06feae865a9a356c9f8b695aec3.jpg
 ---
 
 ## Tweak Twitter Video Clip Cover

@@ -1,7 +1,7 @@
 ---
 title: "\"Prime Picks  Top Tweets for Must-See Original Series\""
-date: 2024-05-21T02:34:47.147Z
-updated: 2024-05-22T02:34:47.147Z
+date: 2024-06-27T22:02:11.638Z
+updated: 2024-06-28T22:02:11.638Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Prime Picks: Top Tweets for Must-See Original Series\""
 excerpt: "\"This Article Describes Prime Picks: Top Tweets for Must-See Original Series\""
 keywords: "\"Original Series Highlights,Best TV Shows Premieres,Prime Series Discoveries,Critic's Top Show Picks,Must-See Originals,Premiere Pick Top Tweets,Exclusive Show Recommendations\""
-thumbnail: https://www.lifewire.com/thmb/Ngm9bpatigonc3AlRSUUdm9EIUQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/001_the-best-teen-movies-on-netflix-october-2023-5104880-3c4ee21786b64df693bfeebd65701d8e.jpg
+thumbnail: https://thmb.techidaily.com/06629510e11e9d29470adf181e231bb23d34ab4b20d9291b76fb465837bc25f3.jpg
 ---
 
 ## Prime Picks: Top Tweets for Must-See Original Series

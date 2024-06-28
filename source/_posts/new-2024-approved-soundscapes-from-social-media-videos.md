@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Soundscapes From Social Media Videos\""
-date: 2024-05-21T04:23:40.475Z
-updated: 2024-05-22T04:23:40.475Z
+date: 2024-06-27T22:02:03.354Z
+updated: 2024-06-28T22:02:03.354Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Soundscapes From Social Media Videos\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Soundscapes From Social Media Videos\""
 keywords: "Social Video Soundscape,Audio in Social Media,Media Soundtracks,Online Video Echoes,Viral Audio Patterns,Digital Soundscapes,Social Media Audiovisual"
-thumbnail: https://www.lifewire.com/thmb/8soRgdNYSpjhrbUPLjYCDEKZVSs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/nordwood-themes-q8U1YgBaRQk-unsplash-7fd170adeba1423bae09282ffbe74df4.jpg
+thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977aace37b8f0906719738cd6b.jpg
 ---
 
 ## Soundscapes From Social Media Videos

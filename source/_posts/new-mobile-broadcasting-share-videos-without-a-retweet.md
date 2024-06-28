@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mobile Broadcasting  Share Videos without a Retweet\""
-date: 2024-05-21T04:20:19.151Z
-updated: 2024-05-22T04:20:19.151Z
+date: 2024-06-27T22:02:09.287Z
+updated: 2024-06-28T22:02:09.287Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Mobile Broadcasting: Share Videos without a Retweet\""
 excerpt: "\"This Article Describes [New] Mobile Broadcasting: Share Videos without a Retweet\""
 keywords: "\"Mobile Video Sharing,Non-Retweet Broadcasts,Live Streaming Apps,Direct Video Sending,Unretweeted Media Transfer,Instant Video Dispatch,Social Media Video Upload\""
-thumbnail: https://www.lifewire.com/thmb/c-HiQRAVm9nDFof07d8xf1Oxx6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/smartphone_laptop_mouse-5a4d80e37bb2830037db9ce7.jpg
+thumbnail: https://thmb.techidaily.com/d31e8723e03acf63385b6b2673e7168286d60ba0c51b363448b469a8ffe4640d.jpg
 ---
 
 ## Mobile Broadcasting: Share Videos without a Retweet

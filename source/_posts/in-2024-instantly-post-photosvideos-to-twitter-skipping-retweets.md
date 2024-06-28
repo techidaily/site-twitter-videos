@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Instantly Post Photos/Videos to Twitter, Skipping Retweets"
-date: 2024-05-21T03:31:03.706Z
-updated: 2024-05-22T03:31:03.706Z
+date: 2024-06-27T22:02:05.721Z
+updated: 2024-06-28T22:02:05.721Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes In 2024, Instantly Post Photos/Videos to Twitter, Skipping Retweets"
 excerpt: "This Article Describes In 2024, Instantly Post Photos/Videos to Twitter, Skipping Retweets"
 keywords: "\"Instant Twitter Sharing,Direct Video Tweeting,Skip Retweet Upload,Quick Image Tweet,Photo Post Without Retweet,Video to Twitter Immediate,Non-Retweet Media Share\""
-thumbnail: https://www.lifewire.com/thmb/FlIls8hU_ed8pQBtnCcFKYCJhVE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/005_how-to-fix-it-when-your-chromebook-won-t-turn-on-4802489-a317e6cdd7f443b38115814a3507495f.jpg
+thumbnail: https://thmb.techidaily.com/cc0866b80e38550ff25e3009719b526ea4484f9d37497b921eea5c41a1afe3dd.jpg
 ---
 
 ## Instantly Post Photos/Videos to Twitter, Skipping Retweets

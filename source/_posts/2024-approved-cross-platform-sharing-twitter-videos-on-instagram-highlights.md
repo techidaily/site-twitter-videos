@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Cross-Platform Sharing  Twitter Videos on Instagram Highlights\""
-date: 2024-05-21T04:19:29.824Z
-updated: 2024-05-22T04:19:29.824Z
+date: 2024-06-27T22:02:08.396Z
+updated: 2024-06-28T22:02:08.396Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Cross-Platform Sharing: Twitter Videos on Instagram Highlights\""
 excerpt: "\"This Article Describes 2024 Approved: Cross-Platform Sharing: Twitter Videos on Instagram Highlights\""
 keywords: "TwtVidToIggLims,IggHighlitsTwitter,CrossPltrSharTwitv,ShareTwittVidIGG,TwitterIGGVideo,InstaIGGVideoltv,PlatformCrossIGGV"
-thumbnail: https://www.lifewire.com/thmb/XejxsxntCd2RLvwYfrDEHdRW_2w=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/1_hPajmPO378WfVVcIWXmg2A-9efd24158d6844baa9cb2a2ad16adc1c.jpeg
+thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608bef33c5c37cef1bfce8aa66b0.jpeg
 ---
 
 ## Cross-Platform Sharing: Twitter Videos on Instagram Highlights

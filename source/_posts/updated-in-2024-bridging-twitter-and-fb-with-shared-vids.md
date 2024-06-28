@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Bridging Twitter and FB with Shared Vids"
-date: 2024-05-21T03:08:47.307Z
-updated: 2024-05-22T03:08:47.307Z
+date: 2024-06-27T22:02:15.290Z
+updated: 2024-06-28T22:02:15.290Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Bridging Twitter and FB with Shared Vids"
 excerpt: "This Article Describes [Updated] In 2024, Bridging Twitter and FB with Shared Vids"
 keywords: "\"Video Sharing Bridges,Social Media Integration,Cross-Platform Videos,Facebook to Twitter Links,Shared Content Strategy,Media Convergence Online,Platform Connectivity\""
-thumbnail: https://www.lifewire.com/thmb/E-bplQlBHLm0L2wSA_D5laHXhBM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-meet-camera-not-working-how-to-fix-the-problem-5201889-1-266a66056f7f4b3e945b24c0de3a729b.jpg
+thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468dfb7fb68a3c7508632db1da6.jpg
 ---
 
 ## Bridging Twitter and FB with Shared Vids

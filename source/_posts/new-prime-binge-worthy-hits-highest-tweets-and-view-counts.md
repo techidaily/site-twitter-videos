@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Prime Binge-Worthy Hits  Highest Tweets & View Counts\""
-date: 2024-05-21T03:19:31.529Z
-updated: 2024-05-22T03:19:31.529Z
+date: 2024-06-27T22:02:08.578Z
+updated: 2024-06-28T22:02:08.578Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Prime Binge-Worthy Hits: Highest Tweets & View Counts\""
 excerpt: "\"This Article Describes [New] Prime Binge-Worthy Hits: Highest Tweets & View Counts\""
 keywords: "Prime Hit Tracks,Top Tweeted Songs,View Count Chart,Trending Music List,Popular Binge Hits,Viral Song Statistics,High Engagement Melodies"
-thumbnail: https://www.lifewire.com/thmb/n9iwgsUaqixGCfd3WwG5mVHUeCM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-smart-hub-home-screen-amazon-a878f50f6134442b843b7678d5356cae.jpg
+thumbnail: https://thmb.techidaily.com/6e5f95b25124810982ee054b31aff132061c491b9479b9ba216941d7d9600153.jpg
 ---
 
 ## Prime Binge-Worthy Hits: Highest Tweets & View Counts

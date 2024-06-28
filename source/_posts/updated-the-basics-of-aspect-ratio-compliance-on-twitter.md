@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Basics of Aspect Ratio Compliance on Twitter"
-date: 2024-05-21T03:20:01.715Z
-updated: 2024-05-22T03:20:01.715Z
+date: 2024-06-27T22:02:07.329Z
+updated: 2024-06-28T22:02:07.329Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] The Basics of Aspect Ratio Compliance on Twitter"
 excerpt: "This Article Describes [Updated] The Basics of Aspect Ratio Compliance on Twitter"
 keywords: "Tweet Aspect Ratios,Twitter Dimensioning,Profile Layout Twitter,Social Media Resolution,Image Format Tweets,Compliance Ratio Twitter,Adherence to Aspects"
-thumbnail: https://www.lifewire.com/thmb/bMOUH6OkpRF5_MrN2lrqa_1fgSk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-700130756-5bc55813c9e77c00516913eb.jpg
+thumbnail: https://thmb.techidaily.com/aa39b0c8b4b398091d4035d320c4791ea5b2efa57b569d8f39427b85787484d2.jpg
 ---
 
 ## The Basics of Aspect Ratio Compliance on Twitter
@@ -98,7 +98,7 @@ The first 3 seconds of your video should always carry the main message you inten
 
 Employ the same strategy for your tweet copy and try to keep it concise and crisp and stay below 100 characters.
 
-![ twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
+![twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
 
 ### 2\. Include Product and People
 
@@ -239,7 +239,7 @@ The first 3 seconds of your video should always carry the main message you inten
 
 Employ the same strategy for your tweet copy and try to keep it concise and crisp and stay below 100 characters.
 
-![ twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
+![twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
 
 ### 2\. Include Product and People
 
@@ -380,7 +380,7 @@ The first 3 seconds of your video should always carry the main message you inten
 
 Employ the same strategy for your tweet copy and try to keep it concise and crisp and stay below 100 characters.
 
-![ twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
+![twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
 
 ### 2\. Include Product and People
 
@@ -521,7 +521,7 @@ The first 3 seconds of your video should always carry the main message you inten
 
 Employ the same strategy for your tweet copy and try to keep it concise and crisp and stay below 100 characters.
 
-![ twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
+![twitter video file size](https://images.wondershare.com/filmora/article-images/2022/02/twitter-aspe%20ct-ratio-6.JPG)
 
 ### 2\. Include Product and People
 

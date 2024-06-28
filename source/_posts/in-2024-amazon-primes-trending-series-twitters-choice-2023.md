@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Amazon Prime's Trending Series - Twitter's Choice, 2023\""
-date: 2024-05-21T02:35:03.245Z
-updated: 2024-05-22T02:35:03.245Z
+date: 2024-06-27T22:02:07.672Z
+updated: 2024-06-28T22:02:07.672Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Amazon Prime's Trending Series - Twitter's Choice, 2023\""
 excerpt: "\"This Article Describes In 2024, Amazon Prime's Trending Series - Twitter's Choice, 2023\""
 keywords: "Amazon Prime Showcase,Prime Trending Twit,Amazon Prime Hitlist,Prime Popular Tweets,Prime Series Topsys,Prime Top Tweets '23,Prime Twitter Winner"
-thumbnail: https://www.lifewire.com/thmb/CAyu-hL_7SmLC0EkFP9Yz_OwnP0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/car-block-heater-frozen-north-534833-e1ea6a5455884f7b85b7ed8c6ba902e8.png
+thumbnail: https://thmb.techidaily.com/7e37922976a0cd02bd45d34c10fef6f069d63ae07942af07cd489ff374cb4abd.png
 ---
 
 ## Amazon Prime's Trending Series - Twitter's Choice, 2023

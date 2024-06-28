@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Prime Picks  Top Tweets for Must-See Original Series for 2024\""
-date: 2024-05-21T04:44:01.635Z
-updated: 2024-05-22T04:44:01.635Z
+date: 2024-06-27T22:02:08.855Z
+updated: 2024-06-28T22:02:08.855Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Prime Picks: Top Tweets for Must-See Original Series for 2024\""
 excerpt: "\"This Article Describes [Updated] Prime Picks: Top Tweets for Must-See Original Series for 2024\""
 keywords: "\"Original Series Highlights,Best TV Shows Premieres,Prime Series Discoveries,Critic's Top Show Picks,Must-See Originals,Premiere Pick Top Tweets,Exclusive Show Recommendations\""
-thumbnail: https://www.lifewire.com/thmb/oeyN8eHb8HKFhUFqsSoqQGpPusA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-pixel-tablet-166439ac382c41c2b08b056c16d189ae.jpg
+thumbnail: https://thmb.techidaily.com/b918b2416ccc3c3bc24e5dbb4922efd59cd6316c83a82113344d8ae306f1223c.jpg
 ---
 
 ## Prime Picks: Top Tweets for Must-See Original Series

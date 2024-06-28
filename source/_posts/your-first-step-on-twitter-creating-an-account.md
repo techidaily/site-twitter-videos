@@ -1,7 +1,7 @@
 ---
 title: "\"Your First Step on Twitter  Creating an Account\""
-date: 2024-05-21T03:30:18.635Z
-updated: 2024-05-22T03:30:18.635Z
+date: 2024-06-27T22:02:04.194Z
+updated: 2024-06-28T22:02:04.194Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Your First Step on Twitter: Creating an Account\""
 excerpt: "\"This Article Describes Your First Step on Twitter: Creating an Account\""
 keywords: "Twitter Registration Guide,Setting Up New Twitter,Signing Into Twitter,Twitter Account Creation,Beginning with Twitter,Joining Twitter Basics,Start on Twitter Platform"
-thumbnail: https://www.lifewire.com/thmb/4MzQVD7hvg3LqrJguvtCUGY_xnA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-990620130-ec2a7076e3f043bfa4f540b72d2034c6.jpg
+thumbnail: https://thmb.techidaily.com/122b9bb2737079496d6a2d69ef766a3b3b8a091bd4f5906c27990e96a64caabf.jpg
 ---
 
 ## Your First Step on Twitter: Creating an Account
