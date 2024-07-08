@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Secrets to Effective Targeted Tweets for 2024"
-date: 2024-05-21T02:33:10.403Z
-updated: 2024-05-22T02:33:10.403Z
+date: 2024-07-07T03:54:53.967Z
+updated: 2024-07-08T03:54:53.967Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Secrets to Effective Targeted Tweets for 2024"
 excerpt: "This Article Describes [Updated] Secrets to Effective Targeted Tweets for 2024"
 keywords: "\"Tweet Strategies,Engaging Hashtags,Twitter Ads Optimization,Audience-Focused Messages,Content SEO on Twitter,Direct Message Impact,Viral Tweeting Techniques\""
-thumbnail: https://www.lifewire.com/thmb/_zRh-AGrdlf_tw2GGE_lGwA-SOU=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/MonicaKang-68f114568a6b4ef98603bc5154109387.jpg
+thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf760faf0d85aa4162c1de5de.jpg
 ---
 
 ## Secrets to Effective Targeted Tweets
@@ -81,7 +81,7 @@ thumbnail: https://www.lifewire.com/thmb/_zRh-AGrdlf_tw2GGE_lGwA-SOU=/400x300/fi
 
 #### Step 1
 
-![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg)
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
@@ -171,7 +171,7 @@ Follow @Ollie Mattison
 
 #### Step 1
 
-![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg)
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
@@ -261,7 +261,7 @@ Follow @Ollie Mattison
 
 #### Step 1
 
-![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg)
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
@@ -351,7 +351,7 @@ Follow @Ollie Mattison
 
 #### Step 1
 
-![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg)
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 

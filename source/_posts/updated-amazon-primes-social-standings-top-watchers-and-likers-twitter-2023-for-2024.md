@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Amazon Prime's Social Standings - Top Watchers and Likers Twitter, 2023 for 2024\""
-date: 2024-05-21T04:03:27.019Z
-updated: 2024-05-22T04:03:27.019Z
+date: 2024-07-07T03:54:58.266Z
+updated: 2024-07-08T03:54:58.266Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Amazon Prime's Social Standings - Top Watchers and Likers Twitter, 2023 for 2024\""
 excerpt: "\"This Article Describes [Updated] Amazon Prime's Social Standings - Top Watchers and Likers Twitter, 2023 for 2024\""
 keywords: "Amazon Prime Trends,Prime Watchers List,Prime Popular Tweets,Amazon Social Ranking,Prime Top Followers,Prime Liked Content,Prime Twitter Insights"
-thumbnail: https://www.lifewire.com/thmb/4ql928fMUKkO_EPWrgDkfeEcVtE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/family-hanging-out-watching-videos-online-1166432791-309c6f7ac8cb4cc99875db5a77fd6f35.jpg
+thumbnail: https://thmb.techidaily.com/d208efb0315dc3e80b4d5a8f4b751d30ee62ca28dd2151c249d15e615be6f528.jpg
 ---
 
 ## Amazon Prime's Social Standings - Top Watchers and Likers Twitter, 2023

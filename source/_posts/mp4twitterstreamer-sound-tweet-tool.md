@@ -1,7 +1,7 @@
 ---
 title: "\"MP4TwitterStreamer  Sound Tweet Tool\""
-date: 2024-05-21T02:46:56.236Z
-updated: 2024-05-22T02:46:56.236Z
+date: 2024-07-07T03:54:54.636Z
+updated: 2024-07-08T03:54:54.636Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes MP4TwitterStreamer: Sound Tweet Tool\""
 excerpt: "\"This Article Describes MP4TwitterStreamer: Sound Tweet Tool\""
 keywords: "MP4 Streaming,Twitter Tweets,Sound Tweets,Audio Social,Tweet Media,Online Share,Soundcasts"
-thumbnail: https://www.lifewire.com/thmb/zI28yjfnv7eQCZlBOqEIm_iplMU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-galaxy-s24-ultra-d98962629d6f44f1ba48f09829e604eb.jpeg
+thumbnail: https://thmb.techidaily.com/4278a11dc73e1c0d6c218af281491c5ebbfcb593f38d324f2ddde851d89b6bd2.jpeg
 ---
 
 ## MP4TwitterStreamer: Sound Tweet Tool

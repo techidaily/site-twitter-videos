@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Accessing Your Twitter History\""
-date: 2024-05-21T02:37:24.064Z
-updated: 2024-05-22T02:37:24.064Z
+date: 2024-07-07T03:54:51.770Z
+updated: 2024-07-08T03:54:51.770Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Accessing Your Twitter History\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Accessing Your Twitter History\""
 keywords: "Twitter History Access,View Past Tweets,Twitter Archive Entry,Retrieve Old Tweet Data,Check Previous Posts Twitter,Inspect Historical Tweets,Explore Earlier Tweets"
-thumbnail: https://www.lifewire.com/thmb/BC6OeiwkBymr7dc4CcbkqAYWOxw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1251892298-4a6a303ae72a47ff807e5d0b7a9e899a.jpg
+thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d94da77b1f5b8b2204a1d875.jpg
 ---
 
 ## Accessing Your Twitter History

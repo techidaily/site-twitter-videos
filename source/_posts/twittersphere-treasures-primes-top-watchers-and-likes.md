@@ -1,7 +1,7 @@
 ---
 title: "\"Twittersphere Treasures  Prime’s Top Watchers & Likes\""
-date: 2024-05-21T03:48:55.768Z
-updated: 2024-05-22T03:48:55.768Z
+date: 2024-07-07T03:54:53.532Z
+updated: 2024-07-08T03:54:53.532Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Twittersphere Treasures: Prime’s Top Watchers & Likes\""
 excerpt: "\"This Article Describes Twittersphere Treasures: Prime’s Top Watchers & Likes\""
 keywords: "Twitter Enthusiasts,Top Tweet Viewers,Leading Tweeters,Premier Account Followers,Favorite List Keepers,Likes Champions,Trending Thread Observers"
-thumbnail: https://www.lifewire.com/thmb/hjlD_xJQaod7zK94DY2Tyhdp-X0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1088144728-3a9f1bd54e994bfaa4cabea82414202e.jpg
+thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f0746613af42a2c779a9073e228.jpg
 ---
 
 ## Twittersphere Treasures: Prime’s Top Watchers & Likes

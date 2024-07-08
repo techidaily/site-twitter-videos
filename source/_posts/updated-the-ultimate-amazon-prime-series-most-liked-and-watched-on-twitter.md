@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Amazon Prime Series  Most Liked & Watched on Twitter\""
-date: 2024-05-21T02:49:07.919Z
-updated: 2024-05-22T02:49:07.919Z
+date: 2024-07-07T03:54:51.224Z
+updated: 2024-07-08T03:54:51.224Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter\""
 excerpt: "\"This Article Describes [Updated] The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter\""
 keywords: "Prime TV Favorites,Top Prime Shows,Best Prime Originals,Prestigious Prime Content,A+ Prime Series Watch,Twitter's Prime Hits,Popular Prime Episode Views"
-thumbnail: https://www.lifewire.com/thmb/P9BLOm818Wmv2RgfhK_jtXxf4Rk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/178665671_HighRes-56a532a83df78cf77286de1b.jpg
+thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7745911720b5a34076945390.jpg
 ---
 
 ## The Ultimate Amazon Prime Series: Most Liked & Watched on Twitter

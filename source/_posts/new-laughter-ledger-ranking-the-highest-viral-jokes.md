@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Laughter Ledger  Ranking the Highest Viral Jokes\""
-date: 2024-05-21T03:19:15.586Z
-updated: 2024-05-22T03:19:15.586Z
+date: 2024-07-07T03:54:59.733Z
+updated: 2024-07-08T03:54:59.733Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Laughter Ledger: Ranking the Highest Viral Jokes\""
 excerpt: "\"This Article Describes [New] Laughter Ledger: Ranking the Highest Viral Jokes\""
 keywords: "Funniest Joke Trends,Humor Chart Ranks,Top Viral Comedy,Laughing List Standouts,Hilarity Highsheets,Jester Leaders' Guide,Hilarious Stats Summary"
-thumbnail: https://www.lifewire.com/thmb/zESouOEDMPD5pUPW8DH8E91-pZc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Pandoraapponphone_ManuelBurgos_iStockUnreleased_Getty-e453208541bf4204818c65c8a03cde42.jpg
+thumbnail: https://thmb.techidaily.com/4708f3ad86d66e7ad10dd3b75bdecccf20aa6cf32be5cc5adbe8d57734cb7714.jpg
 ---
 
 ## Laughter Ledger: Ranking the Highest Viral Jokes

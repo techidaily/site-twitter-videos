@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Screen Share  Twitter's Power to Go Viral for 2024\""
-date: 2024-05-21T04:23:28.973Z
-updated: 2024-05-22T04:23:28.973Z
+date: 2024-07-07T03:54:51.512Z
+updated: 2024-07-08T03:54:51.512Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Screen Share: Twitter's Power to Go Viral for 2024\""
 excerpt: "\"This Article Describes [New] Screen Share: Twitter's Power to Go Viral for 2024\""
 keywords: "Go Viral Tactics,Screen Sharing Trends,Twitter Share Impact,Social Media Influencing,Viral Content Strategies,Twitter Engagement Boost,Sharing Power Online"
-thumbnail: https://www.lifewire.com/thmb/oUNmi698_-6gJNY-HgymJs_JqVI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/snapchat-friends-83a289161f554150a202e17e23f441c9.png
+thumbnail: https://thmb.techidaily.com/d01c44a9ae23f7efe9fb5e1960e68d56b4d2035c87f626ffb448d9a10326cec7.png
 ---
 
 ## Screen Share: Twitter's Power to Go Viral
@@ -83,11 +83,11 @@ Such minute details can sometimes bring prosperity across your account and make 
 
 This part shall show you different tweets that became viral in 2024\. These videos will provide you with an insight into how meaningful content can be made viral across Twitter with ease.
 
-### 1\. [Rafa Nadal Wins 21st Grand Slam](https://twitter.com/amanpour/status/1488225781205676032?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 1\. Rafa Nadal Wins 21st Grand Slam
 
 This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. On the Australian Open from 17th January to 30th January, history was made as Rafa won his 21st Grand Slam, crossing the all-time high of 20 Grand Slams.
 
-![rafa nadal wins ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
+![rafa nadal wins](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
 
 ### 2\. Costa Rica Holds Their General Elections
 
@@ -95,53 +95,53 @@ This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. O
 
 ![costa rica elections](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-2.jpg)
 
-### 3\. [Senegal Won The African Cup of Nations](https://twitter.com/rogbennett/status/1490466443799969793?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 3\. Senegal Won The African Cup of Nations
 
 The African Cup of Nations was surely an-eyed event across the world. Great players dominating the football world were a part of it. Senegal, a country in Africa, won the 2022 African Cup of Nations, which swayed a new era of football excellence.
 
 ![african cup of nations](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-3.jpg)
 
-### 4\. [Italy President Re-elected](https://twitter.com/AmbasciataUSA/status/1487522072989511682?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 4\. Italy President Re-elected
 
 Italy saw a swift change in its political system as Sergio Mattarella became the president of the country again. With different speculations insight, the consistency of the political system under Mattarella prevailed.
 
 ![italy president reelected](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-4.jpg)
 
-### 5\. [Beijing Winter Olympics](https://twitter.com/AP%5FSports/status/1493908345236955136?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 5\. Beijing Winter Olympics
 
 This event market Beijing to be the first-ever city to hold Summer and Winter Olympics, all this happening in 2022\. Although the Olympics turned out to be quite controversial, they still made history.
 
 ![beijing winter olympics](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-5.jpg)
 
-### 6\. [NFL Super Bowl](https://twitter.com/PFF/status/1494374837862780928?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 6\. NFL Super Bowl
 
 This event is quite special for the Americans; however, this has been something that has brought millions together. The Twitter army was quite cohesive and connected on this one, where people have acknowledged this event throughout the world.
 
 ![nfl super bowl](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-6.jpg)
 
-### 7\. [Russian-Ukraine Tensions](https://twitter.com/the%5Fragex/status/1494387128544940034?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 7\. Russian-Ukraine Tensions
 
 This political matter has been one of the top trending news on Twitter across these days. The tensions between Russia and Ukraine are rising, with the US backing up the Ukrainian side, which shows a global tension on the rise.
 
 ![russia ukraine tensions](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-7.jpg)
 
-### 8\. [Elon Musk and McDonald's](https://twitter.com/ShaneRizzo2/status/1493531218092036100?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 8\. Elon Musk and McDonald's
 
 This one has been the cheekiest news Twitter saw in 2022\. Elon Musk, an influential billionaire, was out on Twitter mentioning McDonald's in his tweets. Since then, Twitter has not left behind any trials to ensure that the news does not go unheard.
 
 ![elon musk and mcdonalds](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-8.jpg)
 
-### 9\. [Marvel Announcing One of Their Biggest Projects](https://twitter.com/DrStrangeUpdate/status/1493035518497546242?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 9\. Marvel Announcing One of Their Biggest Projects
 
 It was Super Bowl Day that Marvel had to have one of the biggest treats for their viewers of all time. Doctor Strange in the Multiverse of Madness was out with its trailer that swayed millions of viewers in a few hours. It surely was trending on Twitter.
 
-![marvel project announcement ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
+![marvel project announcement](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
 
-### 10\. [Dave Chappelle Viral Video](https://twitter.com/IronburrJones/status/1493783031324180485?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 10\. Dave Chappelle Viral Video
 
 It was trending on Twitter when Dave Chappelle, a leading stand-up comedian, was found giving a speech on affordable housing developments in Ohio. Twitter took it by the storm over the funny comments made by the comedian.
 
-![dave chappelle viral video ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
+![dave chappelle viral video](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
 
 ## Conclusion
 
@@ -207,11 +207,11 @@ Such minute details can sometimes bring prosperity across your account and make 
 
 This part shall show you different tweets that became viral in 2024\. These videos will provide you with an insight into how meaningful content can be made viral across Twitter with ease.
 
-### 1\. [Rafa Nadal Wins 21st Grand Slam](https://twitter.com/amanpour/status/1488225781205676032?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 1\. Rafa Nadal Wins 21st Grand Slam
 
 This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. On the Australian Open from 17th January to 30th January, history was made as Rafa won his 21st Grand Slam, crossing the all-time high of 20 Grand Slams.
 
-![rafa nadal wins ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
+![rafa nadal wins](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
 
 ### 2\. Costa Rica Holds Their General Elections
 
@@ -219,53 +219,53 @@ This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. O
 
 ![costa rica elections](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-2.jpg)
 
-### 3\. [Senegal Won The African Cup of Nations](https://twitter.com/rogbennett/status/1490466443799969793?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 3\. Senegal Won The African Cup of Nations
 
 The African Cup of Nations was surely an-eyed event across the world. Great players dominating the football world were a part of it. Senegal, a country in Africa, won the 2022 African Cup of Nations, which swayed a new era of football excellence.
 
 ![african cup of nations](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-3.jpg)
 
-### 4\. [Italy President Re-elected](https://twitter.com/AmbasciataUSA/status/1487522072989511682?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 4\. Italy President Re-elected
 
 Italy saw a swift change in its political system as Sergio Mattarella became the president of the country again. With different speculations insight, the consistency of the political system under Mattarella prevailed.
 
 ![italy president reelected](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-4.jpg)
 
-### 5\. [Beijing Winter Olympics](https://twitter.com/AP%5FSports/status/1493908345236955136?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 5\. Beijing Winter Olympics
 
 This event market Beijing to be the first-ever city to hold Summer and Winter Olympics, all this happening in 2022\. Although the Olympics turned out to be quite controversial, they still made history.
 
 ![beijing winter olympics](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-5.jpg)
 
-### 6\. [NFL Super Bowl](https://twitter.com/PFF/status/1494374837862780928?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 6\. NFL Super Bowl
 
 This event is quite special for the Americans; however, this has been something that has brought millions together. The Twitter army was quite cohesive and connected on this one, where people have acknowledged this event throughout the world.
 
 ![nfl super bowl](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-6.jpg)
 
-### 7\. [Russian-Ukraine Tensions](https://twitter.com/the%5Fragex/status/1494387128544940034?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 7\. Russian-Ukraine Tensions
 
 This political matter has been one of the top trending news on Twitter across these days. The tensions between Russia and Ukraine are rising, with the US backing up the Ukrainian side, which shows a global tension on the rise.
 
 ![russia ukraine tensions](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-7.jpg)
 
-### 8\. [Elon Musk and McDonald's](https://twitter.com/ShaneRizzo2/status/1493531218092036100?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 8\. Elon Musk and McDonald's
 
 This one has been the cheekiest news Twitter saw in 2022\. Elon Musk, an influential billionaire, was out on Twitter mentioning McDonald's in his tweets. Since then, Twitter has not left behind any trials to ensure that the news does not go unheard.
 
 ![elon musk and mcdonalds](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-8.jpg)
 
-### 9\. [Marvel Announcing One of Their Biggest Projects](https://twitter.com/DrStrangeUpdate/status/1493035518497546242?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 9\. Marvel Announcing One of Their Biggest Projects
 
 It was Super Bowl Day that Marvel had to have one of the biggest treats for their viewers of all time. Doctor Strange in the Multiverse of Madness was out with its trailer that swayed millions of viewers in a few hours. It surely was trending on Twitter.
 
-![marvel project announcement ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
+![marvel project announcement](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
 
-### 10\. [Dave Chappelle Viral Video](https://twitter.com/IronburrJones/status/1493783031324180485?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 10\. Dave Chappelle Viral Video
 
 It was trending on Twitter when Dave Chappelle, a leading stand-up comedian, was found giving a speech on affordable housing developments in Ohio. Twitter took it by the storm over the funny comments made by the comedian.
 
-![dave chappelle viral video ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
+![dave chappelle viral video](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
 
 ## Conclusion
 
@@ -331,11 +331,11 @@ Such minute details can sometimes bring prosperity across your account and make 
 
 This part shall show you different tweets that became viral in 2024\. These videos will provide you with an insight into how meaningful content can be made viral across Twitter with ease.
 
-### 1\. [Rafa Nadal Wins 21st Grand Slam](https://twitter.com/amanpour/status/1488225781205676032?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 1\. Rafa Nadal Wins 21st Grand Slam
 
 This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. On the Australian Open from 17th January to 30th January, history was made as Rafa won his 21st Grand Slam, crossing the all-time high of 20 Grand Slams.
 
-![rafa nadal wins ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
+![rafa nadal wins](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
 
 ### 2\. Costa Rica Holds Their General Elections
 
@@ -343,53 +343,53 @@ This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. O
 
 ![costa rica elections](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-2.jpg)
 
-### 3\. [Senegal Won The African Cup of Nations](https://twitter.com/rogbennett/status/1490466443799969793?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 3\. Senegal Won The African Cup of Nations
 
 The African Cup of Nations was surely an-eyed event across the world. Great players dominating the football world were a part of it. Senegal, a country in Africa, won the 2022 African Cup of Nations, which swayed a new era of football excellence.
 
 ![african cup of nations](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-3.jpg)
 
-### 4\. [Italy President Re-elected](https://twitter.com/AmbasciataUSA/status/1487522072989511682?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 4\. Italy President Re-elected
 
 Italy saw a swift change in its political system as Sergio Mattarella became the president of the country again. With different speculations insight, the consistency of the political system under Mattarella prevailed.
 
 ![italy president reelected](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-4.jpg)
 
-### 5\. [Beijing Winter Olympics](https://twitter.com/AP%5FSports/status/1493908345236955136?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 5\. Beijing Winter Olympics
 
 This event market Beijing to be the first-ever city to hold Summer and Winter Olympics, all this happening in 2022\. Although the Olympics turned out to be quite controversial, they still made history.
 
 ![beijing winter olympics](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-5.jpg)
 
-### 6\. [NFL Super Bowl](https://twitter.com/PFF/status/1494374837862780928?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 6\. NFL Super Bowl
 
 This event is quite special for the Americans; however, this has been something that has brought millions together. The Twitter army was quite cohesive and connected on this one, where people have acknowledged this event throughout the world.
 
 ![nfl super bowl](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-6.jpg)
 
-### 7\. [Russian-Ukraine Tensions](https://twitter.com/the%5Fragex/status/1494387128544940034?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 7\. Russian-Ukraine Tensions
 
 This political matter has been one of the top trending news on Twitter across these days. The tensions between Russia and Ukraine are rising, with the US backing up the Ukrainian side, which shows a global tension on the rise.
 
 ![russia ukraine tensions](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-7.jpg)
 
-### 8\. [Elon Musk and McDonald's](https://twitter.com/ShaneRizzo2/status/1493531218092036100?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 8\. Elon Musk and McDonald's
 
 This one has been the cheekiest news Twitter saw in 2022\. Elon Musk, an influential billionaire, was out on Twitter mentioning McDonald's in his tweets. Since then, Twitter has not left behind any trials to ensure that the news does not go unheard.
 
 ![elon musk and mcdonalds](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-8.jpg)
 
-### 9\. [Marvel Announcing One of Their Biggest Projects](https://twitter.com/DrStrangeUpdate/status/1493035518497546242?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 9\. Marvel Announcing One of Their Biggest Projects
 
 It was Super Bowl Day that Marvel had to have one of the biggest treats for their viewers of all time. Doctor Strange in the Multiverse of Madness was out with its trailer that swayed millions of viewers in a few hours. It surely was trending on Twitter.
 
-![marvel project announcement ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
+![marvel project announcement](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
 
-### 10\. [Dave Chappelle Viral Video](https://twitter.com/IronburrJones/status/1493783031324180485?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 10\. Dave Chappelle Viral Video
 
 It was trending on Twitter when Dave Chappelle, a leading stand-up comedian, was found giving a speech on affordable housing developments in Ohio. Twitter took it by the storm over the funny comments made by the comedian.
 
-![dave chappelle viral video ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
+![dave chappelle viral video](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
 
 ## Conclusion
 
@@ -455,11 +455,11 @@ Such minute details can sometimes bring prosperity across your account and make 
 
 This part shall show you different tweets that became viral in 2024\. These videos will provide you with an insight into how meaningful content can be made viral across Twitter with ease.
 
-### 1\. [Rafa Nadal Wins 21st Grand Slam](https://twitter.com/amanpour/status/1488225781205676032?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 1\. Rafa Nadal Wins 21st Grand Slam
 
 This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. On the Australian Open from 17th January to 30th January, history was made as Rafa won his 21st Grand Slam, crossing the all-time high of 20 Grand Slams.
 
-![rafa nadal wins ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
+![rafa nadal wins](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-1.jpg)
 
 ### 2\. Costa Rica Holds Their General Elections
 
@@ -467,53 +467,53 @@ This was surely a great start to 2022 for Rafa Nadal, a leading tennis player. O
 
 ![costa rica elections](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-2.jpg)
 
-### 3\. [Senegal Won The African Cup of Nations](https://twitter.com/rogbennett/status/1490466443799969793?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 3\. Senegal Won The African Cup of Nations
 
 The African Cup of Nations was surely an-eyed event across the world. Great players dominating the football world were a part of it. Senegal, a country in Africa, won the 2022 African Cup of Nations, which swayed a new era of football excellence.
 
 ![african cup of nations](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-3.jpg)
 
-### 4\. [Italy President Re-elected](https://twitter.com/AmbasciataUSA/status/1487522072989511682?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 4\. Italy President Re-elected
 
 Italy saw a swift change in its political system as Sergio Mattarella became the president of the country again. With different speculations insight, the consistency of the political system under Mattarella prevailed.
 
 ![italy president reelected](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-4.jpg)
 
-### 5\. [Beijing Winter Olympics](https://twitter.com/AP%5FSports/status/1493908345236955136?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 5\. Beijing Winter Olympics
 
 This event market Beijing to be the first-ever city to hold Summer and Winter Olympics, all this happening in 2022\. Although the Olympics turned out to be quite controversial, they still made history.
 
 ![beijing winter olympics](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-5.jpg)
 
-### 6\. [NFL Super Bowl](https://twitter.com/PFF/status/1494374837862780928?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 6\. NFL Super Bowl
 
 This event is quite special for the Americans; however, this has been something that has brought millions together. The Twitter army was quite cohesive and connected on this one, where people have acknowledged this event throughout the world.
 
 ![nfl super bowl](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-6.jpg)
 
-### 7\. [Russian-Ukraine Tensions](https://twitter.com/the%5Fragex/status/1494387128544940034?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 7\. Russian-Ukraine Tensions
 
 This political matter has been one of the top trending news on Twitter across these days. The tensions between Russia and Ukraine are rising, with the US backing up the Ukrainian side, which shows a global tension on the rise.
 
 ![russia ukraine tensions](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-7.jpg)
 
-### 8\. [Elon Musk and McDonald's](https://twitter.com/ShaneRizzo2/status/1493531218092036100?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 8\. Elon Musk and McDonald's
 
 This one has been the cheekiest news Twitter saw in 2022\. Elon Musk, an influential billionaire, was out on Twitter mentioning McDonald's in his tweets. Since then, Twitter has not left behind any trials to ensure that the news does not go unheard.
 
 ![elon musk and mcdonalds](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-8.jpg)
 
-### 9\. [Marvel Announcing One of Their Biggest Projects](https://twitter.com/DrStrangeUpdate/status/1493035518497546242?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 9\. Marvel Announcing One of Their Biggest Projects
 
 It was Super Bowl Day that Marvel had to have one of the biggest treats for their viewers of all time. Doctor Strange in the Multiverse of Madness was out with its trailer that swayed millions of viewers in a few hours. It surely was trending on Twitter.
 
-![marvel project announcement ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
+![marvel project announcement](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-9.jpg)
 
-### 10\. [Dave Chappelle Viral Video](https://twitter.com/IronburrJones/status/1493783031324180485?s=20&t=x%5FG-VtnzoYVaJONlRxBpag)
+### 10\. Dave Chappelle Viral Video
 
 It was trending on Twitter when Dave Chappelle, a leading stand-up comedian, was found giving a speech on affordable housing developments in Ohio. Twitter took it by the storm over the funny comments made by the comedian.
 
-![dave chappelle viral video ](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
+![dave chappelle viral video](https://images.wondershare.com/filmora/article-images/2022/03/twitter-video-viral-10.jpg)
 
 ## Conclusion
 

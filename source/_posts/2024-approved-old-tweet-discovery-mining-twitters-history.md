@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Old Tweet Discovery  Mining Twitter's History\""
-date: 2024-05-21T02:36:02.176Z
-updated: 2024-05-22T02:36:02.176Z
+date: 2024-07-07T03:54:51.120Z
+updated: 2024-07-08T03:54:51.120Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Old Tweet Discovery: Mining Twitter's History\""
 excerpt: "\"This Article Describes 2024 Approved: Old Tweet Discovery: Mining Twitter's History\""
 keywords: "Historical Tweets,Archiving Tweets,Analyzing Old Tweets,Twitter Archive Exploration,Deciphering Historic Tweets,Tweet Data Research,Social Media History Digging"
-thumbnail: https://www.lifewire.com/thmb/HPANbAemZhl50CLJNEqH0zHeTrI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Samsung-S24-Series-14a268a53c3742229c06a7eb76ad5052.jpg
+thumbnail: https://thmb.techidaily.com/0838ac8f5f2d8f067138531cc9f4dfd905cfa9adb1733f1b9948bd185f0bb490.jpg
 ---
 
 ## Old Tweet Discovery: Mining Twitter's History

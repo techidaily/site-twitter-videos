@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Peak of Primes  Amazon’s Hot Tweets & Shows, '23 for 2024\""
-date: 2024-05-21T04:05:31.907Z
-updated: 2024-05-22T04:05:31.907Z
+date: 2024-07-07T03:54:55.973Z
+updated: 2024-07-08T03:54:55.973Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] The Peak of Primes: Amazon’s Hot Tweets & Shows, '23 for 2024\""
 excerpt: "\"This Article Describes [Updated] The Peak of Primes: Amazon’s Hot Tweets & Shows, '23 for 2024\""
 keywords: "Prime TV Hits 2023,Amazon Prime Trends 2023,Popular Primes Series 2023,Hot Shows & Tweets, Amazon 2023,Top Prime Video Content 2023,Peak Primes Programs 2023,Amazon's Prime Best Selections 2023"
-thumbnail: https://www.lifewire.com/thmb/uPaLVwxbvMfcPdG68RijLj_eON0=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed-bd03be35e2934c6a955a7022f4319123.png
+thumbnail: https://thmb.techidaily.com/c03221180f24d051697c535d192c12a06104e76b7456b6ffbc01667561900748.png
 ---
 
 ## The Peak of Primes: Amazon’s Hot Tweets & Shows, '23

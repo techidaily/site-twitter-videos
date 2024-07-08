@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Amazon’s Premier Titles  Social Media Sensation Winners\""
-date: 2024-05-21T03:33:04.972Z
-updated: 2024-05-22T03:33:04.972Z
+date: 2024-07-07T03:54:52.969Z
+updated: 2024-07-08T03:54:52.969Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Amazon’s Premier Titles: Social Media Sensation Winners\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Amazon’s Premier Titles: Social Media Sensation Winners\""
 keywords: "\"Amazon Title Awards,Prime Listing Leaders,Top E-Book Authors,Bestseller Recognition,Social Media Winning Titles,Premier Book Honors,Awarded Amazon Books\""
-thumbnail: https://www.lifewire.com/thmb/mDhQu1u6C7xH80NuMlX64UBqcQg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-99308150-060a5046853e43e083e9a358e487211d.jpg
+thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d01a8b699d519ecb10291bd82.jpg
 ---
 
 ## Amazon’s Premier Titles: Social Media Sensation Winners

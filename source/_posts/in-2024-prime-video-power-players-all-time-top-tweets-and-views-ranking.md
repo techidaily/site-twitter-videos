@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Prime Video Power Players  All-Time Top Tweets & Views Ranking\""
-date: 2024-05-21T03:31:22.430Z
-updated: 2024-05-22T03:31:22.430Z
+date: 2024-07-07T03:54:56.501Z
+updated: 2024-07-08T03:54:56.501Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Prime Video Power Players: All-Time Top Tweets & Views Ranking\""
 excerpt: "\"This Article Describes In 2024, Prime Video Power Players: All-Time Top Tweets & Views Ranking\""
 keywords: "Prime Video Leaderboard,Top TV Show Streams,View Count Hacks,MVP Content Watchers,Ultimate Subscriber List,Highest Rated Shows,Premier View Ratings"
-thumbnail: https://www.lifewire.com/thmb/pNfoCtZg7_a02to8AWINzbhRAiA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Screenshot2024-01-23at2.09.47PM-eeadb7b54ebc4ff7887719fec71f753a.png
+thumbnail: https://thmb.techidaily.com/de901a9dfeb58de3e9633af24cac79c38827e6567ccf0cdebe9976885fce2e39.png
 ---
 
 ## Prime Video Power Players: All-Time Top Tweets & Views Ranking

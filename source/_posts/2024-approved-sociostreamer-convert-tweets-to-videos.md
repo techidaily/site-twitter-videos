@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  SocioStreamer  Convert Tweets to Videos\""
-date: 2024-05-21T04:02:22.319Z
-updated: 2024-05-22T04:02:22.320Z
+date: 2024-07-07T03:54:57.160Z
+updated: 2024-07-08T03:54:57.160Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: SocioStreamer: Convert Tweets to Videos\""
 excerpt: "\"This Article Describes 2024 Approved: SocioStreamer: Convert Tweets to Videos\""
 keywords: "\"Tweet Video Streaming,Social Media Livestream,Turn Tweets Into Vids,Quick Tweet-To-Video,Tweet-Based Video Creation,Social Tweeting to Film,Twitter Video Content\""
-thumbnail: https://www.lifewire.com/thmb/DCkyrrIKF6IlOibLq3FWXS7tDbE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Google-Nest-Audio-vs-Google-Nest-Mini-2-85c4f29a43b24769a97f645fc3dd5687.jpg
+thumbnail: https://thmb.techidaily.com/8dc40963abf93641fc12fb3ff0b8fa0a43902050db781f6bcdf9e50e7619aa67.jpg
 ---
 
 ## SocioStreamer: Convert Tweets to Videos

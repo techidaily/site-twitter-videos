@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sensational Jokes  Ranking the Viral Ones\""
-date: 2024-05-21T02:54:48.825Z
-updated: 2024-05-22T02:54:48.825Z
+date: 2024-07-07T03:54:49.509Z
+updated: 2024-07-08T03:54:49.509Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Sensational Jokes: Ranking the Viral Ones\""
 excerpt: "\"This Article Describes [New] Sensational Jokes: Ranking the Viral Ones\""
 keywords: "Funny Joke Tops,Humor Trends Rank,Joke Hits List,Popular Jokes Index,Laughter Virality Score,Chuckle Chart Ranks,Giggle Highs & Lows"
-thumbnail: https://www.lifewire.com/thmb/hlStnlL-La1A_-HAmJ_u_rIyoI4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/carbatterydeadwinter-568099e35f9b586a9edd07db.jpg
+thumbnail: https://thmb.techidaily.com/f78a12d6fa260b60593d7d84df0572fbc03e543ca8c86ab396fe09af56299ebf.jpg
 ---
 
 ## Sensational Jokes: Ranking the Viral Ones

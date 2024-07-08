@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering Social Media  Tweeting Videos to Facebook\""
-date: 2024-05-21T03:37:31.283Z
-updated: 2024-05-22T03:37:31.283Z
+date: 2024-07-07T03:54:56.186Z
+updated: 2024-07-08T03:54:56.186Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Mastering Social Media: Tweeting Videos to Facebook\""
 excerpt: "\"This Article Describes In 2024, Mastering Social Media: Tweeting Videos to Facebook\""
 keywords: "\"Video Tweet Strategy,Social Media Engagement,Cross-Platform Sharing,FB Video Marketing,Effective Twitter Use,Video Content Promotion,Social Media Optimization\""
-thumbnail: https://www.lifewire.com/thmb/W0oS-qxTCWlokv9LVgzRzFWYsPc=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/4082541-2-5c3be64d46e0fb00010352bf.jpg
+thumbnail: https://thmb.techidaily.com/030f43c520c13566e766031892a27e4f35e056dc768bf0f9b9c3aff2261e980f.jpg
 ---
 
 ## Mastering Social Media: Tweeting Videos to Facebook

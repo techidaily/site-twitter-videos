@@ -1,7 +1,7 @@
 ---
 title: "[New] Directing Tweeted Vids to FB Audiences"
-date: 2024-05-21T03:18:47.726Z
-updated: 2024-05-22T03:18:47.726Z
+date: 2024-07-07T03:54:50.818Z
+updated: 2024-07-08T03:54:50.818Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Directing Tweeted Vids to FB Audiences"
 excerpt: "This Article Describes [New] Directing Tweeted Vids to FB Audiences"
 keywords: "Directing Tweets to FB,Vid Transfers to Facebook,Video Tweet Sharing,Tweeted Videos on FB,FB Tweet Video Links,Social Media Tweet Replay,Convert Tweets to FB Views"
-thumbnail: https://www.lifewire.com/thmb/R8MEv-Nf-lUiBmyv36KsZF0bnjs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-5210073311-5bae84bd46e0fb00261aedb8.jpg
+thumbnail: https://thmb.techidaily.com/64d6132273fa0f5624faa24b024a9043c67b09153100a262ca37e1659c74f36a.jpg
 ---
 
 ## Directing Tweeted Vids to FB Audiences

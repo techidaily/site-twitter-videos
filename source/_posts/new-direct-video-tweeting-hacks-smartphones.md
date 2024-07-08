@@ -1,7 +1,7 @@
 ---
 title: "[New] Direct Video Tweeting Hacks Smartphones"
-date: 2024-05-21T04:37:38.159Z
-updated: 2024-05-22T04:37:38.159Z
+date: 2024-07-07T03:54:50.206Z
+updated: 2024-07-08T03:54:50.206Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Direct Video Tweeting Hacks Smartphones"
 excerpt: "This Article Describes [New] Direct Video Tweeting Hacks Smartphones"
 keywords: "Smartphone Live Tweets,Quick Video Sharing,Photo Tweet Tricks,Mobile Streaming Tips,Direct Media Posts,Efficient Social Media,Hacks for Video Tweeting"
-thumbnail: https://www.lifewire.com/thmb/zj201Axi8jseO3Un9DsFf_rT4l8=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-use-guest-mode-with-google-assistant-5112591-9-199dfa150c3a4f2cbaff3e8d93b358ef.jpg
+thumbnail: https://thmb.techidaily.com/cc7f1b37ab48f04be05ddbd8e5dcdb53a3b08ee536102fa45e6319038a39015f.jpg
 ---
 
 ## Direct Video Tweeting Hacks Smartphones
