@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Gif Revolution  Free Transformation of Tweets to GIFs\""
-date: 2024-05-21T04:10:08.796Z
-updated: 2024-05-22T04:10:08.796Z
+date: 2024-07-27T15:45:42.644Z
+updated: 2024-07-28T15:45:42.644Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] 2024 Approved: Gif Revolution: Free Transformation of Tweets to GIFs\""
 excerpt: "\"This Article Describes [Updated] 2024 Approved: Gif Revolution: Free Transformation of Tweets to GIFs\""
 keywords: "TwitGIF Transformations,GifTweet Creation,Free Tweet GIF Maker,Easy Gif Generation,Tweets to Animated GIFs,Social Media GIF Editor,Quick Gif Conversion"
-thumbnail: https://www.lifewire.com/thmb/6snoLQ_LDr7duuZviMh6Lev3NmI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/weatherapps-iphone-featured-5b73c68146e0fb0050215076.jpg
+thumbnail: https://thmb.techidaily.com/6110f59d84b8b2836afe3cb9128ab55b4983bac7c041837cad5f3c0f9163df97.jpg
 ---
 
 ## Gif Revolution: Free Transformation of Tweets to GIFs
@@ -35,6 +35,9 @@ In short, GIFs are the best way to say everything without saying anything at all
 
 There is no need to be concerned. We'll show you everything you need to know (and more!) about converting your Twitter videos into those adorable little animations known as GIFs.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How To Convert Twitter Videos To GIFs?
 
 Creating an animated GIF from any video is a fascinating task that is also fun. A video can be tough to manage due to its vast size, but GIF forms are ideal for profile posts and catching up with friends in the form of simple jokes. Only a few basic steps are required for GIF format conversion, and the entire conversion process will take you very little time.
@@ -63,6 +66,9 @@ To save a file with the GIF extension, you'll need to use software or an applica
 
 If you want to generate a GIF online, though, Filmora's online meme maker is the best option. It allows you to create watermark-free pictures, GIFs, and video memes. It is entirely free to use and requires no registration. You can adjust the text size, color, and location to make a caption when modifying. You can also add text to the inside or outside in a GIF. Your GIF is ready in just a few clicks. Try it right now!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to use Wondershare Filmora to convert a video clip into a GIF image?
 
 You can convert your Twitter videos into GIFs using the following steps:
@@ -99,6 +105,9 @@ Select the best possible resolution and frame rate for your video.
 
 You may also use Filmora to take screenshots and extract frames from videos. The retrieved photos will appear in the media library, allowing you to merge multiple images into a GIF.Wondershare Filmora is one of the most user-friendly video-to-gif converters available, and it can be easily downloaded from the Filmora website. Once your software is installed, it will function with all common video file types. It allows you to edit countless videos with its useful features and user-friendly interface.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2\. Convert a Twitter Video to a GIF Online
 
 Conversion software is more tedious than using an online converter. You don't need to download any software; upload the Twitter video, and they'll convert it to a GIF in no time. They do, however, have some restrictions, such as file size limits and upload time limits.
@@ -131,6 +140,9 @@ Your video will start converting. You can see the status in the progress bar.
 
 You can download GIFs directly after clicking the download option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### 2\. HNET
 
 Another amazing tool we have to convert Twitter videos into GIFs is HNET. Besides being an online Twitter video to GIF converter, it can convert images, pdfs, audios, ICO and houses a number of tools.HNET can convert any video into GIFs in a matter of seconds. You can change the width, length, height, and frames per second of the GIF. After one hour, all uploaded files will be deleted, making them safe and secure.
@@ -153,6 +165,10 @@ You’ll find multiple options to set the start time, end time, image width, ima
 
 Now, click on "download", and your GIF will be saved.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Part 3\. How to Download GIFs as Videos from Twitter
 
 There are numerous Twitter video downloaders available on the internet. However, the majority of them are unable to download GIFs from Twitter. [SaveTweetVid](https://www.savetweetvid.com/) is a fantastic Twitter video/GIF downloader that we have discovered.
@@ -257,6 +273,9 @@ Conversion software is more tedious than using an online converter. You don't ne
 
 If these restrictions aren't a deal-breaker for you, try one of the online Twitter GIF producers below.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. [**Convertio**](https://convertio.co/)
 
 Convertio is another online Twitter video to GIF converter that can convert more than 282 documents, pictures, ebooks, spreadsheets, presentations, archives, video, and audio formats. It can convert a variety of files to over five different file types. If you put audio files into the software, it can convert them to WAV, MP3, FLAC, WMA, OGG, M4A, AIFF, AMR, CAF, AC3, DTS, and APE.
@@ -283,6 +302,9 @@ Your video will start converting. You can see the status in the progress bar.
 
 You can download GIFs directly after clicking the download option.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. HNET
 
 Another amazing tool we have to convert Twitter videos into GIFs is HNET. Besides being an online Twitter video to GIF converter, it can convert images, pdfs, audios, ICO and houses a number of tools.HNET can convert any video into GIFs in a matter of seconds. You can change the width, length, height, and frames per second of the GIF. After one hour, all uploaded files will be deleted, making them safe and secure.
@@ -305,6 +327,9 @@ You’ll find multiple options to set the start time, end time, image width, ima
 
 Now, click on "download", and your GIF will be saved.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. How to Download GIFs as Videos from Twitter
 
 There are numerous Twitter video downloaders available on the internet. However, the majority of them are unable to download GIFs from Twitter. [SaveTweetVid](https://www.savetweetvid.com/) is a fantastic Twitter video/GIF downloader that we have discovered.
@@ -339,6 +364,9 @@ In short, GIFs are the best way to say everything without saying anything at all
 
 There is no need to be concerned. We'll show you everything you need to know (and more!) about converting your Twitter videos into those adorable little animations known as GIFs.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Convert Twitter Videos To GIFs?
 
 Creating an animated GIF from any video is a fascinating task that is also fun. A video can be tough to manage due to its vast size, but GIF forms are ideal for profile posts and catching up with friends in the form of simple jokes. Only a few basic steps are required for GIF format conversion, and the entire conversion process will take you very little time.
@@ -367,6 +395,9 @@ To save a file with the GIF extension, you'll need to use software or an applica
 
 If you want to generate a GIF online, though, Filmora's online meme maker is the best option. It allows you to create watermark-free pictures, GIFs, and video memes. It is entirely free to use and requires no registration. You can adjust the text size, color, and location to make a caption when modifying. You can also add text to the inside or outside in a GIF. Your GIF is ready in just a few clicks. Try it right now!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## How to use Wondershare Filmora to convert a video clip into a GIF image?
 
 You can convert your Twitter videos into GIFs using the following steps:
@@ -435,6 +466,9 @@ Your video will start converting. You can see the status in the progress bar.
 
 You can download GIFs directly after clicking the download option.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. HNET
 
 Another amazing tool we have to convert Twitter videos into GIFs is HNET. Besides being an online Twitter video to GIF converter, it can convert images, pdfs, audios, ICO and houses a number of tools.HNET can convert any video into GIFs in a matter of seconds. You can change the width, length, height, and frames per second of the GIF. After one hour, all uploaded files will be deleted, making them safe and secure.
@@ -457,6 +491,9 @@ You’ll find multiple options to set the start time, end time, image width, ima
 
 Now, click on "download", and your GIF will be saved.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3\. How to Download GIFs as Videos from Twitter
 
 There are numerous Twitter video downloaders available on the internet. However, the majority of them are unable to download GIFs from Twitter. [SaveTweetVid](https://www.savetweetvid.com/) is a fantastic Twitter video/GIF downloader that we have discovered.
@@ -473,6 +510,9 @@ Here's how you can download GIFs from Twitter via SaveTweetVid:
 
 **Step 4.** Wait for a few seconds till the video is being converted. Finally, it will download to your system.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 So, even if you aren’t a professional video editor, you cannot say that you can’t convert a Twitter video to GIF. We’ve suggested the top tools to accomplish this, whether you want to convert Twitter video to GIF on your desktop or online.
@@ -519,6 +559,14 @@ To save a file with the GIF extension, you'll need to use software or an applica
 
 If you want to generate a GIF online, though, Filmora's online meme maker is the best option. It allows you to create watermark-free pictures, GIFs, and video memes. It is entirely free to use and requires no registration. You can adjust the text size, color, and location to make a caption when modifying. You can also add text to the inside or outside in a GIF. Your GIF is ready in just a few clicks. Try it right now!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## How to use Wondershare Filmora to convert a video clip into a GIF image?
 
 You can convert your Twitter videos into GIFs using the following steps:
@@ -561,6 +609,9 @@ Conversion software is more tedious than using an online converter. You don't ne
 
 If these restrictions aren't a deal-breaker for you, try one of the online Twitter GIF producers below.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. [**Convertio**](https://convertio.co/)
 
 Convertio is another online Twitter video to GIF converter that can convert more than 282 documents, pictures, ebooks, spreadsheets, presentations, archives, video, and audio formats. It can convert a variety of files to over five different file types. If you put audio files into the software, it can convert them to WAV, MP3, FLAC, WMA, OGG, M4A, AIFF, AMR, CAF, AC3, DTS, and APE.
@@ -656,3 +707,43 @@ Wondershare Filmora is the most efficient, offering a wide range of functions in
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-streamline-your-content-twitter-video-integration/"><u>[New] 2024 Approved  Streamline Your Content  Twitter Video Integration</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-winning-over-viewers-a-comprehensive-guide-to-growing-followers/"><u>[New] 2024 Approved  Winning Over Viewers  A Comprehensive Guide to Growing Followers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-memes-unite-reddit-and-twitters-top-twenty/"><u>[New] In 2024, Memes Unite  Reddit & Twitter's Top Twenty</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-videotwitteraudio-direct-conversion/"><u>[New] In 2024, VideoTwitterAudio  Direct Conversion</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-matrix-top-10-memes-on-social-media-platforms/"><u>[New] Meme Matrix  Top 10 Memes on Social Media Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-no-price-no-problem-turning-twitter-vids-into-gifs/"><u>[New] No Price, No Problem  Turning Twitter Vids Into GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-guide-to-compliant-twitter-media-posts/"><u>[New] Step-by-Step Guide to Compliant Twitter Media Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficiency-in-social-media-sharing-tweets-with-snapchat/"><u>[Updated] 2024 Approved  Efficiency in Social Media  Sharing Tweets with Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-maintain-proper-aspect-ratio-for-tweeted-movies/"><u>[Updated] 2024 Approved  Maintain Proper Aspect Ratio for Tweeted Movies</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-art-of-muting-background-sounds-in-skype/"><u>[Updated] 2024 Approved  The Art of Muting Background Sounds in Skype</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cyber-sensation-the-rise-of-videoviral-tweets/"><u>[Updated] Cyber Sensation  The Rise of #VideoViral Tweets</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-essential-screen-capture-software-top-picks-ranked-for-2024/"><u>[Updated] Essential Screen Capture Software - Top Picks Ranked for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-properly-posted-tweets-with-professional-videos/"><u>[Updated] In 2024, Properly Posted Tweets with Professional Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>[Updated] In 2024, Smooth Media Transfer  TwitVideos to WhatsApp Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/10-viral-tweets-dominating-social-media-for-2024/"><u>10 Viral Tweets Dominating Social Media for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-how-to-watch-twitter-videos-in-full-hd-in-2024/"><u>2023 | How To Watch Twitter Videos in Full HD, In 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-flashfacts-the-social-media-spark-of-video-tweet/"><u>2024 Approved  FlashFacts  The Social Media Spark of Video Tweet</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-your-ultimate-manual-for-opting-into-youtube-premium/"><u>2024 Approved  Your Ultimate Manual for Opting Into YouTube Premium</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-infinix-hot-40-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Infinix Hot 40 Pattern Lock Screen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/hacking-into-windows-11s-silent-camera-alert-system/"><u>Hacking Into Windows 11'S Silent Camera Alert System</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-apple-id-and-apple-password-from-iphone-14-plus-by-drfone-ios/"><u>How to Reset Apple ID and Apple Password From iPhone 14 Plus</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-insights-adjusting-tempo-for-optimal-snapchat-viewing/"><u>In 2024, Expert Insights  Adjusting Tempo for Optimal Snapchat Viewing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-loudness-in-the-void-breaking-soundless-twitter-vids/"><u>In 2024, Loudness in the Void  Breaking Soundless Twitter Vids</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-preparation-to-beat-giovani-in-pokemon-go-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>In 2024, Preparation to Beat Giovani in Pokemon Go For Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-streamline-your-conversations-with-twitter-video-uploads-on-whatsapp/"><u>In 2024, Streamline Your Conversations with Twitter Video Uploads on WhatsApp</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-streamline-your-web-experience-with-these-leading-screen-capturers/"><u>In 2024, Streamline Your Web Experience with These Leading Screen Capturers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-clear-cut-guide-to-high-definition-twitter-videos/"><u>In 2024, The Clear-Cut Guide to High Definition Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-top-trending-and-most-viewed-prime-videos-twitterreactions/"><u>In 2024, Top-Trending & Most Viewed Prime Videos, #TwitterReactions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitmedia-mastery-elevate-your-tweet-game/"><u>In 2024, TwitMedia Mastery  Elevate Your Tweet Game</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitters-wild-ride-the-hottest-tweets-unveiled/"><u>In 2024, Twitter's Wild Ride  The Hottest Tweets Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/leading-alternatives-to-twitter-ranked-best-for-2024/"><u>Leading Alternatives to Twitter, Ranked Best for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/powerdirector-2024-insiders-guide-full-review-and-steps-to-mastery/"><u>PowerDirector 2024 Insider's Guide  Full Review & Steps to Mastery</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-ultimate-guide-to-establishing-a-twitter-presence-for-2024/"><u>The Ultimate Guide to Establishing a Twitter Presence for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-nubia-z50-ultra-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Nubia Z50 Ultra Phone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweet-tracks-top-ranked-amazon-originals-on-twittersphere/"><u>Tweet Tracks  Top-Ranked Amazon Originals on Twittersphere</u></a></li>
+</ul></div>

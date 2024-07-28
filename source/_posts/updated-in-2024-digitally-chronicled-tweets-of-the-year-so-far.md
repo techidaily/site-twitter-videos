@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Digitally Chronicled Tweets of the Year So Far"
-date: 2024-05-21T04:09:50.029Z
-updated: 2024-05-22T04:09:50.029Z
+date: 2024-07-27T15:45:04.040Z
+updated: 2024-07-28T15:45:04.040Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Digitally Chronicled Tweets of the Year So Far"
 excerpt: "This Article Describes [Updated] In 2024, Digitally Chronicled Tweets of the Year So Far"
 keywords: "Yearly Tweet Insights,DigTweets Trends,Social Media Timeline,Annual Twitter Updates,Digital Tweets Chronology,Year's Social Tweets Review,Monthly Tweet Summary"
-thumbnail: https://www.lifewire.com/thmb/4UAL0ffhfcefNDTCBRAEWpc6KBE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/machine-learning-5aeccc03a474be003618e6d8.jpg
+thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690eb44299839f1e9c463cd1ddf.jpg
 ---
 
 ## Digitally Chronicled Tweets of the Year So Far
@@ -31,6 +31,9 @@ Twitter has also jumped on the short video bandwagon to join TikTok and YouTube 
 
 If you want to know more about what this feature is, some of the top Twitter reaction videos, and how to make a good reaction video, keep reading.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What Is Twitter Reaction Video Feature?
 
 Twitter recently announced that it’s testing a new feature on iOS, which is called “quote tweet with reaction.” It means you can share your take on what a tweet is talking about or simply a reaction in the form of a video or picture.
@@ -41,6 +44,9 @@ To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote
 
 ![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make A Good Reaction Video for Twitter?
 
 The next time you see an interesting Tweet, you might be tempted to use the “quote tweet with reaction” feature. Sharing your reaction on any Tweet is more than just posting a picture or video of your facial expressions.
@@ -49,6 +55,9 @@ With the help of a good video editor, you can make amazing reaction videos. Wond
 
 With Filmora, you can create reaction videos with a transparent background without any expensive equipment. The built-in editing features are exceptional when it comes to making video engaging and attractive.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Use Filmora video editor to create Twitter reaction videos
 
 **Create a reaction video with the PIP feature**
@@ -59,6 +68,9 @@ Once you have the Tweet you want to react to, you can use Filmora software to cr
 
 Open Filmora on your computer or laptop and select **create a new project.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Open Filmora and select create a new project](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-2.png)
 
 Import the Tweet (take a screenshot of the Tweet if it’s an image or text) into the editor. In addition to videos, Filmora allows you to import images or music, as well.
@@ -81,20 +93,41 @@ You can use its blending modes to control the opacity of the Tweet image or vide
 
 Reaction videos gain tremendous traction, but let's be honest - they're not always that exciting to watch. A lot of times, making a reaction video and sharing thoughts while watching something is just boring. However, there are some tips and tricks you can use to make your reaction videos more interesting and even hilarious!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● The tone is everything
 
 Good reaction videos are fun and positive. Excitement is king here, so don't be afraid to ham it up a bit. Think about the most excited you've ever been in your life — meeting the love of your life, watching a baby take its first steps, scoring tickets to your favorite band's concert — and channel that excitement into your reaction video.
 
 People like watching other people get excited because it reminds them of how much fun life can be.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Be relatable
 
 Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### ● Keep things fun
 
 A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Use your body
 
 Eye contact is extremely important when it comes to communicating with other people, but most importantly, it's necessary for keeping your viewer focused on the screen. If you're looking at your notes or fumbling with your phone, it's likely that your viewer will start looking at something else as well. So take advantage of this fact by doing something silly or memorable while narrating your video. It makes for good entertainment and helps keep viewers engaged.
@@ -103,6 +136,9 @@ Eye contact is extremely important when it comes to communicating with other peo
 
 Make sure your background is clear and that your camera is placed in a location where there will be minimal disruptions. The last thing you want is for someone else to sneak into your frame and ruin the quality of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Avoid background music
 
 Tip: Try not to use any type of music in the background of your video. This can distract from the main focus of the video, which is supposed to be your reaction.
@@ -111,6 +147,9 @@ Tip: Try not to use any type of music in the background of your video. This can 
 
 Try using special effects in your video. Some editing programs include features that allow you to add special effects and transitions into your video, which can help improve the look and feel of your video after it has been uploaded onto YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![numerous effects in Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-5.png)
 
 ## Conclusion
@@ -145,6 +184,129 @@ With the help of a good video editor, you can make amazing reaction videos. Wond
 
 With Filmora, you can create reaction videos with a transparent background without any expensive equipment. The built-in editing features are exceptional when it comes to making video engaging and attractive.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
+### Use Filmora video editor to create Twitter reaction videos
+
+**Create a reaction video with the PIP feature**
+
+Once you have the Tweet you want to react to, you can use Filmora software to create a reaction video on it.
+
+**● Step 1: Create a new project**
+
+Open Filmora on your computer or laptop and select **create a new project.**
+
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Open Filmora and select create a new project](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-2.png)
+
+Import the Tweet (take a screenshot of the Tweet if it’s an image or text) into the editor. In addition to videos, Filmora allows you to import images or music, as well.
+
+![Import your media files to Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-3.png)
+
+**● Step 2: Place files on the video track**
+
+Now, record your reaction video and import it to the editor as well. You need to place the Tweet video or image on the video track and then place your reaction video directly above it. The top video should be in a larger size so make sure to adjust its size by clicking on the video and opening it in the preview. Now, drag the handles inward or outward to position the video.
+
+**● Step 3: Use editing tools**
+
+There are over 60 motion effects, numerous transitions, and visual effects to add flair and appeal to your reaction video. These editing tools will make your video attractive and help it stand out.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+![choose from a wide selection of editing tools](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-4.png)
+
+You can use its blending modes to control the opacity of the Tweet image or video you’re reacting to.
+
+## Tips for Making Good Twitter Reaction Videos
+
+Reaction videos gain tremendous traction, but let's be honest - they're not always that exciting to watch. A lot of times, making a reaction video and sharing thoughts while watching something is just boring. However, there are some tips and tricks you can use to make your reaction videos more interesting and even hilarious!
+
+### ● The tone is everything
+
+Good reaction videos are fun and positive. Excitement is king here, so don't be afraid to ham it up a bit. Think about the most excited you've ever been in your life — meeting the love of your life, watching a baby take its first steps, scoring tickets to your favorite band's concert — and channel that excitement into your reaction video.
+
+People like watching other people get excited because it reminds them of how much fun life can be.
+
+### ● Be relatable
+
+Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
+
+### ● Keep things fun
+
+A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+### ● Use your body
+
+Eye contact is extremely important when it comes to communicating with other people, but most importantly, it's necessary for keeping your viewer focused on the screen. If you're looking at your notes or fumbling with your phone, it's likely that your viewer will start looking at something else as well. So take advantage of this fact by doing something silly or memorable while narrating your video. It makes for good entertainment and helps keep viewers engaged.
+
+### ● Shoot with clear background
+
+Make sure your background is clear and that your camera is placed in a location where there will be minimal disruptions. The last thing you want is for someone else to sneak into your frame and ruin the quality of your video.
+
+### ● Avoid background music
+
+Tip: Try not to use any type of music in the background of your video. This can distract from the main focus of the video, which is supposed to be your reaction.
+
+### ● Use effects
+
+Try using special effects in your video. Some editing programs include features that allow you to add special effects and transitions into your video, which can help improve the look and feel of your video after it has been uploaded onto YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![numerous effects in Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-5.png)
+
+## Conclusion
+
+Considering the popularity of TikTok reaction videos, Twitter reaction videos are expected to follow the trend.
+
+For certain occasions, these videos are the perfect outlet to express your emotions and give viewers some insight into what you think about the particular Tweet. You could get the same results using a normal video, or even screenshots of your life. But adding the right type of music and visuals to your reaction video are what can make a difference between someone watching and loving it, or rolling their eyes and hitting skip. And, that’s why using the Filmora video editor is a valuable choice.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Twitter has also jumped on the short video bandwagon to join TikTok and YouTube Shorts. Twitter recently announced that it is testing a feature on its iOS app where users can post reactions to tweets.
+
+If you want to know more about what this feature is, some of the top Twitter reaction videos, and how to make a good reaction video, keep reading.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What Is Twitter Reaction Video Feature?
+
+Twitter recently announced that it’s testing a new feature on iOS, which is called “quote tweet with reaction.” It means you can share your take on what a tweet is talking about or simply a reaction in the form of a video or picture.
+
+The original tweet is embedded in the reaction video or picture.
+
+To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote Tweet with reaction.” It’ll let you create Tweet Take, which is essentially a video or picture with the Tweet embedded.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+## How to Make A Good Reaction Video for Twitter?
+
+The next time you see an interesting Tweet, you might be tempted to use the “quote tweet with reaction” feature. Sharing your reaction on any Tweet is more than just posting a picture or video of your facial expressions.
+
+With the help of a good video editor, you can make amazing reaction videos. Wondershare Filmora is a high-quality video editor popular among beginners and professionals alike. The reason you need a video editor is that a lot of people would be making similar kinds of Twitter reaction videos. This makes it hard to stand out and gain traction.
+
+With Filmora, you can create reaction videos with a transparent background without any expensive equipment. The built-in editing features are exceptional when it comes to making video engaging and attractive.
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Use Filmora video editor to create Twitter reaction videos
 
 **Create a reaction video with the PIP feature**
@@ -169,6 +331,9 @@ Now, record your reaction video and import it to the editor as well. You need to
 
 There are over 60 motion effects, numerous transitions, and visual effects to add flair and appeal to your reaction video. These editing tools will make your video attractive and help it stand out.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![choose from a wide selection of editing tools](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-4.png)
 
 You can use its blending modes to control the opacity of the Tweet image or video you’re reacting to.
@@ -177,12 +342,18 @@ You can use its blending modes to control the opacity of the Tweet image or vide
 
 Reaction videos gain tremendous traction, but let's be honest - they're not always that exciting to watch. A lot of times, making a reaction video and sharing thoughts while watching something is just boring. However, there are some tips and tricks you can use to make your reaction videos more interesting and even hilarious!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● The tone is everything
 
 Good reaction videos are fun and positive. Excitement is king here, so don't be afraid to ham it up a bit. Think about the most excited you've ever been in your life — meeting the love of your life, watching a baby take its first steps, scoring tickets to your favorite band's concert — and channel that excitement into your reaction video.
 
 People like watching other people get excited because it reminds them of how much fun life can be.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Be relatable
 
 Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
@@ -207,8 +378,14 @@ Tip: Try not to use any type of music in the background of your video. This can 
 
 Try using special effects in your video. Some editing programs include features that allow you to add special effects and transitions into your video, which can help improve the look and feel of your video after it has been uploaded onto YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![numerous effects in Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Considering the popularity of TikTok reaction videos, Twitter reaction videos are expected to follow the trend.
@@ -223,6 +400,23 @@ Twitter has also jumped on the short video bandwagon to join TikTok and YouTube 
 
 If you want to know more about what this feature is, some of the top Twitter reaction videos, and how to make a good reaction video, keep reading.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## What Is Twitter Reaction Video Feature?
 
 Twitter recently announced that it’s testing a new feature on iOS, which is called “quote tweet with reaction.” It means you can share your take on what a tweet is talking about or simply a reaction in the form of a video or picture.
@@ -233,6 +427,9 @@ To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote
 
 ![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make A Good Reaction Video for Twitter?
 
 The next time you see an interesting Tweet, you might be tempted to use the “quote tweet with reaction” feature. Sharing your reaction on any Tweet is more than just posting a picture or video of your facial expressions.
@@ -251,6 +448,9 @@ Once you have the Tweet you want to react to, you can use Filmora software to cr
 
 Open Filmora on your computer or laptop and select **create a new project.**
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Open Filmora and select create a new project](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-2.png)
 
 Import the Tweet (take a screenshot of the Tweet if it’s an image or text) into the editor. In addition to videos, Filmora allows you to import images or music, as well.
@@ -269,6 +469,9 @@ There are over 60 motion effects, numerous transitions, and visual effects to ad
 
 You can use its blending modes to control the opacity of the Tweet image or video you’re reacting to.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ## Tips for Making Good Twitter Reaction Videos
 
 Reaction videos gain tremendous traction, but let's be honest - they're not always that exciting to watch. A lot of times, making a reaction video and sharing thoughts while watching something is just boring. However, there are some tips and tricks you can use to make your reaction videos more interesting and even hilarious!
@@ -291,10 +494,16 @@ A common mistake people make when recording videos is taking themselves too seri
 
 Eye contact is extremely important when it comes to communicating with other people, but most importantly, it's necessary for keeping your viewer focused on the screen. If you're looking at your notes or fumbling with your phone, it's likely that your viewer will start looking at something else as well. So take advantage of this fact by doing something silly or memorable while narrating your video. It makes for good entertainment and helps keep viewers engaged.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Shoot with clear background
 
 Make sure your background is clear and that your camera is placed in a location where there will be minimal disruptions. The last thing you want is for someone else to sneak into your frame and ruin the quality of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### ● Avoid background music
 
 Tip: Try not to use any type of music in the background of your video. This can distract from the main focus of the video, which is supposed to be your reaction.
@@ -303,102 +512,9 @@ Tip: Try not to use any type of music in the background of your video. This can 
 
 Try using special effects in your video. Some editing programs include features that allow you to add special effects and transitions into your video, which can help improve the look and feel of your video after it has been uploaded onto YouTube.
 
-![numerous effects in Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-5.png)
-
-## Conclusion
-
-Considering the popularity of TikTok reaction videos, Twitter reaction videos are expected to follow the trend.
-
-For certain occasions, these videos are the perfect outlet to express your emotions and give viewers some insight into what you think about the particular Tweet. You could get the same results using a normal video, or even screenshots of your life. But adding the right type of music and visuals to your reaction video are what can make a difference between someone watching and loving it, or rolling their eyes and hitting skip. And, that’s why using the Filmora video editor is a valuable choice.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Twitter has also jumped on the short video bandwagon to join TikTok and YouTube Shorts. Twitter recently announced that it is testing a feature on its iOS app where users can post reactions to tweets.
-
-If you want to know more about what this feature is, some of the top Twitter reaction videos, and how to make a good reaction video, keep reading.
-
-## What Is Twitter Reaction Video Feature?
-
-Twitter recently announced that it’s testing a new feature on iOS, which is called “quote tweet with reaction.” It means you can share your take on what a tweet is talking about or simply a reaction in the form of a video or picture.
-
-The original tweet is embedded in the reaction video or picture.
-
-To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote Tweet with reaction.” It’ll let you create Tweet Take, which is essentially a video or picture with the Tweet embedded.
-
-![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
-
-## How to Make A Good Reaction Video for Twitter?
-
-The next time you see an interesting Tweet, you might be tempted to use the “quote tweet with reaction” feature. Sharing your reaction on any Tweet is more than just posting a picture or video of your facial expressions.
-
-With the help of a good video editor, you can make amazing reaction videos. Wondershare Filmora is a high-quality video editor popular among beginners and professionals alike. The reason you need a video editor is that a lot of people would be making similar kinds of Twitter reaction videos. This makes it hard to stand out and gain traction.
-
-With Filmora, you can create reaction videos with a transparent background without any expensive equipment. The built-in editing features are exceptional when it comes to making video engaging and attractive.
-
-### Use Filmora video editor to create Twitter reaction videos
-
-**Create a reaction video with the PIP feature**
-
-Once you have the Tweet you want to react to, you can use Filmora software to create a reaction video on it.
-
-**● Step 1: Create a new project**
-
-Open Filmora on your computer or laptop and select **create a new project.**
-
-![Open Filmora and select create a new project](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-2.png)
-
-Import the Tweet (take a screenshot of the Tweet if it’s an image or text) into the editor. In addition to videos, Filmora allows you to import images or music, as well.
-
-![Import your media files to Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-3.png)
-
-**● Step 2: Place files on the video track**
-
-Now, record your reaction video and import it to the editor as well. You need to place the Tweet video or image on the video track and then place your reaction video directly above it. The top video should be in a larger size so make sure to adjust its size by clicking on the video and opening it in the preview. Now, drag the handles inward or outward to position the video.
-
-**● Step 3: Use editing tools**
-
-There are over 60 motion effects, numerous transitions, and visual effects to add flair and appeal to your reaction video. These editing tools will make your video attractive and help it stand out.
-
-![choose from a wide selection of editing tools](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-4.png)
-
-You can use its blending modes to control the opacity of the Tweet image or video you’re reacting to.
-
-## Tips for Making Good Twitter Reaction Videos
-
-Reaction videos gain tremendous traction, but let's be honest - they're not always that exciting to watch. A lot of times, making a reaction video and sharing thoughts while watching something is just boring. However, there are some tips and tricks you can use to make your reaction videos more interesting and even hilarious!
-
-### ● The tone is everything
-
-Good reaction videos are fun and positive. Excitement is king here, so don't be afraid to ham it up a bit. Think about the most excited you've ever been in your life — meeting the love of your life, watching a baby take its first steps, scoring tickets to your favorite band's concert — and channel that excitement into your reaction video.
-
-People like watching other people get excited because it reminds them of how much fun life can be.
-
-### ● Be relatable
-
-Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
-
-### ● Keep things fun
-
-A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
-
-### ● Use your body
-
-Eye contact is extremely important when it comes to communicating with other people, but most importantly, it's necessary for keeping your viewer focused on the screen. If you're looking at your notes or fumbling with your phone, it's likely that your viewer will start looking at something else as well. So take advantage of this fact by doing something silly or memorable while narrating your video. It makes for good entertainment and helps keep viewers engaged.
-
-### ● Shoot with clear background
-
-Make sure your background is clear and that your camera is placed in a location where there will be minimal disruptions. The last thing you want is for someone else to sneak into your frame and ruin the quality of your video.
-
-### ● Avoid background music
-
-Tip: Try not to use any type of music in the background of your video. This can distract from the main focus of the video, which is supposed to be your reaction.
-
-### ● Use effects
-
-Try using special effects in your video. Some editing programs include features that allow you to add special effects and transitions into your video, which can help improve the look and feel of your video after it has been uploaded onto YouTube.
-
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![numerous effects in Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-5.png)
 
 ## Conclusion
@@ -432,3 +548,48 @@ For certain occasions, these videos are the perfect outlet to express your emoti
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-laugh-ledger-comedy-chronicles-from-twitters-best-videos/"><u>[New] 2024 Approved  Laugh Ledger  Comedy Chronicles From Twitter's Best Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-resolving-silence-in-tweeted-video-playbacks/"><u>[New] 2024 Approved  Resolving Silence in Tweeted Video Playbacks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-validating-your-visual-story-on-instagram/"><u>[New] 2024 Approved  Validating Your Visual Story on Instagram</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-beatback-bungalow-recordings-downloads-and-reviews-for-2024/"><u>[New] Beatback Bungalow  Recordings Downloads & Reviews for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-capturing-twitters-fun-android-and-iphone-tips-for-2024/"><u>[New] Capturing Twitter's Fun  Android & iPhone Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-guide-to-watching-fb-live-on-roku/"><u>[New] In 2024, The Ultimate Guide to Watching FB Live on Roku</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-viberushers-top-10-themes-betterdiscord-style/"><u>[New] In 2024, VibeRusher’s Top 10 Themes - BetterDiscord Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-photoperfect-optimizing-visuals-and-videos-in-instagram-for-2024/"><u>[New] PhotoPerfect  Optimizing Visuals and Videos in Instagram for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-preserving-the-pixels-how-to-download-animated-tweets-from-twitter-for-2024/"><u>[New] Preserving the Pixels  How To Download Animated Tweets From Twitter for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pros-5-virtual-helmets-a-drone-racers-choice/"><u>[New] Pro's 5 Virtual Helmets  A Drone Racer's Choice</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-quicktweet-clip-swiftly-gather-social-media-vids-for-2024/"><u>[New] QuickTweet Clip  Swiftly Gather Social Media Vids for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-sifting-through-time-a-guide-to-twitter-archives/"><u>[New] Sifting Through Time  A Guide to Twitter Archives</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-snaptweet-transporter-swift-transfer-of-tweets-content-for-2024/"><u>[New] SnapTweet Transporter  Swift Transfer of Tweets' Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-videotwit-grabber-capture-tweets-visuals-for-ios/"><u>[New] VideoTwit Grabber  Capture Tweets' Visuals for iOS</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-1-ranked-youtube-to-text-online-service-for-2024/"><u>[Updated] 1 Ranked  YouTube to Text Online Service for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-digital-experts-5-favorite-video-recorders/"><u>[Updated] 2024 Approved  Digital Experts' 5 Favorite Video Recorders</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-twitter-to-whatsapp-a-guide-to-sharing-online-videos/"><u>[Updated] 2024 Approved  From Twitter to WhatsApp  A Guide to Sharing Online Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-get-your-twitter-video-feed-ready-aspect-ratio-key/"><u>[Updated] In 2024, Get Your Twitter Video Feed Ready  Aspect Ratio Key</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-quicktweetgrabber-swiftly-secure-tweets-videos-on-iphone/"><u>[Updated] In 2024, QuickTweetGrabber  Swiftly Secure Tweets' Videos on iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-synchronizing-tweeted-videos-on-social-media-hub-fb/"><u>[Updated] In 2024, Synchronizing Tweeted Videos on Social Media Hub  FB</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-understanding-igs-evolution-reels-and-stories/"><u>[Updated] In 2024, Understanding IG's Evolution  Reels and Stories</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-insights-how-to-make-your-videos-a-hit-for-2024/"><u>[Updated] Instagram Insights  How to Make Your Videos a Hit for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-trailblazers-cutting-edge-strategies-to-save-tweets-on-screen-for-2024/"><u>[Updated] Tweeted Trailblazers  Cutting-Edge Strategies to Save Tweets on Screen for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-favorites-top-10-tiktok-vids-for-2024/"><u>[Updated] Twitter's Favorites  Top 10 TikTok Vids for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-direct-video-tweet-to-twitter-via-smartphone-no-retweeting/"><u>2024 Approved  Direct Video Tweet to Twitter via Smartphone No Retweeting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rhythm-and-reels-instagram-music-secrets/"><u>2024 Approved  Rhythm & Reels  Instagram Music Secrets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-gif-grabbers-handbook-a-comprehensible-guide-to-downloading-twitter-gifs/"><u>2024 Approved  The GIF Grabber's Handbook  A Comprehensible Guide to Downloading Twitter GIFs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-view-avchd-mts-files-on-samsung-galaxy-a05s-by-aiseesoft-video-converter-play-mts-on-android/"><u>Can I view AVCHD .mts files on Samsung Galaxy A05s?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/chuckle-creation-making-memes-on-kapwing/"><u>Chuckle Creation  Making Memes on Kapwing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-platform-comedy-best-meme-contenders/"><u>Cross-Platform Comedy  Best Meme Contenders</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experience-the-old-school-games-anywhere-with-best-in-class-pc-gb-emulators/"><u>Experience the Old School Games Anywhere with Best-in-Class PC GB Emulators</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-lava-storm-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-quick-methods-for-saving-vimeo-footage/"><u>In 2024, Quick Methods for Saving Vimeo Footage</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/laughter-league-social-medias-best-jokes-for-2024/"><u>Laughter League  Social Media's Best Jokes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/prime-video-trendsetters-top-likers-and-viewers-on-twitter-for-2024/"><u>Prime Video Trendsetters  Top Likers & Viewers on Twitter for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-poco-c55-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Poco C55 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweetstream-extractor-pull-twitter-videos-to-iphone/"><u>TweetStream Extractor  Pull Twitter Videos to iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-audible-tweets-within-social-media-videos-for-2024/"><u>Unveiling Audible Tweets Within Social Media Videos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Huawei Nova Y71? | Dr.fone</u></a></li>
+</ul></div>

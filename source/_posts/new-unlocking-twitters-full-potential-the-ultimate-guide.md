@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlocking Twitter’s Full Potential  The Ultimate Guide\""
-date: 2024-05-21T03:32:40.426Z
-updated: 2024-05-22T03:32:40.426Z
+date: 2024-07-27T14:29:48.271Z
+updated: 2024-07-28T14:29:48.271Z
 tags:
   - ai video
   - ai twitter
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Unlocking Twitter’s Full Potential: The Ultimate Guide\""
 excerpt: "\"This Article Describes [New] Unlocking Twitter’s Full Potential: The Ultimate Guide\""
 keywords: "Twitter Potential Unlocked,Twitter Optimization Guide,Max Growth on Twitter,Twitter Success Tips,Social Media Expansion,Boosting Twitter Presence,Enhancing Twitter Engagement"
-thumbnail: https://www.lifewire.com/thmb/n37lhxEK3xi0v4F3uM79gY0QDLk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/001_is-disneyplus-worth-it-eb19753faecb4525adaf6e4cd29c3ad1.jpg
+thumbnail: https://thmb.techidaily.com/6f7d0e2a43b07618a84ad4bb4532a87360d4eb5cc4017e6eac185e39f8838773.jpg
 ---
 
 ## Unlocking Twitter’s Full Potential: The Ultimate Guide
@@ -29,6 +29,9 @@ thumbnail: https://www.lifewire.com/thmb/n37lhxEK3xi0v4F3uM79gY0QDLk=/400x300/fi
 
  More than half of social media managers think that Twitter is the platform that leads the market in terms of return of investment since 94 percent of the social network's users have claimed that they planned to buy a product after discovering it on Twitter. In this article, we are going to show you how to advertise on Twitter.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of Advertising on Twitter
 
  If your company has reached the decision to start advertising on Twitter, there are three different ways in which you can accomplish this. Promoted Tweets, Promoted Trends and Promoted Accounts all offer different opportunities, so let's take a closer look at each of these options.
@@ -49,6 +52,9 @@ thumbnail: https://www.lifewire.com/thmb/n37lhxEK3xi0v4F3uM79gY0QDLk=/400x300/fi
 
  After someone clicks on the hashtag, they will be able to see a tweet you're promoting as well as a list of results for the given topic. If people start using that hashtag, more Twitter users will learn about your promoted tweet and enable you to grow the number of your followers organically.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ## Types of Twitter Ad Campaigns
 
  Combining several ad products is the most common method of creating an ad campaign on Twitter, although you can also use a single ad product for the same purpose. These are the types of ad campaigns most frequently used by marketers on Twitter.
@@ -81,6 +87,9 @@ thumbnail: https://www.lifewire.com/thmb/n37lhxEK3xi0v4F3uM79gY0QDLk=/400x300/fi
 
 #### Step 1
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
@@ -93,6 +102,9 @@ thumbnail: https://www.lifewire.com/thmb/n37lhxEK3xi0v4F3uM79gY0QDLk=/400x300/fi
 
 #### Step 3
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter ads 3](https://images.wondershare.com/filmora/article-images/twitter-ads-3.jpg)
 
  Once you've defined the target audience as precisely as possible, you can move on to set your budget. By setting the financial limit to your campaign you can control how much you are spending on ads on a daily basis.
@@ -171,18 +183,27 @@ Follow @Ollie Mattison
 
 #### Step 1
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
 #### Step 2
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter ads 2](https://images.wondershare.com/filmora/article-images/twitter-ads-2.jpg)
 
  In the next step, you will be asked to define your target audience. The platform offers a wide array of targeting options including gender, postal code or language. Twitter Ads offers support through the process, so you can maximize efficiency and reduce the costs of the campaign.
 
 #### Step 3
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter ads 3](https://images.wondershare.com/filmora/article-images/twitter-ads-3.jpg)
 
  Once you've defined the target audience as precisely as possible, you can move on to set your budget. By setting the financial limit to your campaign you can control how much you are spending on ads on a daily basis.
@@ -193,6 +214,10 @@ Follow @Ollie Mattison
 
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -255,12 +280,18 @@ Follow @Ollie Mattison
 
  In either case, you will only have to pay for the achieved results, while the rate you'll pay for each click is determined through the auction system.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set up Twitter Ad Campaigns
 
  Creating a new ad campaign is a simple process that can be completed in just four steps. Here's how you can set up your first Twitter ad campaign and start enjoying its benefits.
 
 #### Step 1
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
@@ -283,6 +314,9 @@ Follow @Ollie Mattison
 
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -299,6 +333,9 @@ Follow @Ollie Mattison
 
  More than half of social media managers think that Twitter is the platform that leads the market in terms of return of investment since 94 percent of the social network's users have claimed that they planned to buy a product after discovering it on Twitter. In this article, we are going to show you how to advertise on Twitter.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## Types of Advertising on Twitter
 
  If your company has reached the decision to start advertising on Twitter, there are three different ways in which you can accomplish this. Promoted Tweets, Promoted Trends and Promoted Accounts all offer different opportunities, so let's take a closer look at each of these options.
@@ -319,6 +356,9 @@ Follow @Ollie Mattison
 
  After someone clicks on the hashtag, they will be able to see a tweet you're promoting as well as a list of results for the given topic. If people start using that hashtag, more Twitter users will learn about your promoted tweet and enable you to grow the number of your followers organically.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Types of Twitter Ad Campaigns
 
  Combining several ad products is the most common method of creating an ad campaign on Twitter, although you can also use a single ad product for the same purpose. These are the types of ad campaigns most frequently used by marketers on Twitter.
@@ -351,6 +391,9 @@ Follow @Ollie Mattison
 
 #### Step 1
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
@@ -373,6 +416,9 @@ Follow @Ollie Mattison
 
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -404,3 +450,48 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-resolve-twitter-vids-playback-issue/"><u>[New] 2024 Approved  Resolve Twitter Vids Playback Issue</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-easy-guide-to-taking-and-saving-twitters-gifs/"><u>[New] 2024 Approved  The Easy Guide to Taking and Saving Twitter's Gifs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-fast-lanes-for-jumbled-youtube-playlist-arrangement/"><u>[New] Fast Lanes for Jumbled YouTube Playlist Arrangement</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-building-a-powerful-twitter-marketing-strategy/"><u>[New] In 2024, Building a Powerful Twitter Marketing Strategy</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-mp4-screen-grabber-free-easy-access/"><u>[New] In 2024, MP4 Screen Grabber  Free, Easy Access</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-to-tween-creating-free-animated-videos/"><u>[New] In 2024, Twitter to Tween  Creating FREE Animated Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-unveiling-the-power-of-photo-editing-techniques-to-add-text-in-windowsmacos/"><u>[New] In 2024, Unveiling the Power of Photo Editing  Techniques to Add Text in Windows/MacOS</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-leading-8-software-for-linux-video-editors/"><u>[New] Leading 8 Software for Linux Video Editors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-top-8-interactive-gloves-in-vr/"><u>[New] Unveiling Top 8 Interactive Gloves in VR</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-how-to-add-and-change-thumbnails-of-twitter-videos/"><u>[Updated] 2024 Approved  How to Add and Change Thumbnails of Twitter Videos?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-breaking-barriers-to-sound-in-twitters-visual-share-for-2024/"><u>[Updated] Breaking Barriers to Sound in Twitter's Visual Share for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-customizing-the-twitter-interface-an-experts-tutorial-for-video-images/"><u>[Updated] Customizing the Twitter Interface  An Expert's Tutorial for Video Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-joining-the-twitter-community-from-scratch/"><u>[Updated] In 2024, Joining the Twitter Community From Scratch</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-journey-to-wellness-discovering-the-best-yoga-vloggers-for-2024/"><u>[Updated] Journey to Wellness - Discovering the Best Yoga Vloggers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-learn-to-post-multimedia-video-edition-on-twitter/"><u>[Updated] Learn to Post Multimedia  Video Edition on Twitter</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-pro-tips-grab-your-chromebooks-screen-with-these-4-hacks-for-2024/"><u>[Updated] Pro Tips  Grab Your Chromebook's Screen with These 4 Hacks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-sensational-jokes-ranking-the-viral-ones-for-2024/"><u>[Updated] Sensational Jokes  Ranking the Viral Ones for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-softening-volume-windowsmac-audio-tips/"><u>[Updated] Softening Volume  Windows/Mac Audio Tips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-strategies-for-succeeding-with-facebook-video-marketing-and-revenue-for-2024/"><u>[Updated] Strategies for Succeeding with Facebook Video Marketing and Revenue for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamlining-content-tweeting-videos-on-snapchat/"><u>[Updated] Streamlining Content  Tweeting Videos on Snapchat</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-streamlining-your-path-to-personal-youtube-soundscape/"><u>[Updated] Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-transforming-standard-tweets-into-hd-spectacles-for-2024/"><u>[Updated] Transforming Standard Tweets Into HD Spectacles for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/10-viral-tweets-dominating-social-media/"><u>10 Viral Tweets Dominating Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-correct-no-sound-issue-on-shared-videos/"><u>2024 Approved  Correct No Sound Issue on Shared Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-from-filer-to-fanfare-transmitting-videos-across-services/"><u>2024 Approved  From Filer to Fanfare  Transmitting Videos Across Services</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-top-10-trending-tweets-sparking-conversations-worldwide/"><u>2024 Approved  Top 10 Trending Tweets Sparking Conversations Worldwide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-twitter-to-mp3-how-to-convert-videos-on-social-media/"><u>2024 Approved  Twitter to MP3  How to Convert Videos on Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-video-upload-insights-aspect-ratio-for-twitters-platform/"><u>2024 Approved  Video Upload Insights  Aspect Ratio for Twitter's Platform</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-samsung-galaxy-a15-4g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Samsung Galaxy A15 4G without App | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effective-strategies-for-handling-iphone-photography-challenges-and-resolving-them/"><u>Effective Strategies for Handling iPhone Photography Challenges and Resolving Them</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-vivo-y27-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Vivo Y27 4G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>In 2024, Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-exploring-youtubes-latest-revenue-guidelines/"><u>In 2024, Exploring YouTube's Latest Revenue Guidelines</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-maximizing-your-platforms-posting-tiktok-content-on-twitter/"><u>In 2024, Maximizing Your Platforms  Posting TikTok Content on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>In 2024, Twitter's Viral Spotlight  Top 10 TikToks of the Week</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-breaking-the-rules-10-innovative-glitch-art-video-editing-apps-for-mobile/"><u>New 2024 Approved Breaking the Rules 10 Innovative Glitch Art Video Editing Apps for Mobile</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-oppo-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Oppo .</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-insiders-guide-to-instagram-video-engagement/"><u>The Insider’s Guide to Instagram Video Engagement</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-titans-the-most-shared-tweets-for-2024/"><u>Twitter Titans  The Most Shared Tweets for 2024</u></a></li>
+</ul></div>

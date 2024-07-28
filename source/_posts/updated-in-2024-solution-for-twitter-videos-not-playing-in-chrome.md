@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Solution for Twitter Videos Not Playing in Chrome"
-date: 2024-07-07T03:55:36.936Z
-updated: 2024-07-08T03:55:36.936Z
+date: 2024-07-27T17:03:14.619Z
+updated: 2024-07-28T17:03:14.619Z
 tags:
   - ai video
   - ai twitter
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d2
 
 # Solution for Twitter Videos Not Playing in Chrome
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -47,10 +50,16 @@ One of the most important aspects to consider while fixing this problem is check
 
 If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
 
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
 
 This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
@@ -63,6 +72,9 @@ Clearing cookies and cache can solve multiple problems related to web browsers. 
 
 Under the setting panel find and choose 'Clear Browsing Data'.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
@@ -83,6 +95,9 @@ It will open a new window that contains all the extensions that are installed in
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
 1. #### Disable Hardware Acceleration
@@ -99,6 +114,9 @@ Are you still facing the same problem with Twitter videos after all the changes?
 
 All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -115,3 +133,54 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-convert-twitter-vids-into-aacmp4-files/"><u>[New] 2024 Approved  Convert Twitter Vids Into AAC/MP4 Files</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-effortless-playlist-pivot-the-top-5-spotify-to-youtube-tools/"><u>[New] 2024 Approved  Effortless Playlist Pivot  The Top 5 Spotify-to-YouTube Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-strategy-map-for-skyrocketing-your-fb-page-status/"><u>[New] 2024 Approved  The Ultimate Strategy Map for Skyrocketing Your FB Page Status</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweeting-videos-directly-from-your-phone-no-rt/"><u>[New] 2024 Approved  Tweeting Videos Directly From Your Phone (No RT)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-convert-twitter-video-to-audiomp4webm-for-2024/"><u>[New] Convert Twitter Video to Audio/MP4/WebM for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-crafting-visuals-with-precision-5-top-tips-for-pros-for-2024/"><u>[New] Crafting Visuals with Precision  5 Top Tips for Pros for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-proficiently-use-twitter-archives-in-2024/"><u>[New] How to Proficiently Use Twitter Archives, In 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-2023-how-to-post-twitter-videos-on-snapchat/"><u>[New] In 2024, 2023 | How to Post Twitter Videos on Snapchat?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-breaking-top-tiktok-videos-making-twitter-shout/"><u>[New] In 2024, Breaking  Top TikTok Videos Making Twitter Shout</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-essential-info-for-tweeting-videos-aspect-ratios-required/"><u>[New] In 2024, Essential Info for Tweeting Videos  Aspect Ratios Required</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-winning-approach-to-saving-twitters-humor/"><u>[New] In 2024, Winning Approach to Saving Twitter's Humor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-list-of-6-best-nft-platforms-for-artists/"><u>[New] The Ultimate List of 6 Best NFT Platforms for Artists</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweetvidaudiomaker-instant-sound-output-for-2024/"><u>[New] TweetVidAudioMaker  Instant Sound Output for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitch-your-way-mastering-twitter-video-livestreaming/"><u>[New] Twitch Your Way  Mastering Twitter Video Livestreaming</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitterscape-in-focus-your-route-to-watching-hd-videos-for-2024/"><u>[New] Twitterscape in Focus  Your Route to Watching HD Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-ultimate-list-of-twitter-sensations/"><u>[Updated] 2024 Approved  The Ultimate List of Twitter Sensations</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-the-upside-and-downside-of-virtual-reality-experience/"><u>[Updated] 2024 Approved  The Upside and Downside of Virtual Reality Experience</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unlock-twitter-written-by-your-name/"><u>[Updated] 2024 Approved  Unlock Twitter' Written By  [Your Name]</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-a-streamers-checklist-for-flawless-twitch-live-recordings-for-2024/"><u>[Updated] A Streamer's Checklist for Flawless Twitch Live Recordings for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-photo-and-video-display-apps-from-ix-to-ios12/"><u>[Updated] Best Photo & Video Display Apps From IX to IOS12</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-condense-cinematography-to-instagrams-max-on-macos/"><u>[Updated] Condense Cinematography to Instagram's Max on macOS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-direct-link-between-twitter-and-tumblr-videos-for-2024/"><u>[Updated] Direct Link Between Twitter and Tumblr Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-connected-platforms-sharing-videos-between-twitter-and-tumblr/"><u>[Updated] In 2024, Connected Platforms  Sharing Videos Between Twitter & Tumblr</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-elevate-your-twitter-video-experience-full-hd-edition/"><u>[Updated] In 2024, Elevate Your Twitter Video Experience  Full HD Edition</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-fix-chromium-and-youtube-streams/"><u>[Updated] In 2024, Fix  Chromium and YouTube Streams</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-giggle-galaxy-most-shared-content-on-both-platforms/"><u>[Updated] In 2024, Giggle Galaxy  Most Shared Content on Both Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitters-promotional-features-for-2024/"><u>[Updated] Navigating Twitter's Promotional Features for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-mac-system-all-in-one-screen-and-sound-capture-tool-for-2024/"><u>[Updated] Ultimate Mac System  All-in-One Screen & Sound Capture Tool for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-embrace-audio-freedom-the-revolutionary-pazera-extractor-guide/"><u>2024 Approved  Embrace Audio Freedom  The Revolutionary Pazera Extractor Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-tips-for-efficient-zoom-meeting-arrangements-on-android/"><u>2024 Approved  Tips for Efficient Zoom Meeting Arrangements on Android</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/combine-power-tweeting-and-snapping-with-snapchat/"><u>Combine Power  Tweeting and Snapping with Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/crossing-platforms-upload-video-to-twittertumblr-for-2024/"><u>Crossing Platforms  Upload Video to Twitter/Tumblr for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/guide-downloading-twitters-videos-on-android-devices/"><u>Guide  Downloading Twitters Videos on Android Devices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lava-blaze-pro-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Lava Blaze Pro 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-x-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone X</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-motorola-edge-2023-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Motorola Edge 2023 with Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-dataguardian-consultants-insights/"><u>In 2024, DataGuardian Consultants Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-efficient-video-sharing-on-twitter-from-smartphones/"><u>In 2024, Efficient Video Sharing on Twitter From Smartphones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-exquisite-expression-saver-perfecting-the-art-of-twitter-animations/"><u>In 2024, Exquisite Expression Saver - Perfecting the Art of Twitter Animations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/meme-madness-twitters-funniest-video-threads-for-2024/"><u>Meme Madness  Twitter's Funniest Video Threads for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/revealing-translation-methods-netflix-subtitle-software-comprehensive-guide-for-2024/"><u>Revealing Translation Methods Netflix Subtitle Software Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/standout-strategies-30-innovative-tiktok-profile-photos-for-2024/"><u>Standout Strategies  30 Innovative TikTok Profile Photos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/step-by-step-process-of-crafting-perfect-tweet-ads/"><u>Step-by-Step Process of Crafting Perfect Tweet Ads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/swift-transfer-tweets-as-vids-on-whatsapp-platform/"><u>Swift Transfer  Tweets as Vids on WhatsApp Platform</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-y36-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo Y36 Android SIM Unlock APK</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-connect-optimizing-your-tiktok-content/"><u>Twitter Connect  Optimizing Your TikTok Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unpacking-twitter-video-sharing-the-whatsapp-connection-for-2024/"><u>Unpacking Twitter Video Sharing  The WhatsApp Connection for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] TikTok's Triumph  The Most Shared Videos on Twitter for 2024\""
-date: 2024-05-21T03:47:45.117Z
-updated: 2024-05-22T03:47:45.117Z
+date: 2024-07-27T15:00:17.371Z
+updated: 2024-07-28T15:00:17.371Z
 tags:
   - ai video
   - ai twitter
@@ -33,6 +33,10 @@ Most people think that making videos on TikTok is easy and superficial. After al
 
 Wann’ know how to create something simple yet trend-worthy on TikTok? Take inspiration from these top ten TikTok viral videos that rule Twitter in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## 1\. Zach King’s Harry Potter doing the laundry
 
 ![Screenshot of Zach King’s viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-1.jpg)
@@ -75,8 +79,14 @@ Here’s a link to the video:
 
 [Bella Porch's M to the B](#/@bellapoarch/video/6862153058223197445)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Franek Bielak’s Drawings
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot of Franek Bielak viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-4.jpg)
 
 TikTok is a community-driven social media platform made not just for entertainment but also to show what you are good at. And Franek Bielak uses the platform just for that. Show his talent: drawings. One of the top influencers (of his realm) on TikTok, Franek Biekal’s “This is one of my best drawings” video, is one of the most liked videos on the platform with over 44 million likes. The video pleads users continuously with messages like “Please watch till the end,” “Is worth it,” and Franek shows the drawing process with a low rhythm playing in the background.
@@ -87,8 +97,14 @@ Here’s a link to the video:
 
 [Franek Bielak Drawings](https://www.tiktok.com/@fredziownik%5Fart/video/6911406868699073798?sender%5Fdevice=pc&sender%5Fweb%5Fid=6919038900356089349&is%5Ffrom%5Fwebapp=v3&is%5Fcopy%5Furl=0)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Billie Eilish's first TikTok video
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Billie Eilish viral  Tiktok video](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-5.jpg)
 
 Billie Elish has her own charm, best shown via the first video on TikTok. Billie decided to use a Time Warp Scan filter on her first video to the platform.
@@ -99,6 +115,9 @@ Here’s a link to the video:
 
 [Billie Elish](https://www.tiktok.com/@billieeilish/video/6894081763379924229?refer=embed)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## 6\. @youneszarou’s tasty take on photography
 
 ![Screenshot of @youneszarou tasty take on photograpgy](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-6.jpg)
@@ -111,6 +130,9 @@ Here’s a link to the video:
 
 ## 7\. Nick Luciano's parody video
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![Screenshot of Nick Luciano Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-7.jpg)
 
 Parody might not take you to places, but it is enough to rank your video in the list of the best Twitter video viral TikTok 2022 list. Do not believe? Visit the link attached below and see what Nick Luciano does in the video. Starting with the numbers of likes @kaylavoid's received for her video on SugarCrush, Nick Luciano is shown lip-syncing the same song. And it worked quite well!
@@ -131,6 +153,14 @@ Here’s a link to the video:
 
 ## 9\. A wave hitting the camera
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![Screenshot of a wave hitting the camera Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-9.jpg)
 
 TikTok has shown time and time again that all it takes is a little bit of creativity to be famous on the platform. Once again, it shows that remark to be true via this simple clip of Jordy. In the video, you can see a wave hitting the camera. Yes, that is all in the video, yet it managed to rank as one of the most liked videos on TikTok. And for a reason: Jordy managed to entertain his viewers via a new style of videos continuously. The success of this simple clip is an accumulation of all those videos.
@@ -141,6 +171,9 @@ Here’s a link to the profile:
 
 ## 10\. ZeddyWill’s — Bro, who got you smiling like that?
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot ZeddyWill’s Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-10.jpg)
 
 Some weird poses, swift tones, and a lot of giggling ended up dominating TikTok's soundbites.
@@ -165,6 +198,9 @@ Wann’ know how to create something simple yet trend-worthy on TikTok? Take ins
 
 ## 1\. Zach King’s Harry Potter doing the laundry
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Zach King’s viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-1.jpg)
 
 If you are TikTok or Twitter, you must have seen Zach King’s Harry Potter illusion video. With over 2.8 Billion views, Zach King flying on a broom is the most-watched video on TikTok. And for a reason: be it the caption or video, every second of it is enough to awe the user.
@@ -177,6 +213,10 @@ Here’s a link to the video:
 
 [Zach King’s Harry Potter Illusion.](https://twitter.com/zachking/status/1204490381200506880?ref%5Fsrc=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1204698987325837313%7Ctwgr%5E%7Ctwcon%5Es3%5F&ref%5Furl=https%3A%2F%2Fwww.thepoke.co.uk%2F2019%2F12%2F11%2Fincredible-harry-potter-broom-trick%2F)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## 2\. David Allen’s Dancing with Drones
 
 ![Screenshot of David Allen viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-2.jpg)
@@ -193,6 +233,9 @@ Here’s a link to the video:
 
 ## 3\. Bella Porch’s “M to the B”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot of Bella Porch viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-3.jpg)
 
 When TikTok released the list of the most viral videos of the year, many were surprised to find Bella Porch’s “M to the B” lip-sync. No insult to Bella and her videos, but how can a simple lip-syncing video be the most liked video of the year on TikTok? Is it the cosplay of algorithms? Or is it Bella’s charm that has already managed to get her quite a fan following? Because it was not only TikTok that Bella ruled with this video. It also became a sensation on Twitter, and you could easily find it by typing simple keywords like Twitter video viral 2022 TikTok on Google.
@@ -231,6 +274,9 @@ Here’s a link to the video:
 
 ## 6\. @youneszarou’s tasty take on photography
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ![Screenshot of @youneszarou tasty take on photograpgy](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-6.jpg)
 
 While platforms like Instagram are best known to share your photography skills, you can utilize TikTok to show the effort and process of taking a creative picture. And that is what user [@youneszarou](https://www.tiktok.com/@youneszarou) has done in his most liked video. With the help of an acrylic board, a few orange slices, and his friends, [@youneszarou](https://www.tiktok.com/@youneszarou) shows how he pulled off the beautiful photograph.
@@ -241,6 +287,10 @@ Here’s a link to the video:
 
 ## 7\. Nick Luciano's parody video
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot of Nick Luciano Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-7.jpg)
 
 Parody might not take you to places, but it is enough to rank your video in the list of the best Twitter video viral TikTok 2022 list. Do not believe? Visit the link attached below and see what Nick Luciano does in the video. Starting with the numbers of likes @kaylavoid's received for her video on SugarCrush, Nick Luciano is shown lip-syncing the same song. And it worked quite well!
@@ -269,8 +319,14 @@ Here’s a link to the profile:
 
 [Outdoor Kinda Guy](https://www.tiktok.com/discover/outdoor-kinda-guy?lang=en)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ## 10\. ZeddyWill’s — Bro, who got you smiling like that?
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Screenshot ZeddyWill’s Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-10.jpg)
 
 Some weird poses, swift tones, and a lot of giggling ended up dominating TikTok's soundbites.
@@ -293,8 +349,14 @@ Most people think that making videos on TikTok is easy and superficial. After al
 
 Wann’ know how to create something simple yet trend-worthy on TikTok? Take inspiration from these top ten TikTok viral videos that rule Twitter in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Zach King’s Harry Potter doing the laundry
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Zach King’s viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-1.jpg)
 
 If you are TikTok or Twitter, you must have seen Zach King’s Harry Potter illusion video. With over 2.8 Billion views, Zach King flying on a broom is the most-watched video on TikTok. And for a reason: be it the caption or video, every second of it is enough to awe the user.
@@ -309,6 +371,13 @@ Here’s a link to the video:
 
 ## 2\. David Allen’s Dancing with Drones
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![Screenshot of David Allen viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-2.jpg)
 
 David Allen TikTok’s following blew up overnight after he posted a video showing him dancing in sunglasses to the song “Stay” by Justin Beiber and The Kid LAROI. In fact, it became the video of the year in America and the world as far as TikTok is concerned.
@@ -321,6 +390,9 @@ Here’s a link to the video:
 
 [David Allen Dancing with Drones](https://www.tiktok.com/@totouchanemu/video/6990181852803894533?is%5Fcopy%5Furl=0&is%5Ffrom%5Fwebapp=v1&sender%5Fdevice=pc&sender%5Fweb%5Fid=6981905548543346181)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Bella Porch’s “M to the B”
 
 ![Screenshot of Bella Porch viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-3.jpg)
@@ -337,6 +409,9 @@ Here’s a link to the video:
 
 ## 4\. Franek Bielak’s Drawings
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Franek Bielak viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-4.jpg)
 
 TikTok is a community-driven social media platform made not just for entertainment but also to show what you are good at. And Franek Bielak uses the platform just for that. Show his talent: drawings. One of the top influencers (of his realm) on TikTok, Franek Biekal’s “This is one of my best drawings” video, is one of the most liked videos on the platform with over 44 million likes. The video pleads users continuously with messages like “Please watch till the end,” “Is worth it,” and Franek shows the drawing process with a low rhythm playing in the background.
@@ -349,6 +424,9 @@ Here’s a link to the video:
 
 ## 5\. Billie Eilish's first TikTok video
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Billie Eilish viral  Tiktok video](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-5.jpg)
 
 Billie Elish has her own charm, best shown via the first video on TikTok. Billie decided to use a Time Warp Scan filter on her first video to the platform.
@@ -359,6 +437,9 @@ Here’s a link to the video:
 
 [Billie Elish](https://www.tiktok.com/@billieeilish/video/6894081763379924229?refer=embed)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. @youneszarou’s tasty take on photography
 
 ![Screenshot of @youneszarou tasty take on photograpgy](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-6.jpg)
@@ -379,6 +460,9 @@ Here’s a link to the video:
 
 [Nick Luciano Parody Video](https://www.tiktok.com/@thenickluciano/video/7012645750429519109?lang=en)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 8\. [@myaussiegal's](https://www.tiktok.com/@my%5Faussie%5Fga) Dog Drawing
 
 ![Screenshot of @myaussiegal Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-8.jpg)
@@ -389,8 +473,14 @@ Here’s a link to the video:
 
 [Dog Drawing a Sunflower](https://www.tiktok.com/@my%5Faussie%5Fgal/video/6995226837378944262?referer%5Furl=https%3A%2F%2Fwww.buzzfeed.com%2F&referer%5Fvideo%5Fid=6986336677748935942&refer=embed)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. A wave hitting the camera
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of a wave hitting the camera Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-9.jpg)
 
 TikTok has shown time and time again that all it takes is a little bit of creativity to be famous on the platform. Once again, it shows that remark to be true via this simple clip of Jordy. In the video, you can see a wave hitting the camera. Yes, that is all in the video, yet it managed to rank as one of the most liked videos on TikTok. And for a reason: Jordy managed to entertain his viewers via a new style of videos continuously. The success of this simple clip is an accumulation of all those videos.
@@ -401,6 +491,9 @@ Here’s a link to the profile:
 
 ## 10\. ZeddyWill’s — Bro, who got you smiling like that?
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot ZeddyWill’s Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-10.jpg)
 
 Some weird poses, swift tones, and a lot of giggling ended up dominating TikTok's soundbites.
@@ -423,6 +516,9 @@ Most people think that making videos on TikTok is easy and superficial. After al
 
 Wann’ know how to create something simple yet trend-worthy on TikTok? Take inspiration from these top ten TikTok viral videos that rule Twitter in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 1\. Zach King’s Harry Potter doing the laundry
 
 ![Screenshot of Zach King’s viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-1.jpg)
@@ -439,6 +535,9 @@ Here’s a link to the video:
 
 ## 2\. David Allen’s Dancing with Drones
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of David Allen viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-2.jpg)
 
 David Allen TikTok’s following blew up overnight after he posted a video showing him dancing in sunglasses to the song “Stay” by Justin Beiber and The Kid LAROI. In fact, it became the video of the year in America and the world as far as TikTok is concerned.
@@ -451,6 +550,9 @@ Here’s a link to the video:
 
 [David Allen Dancing with Drones](https://www.tiktok.com/@totouchanemu/video/6990181852803894533?is%5Fcopy%5Furl=0&is%5Ffrom%5Fwebapp=v1&sender%5Fdevice=pc&sender%5Fweb%5Fid=6981905548543346181)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Bella Porch’s “M to the B”
 
 ![Screenshot of Bella Porch viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-3.jpg)
@@ -465,6 +567,9 @@ Here’s a link to the video:
 
 [Bella Porch's M to the B](#/@bellapoarch/video/6862153058223197445)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Franek Bielak’s Drawings
 
 ![Screenshot of Franek Bielak viral Tiktok video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-4.jpg)
@@ -479,6 +584,9 @@ Here’s a link to the video:
 
 ## 5\. Billie Eilish's first TikTok video
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Billie Eilish viral  Tiktok video](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-5.jpg)
 
 Billie Elish has her own charm, best shown via the first video on TikTok. Billie decided to use a Time Warp Scan filter on her first video to the platform.
@@ -489,6 +597,9 @@ Here’s a link to the video:
 
 [Billie Elish](https://www.tiktok.com/@billieeilish/video/6894081763379924229?refer=embed)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. @youneszarou’s tasty take on photography
 
 ![Screenshot of @youneszarou tasty take on photograpgy](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-6.jpg)
@@ -501,6 +612,9 @@ Here’s a link to the video:
 
 ## 7\. Nick Luciano's parody video
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of Nick Luciano Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-7.jpg)
 
 Parody might not take you to places, but it is enough to rank your video in the list of the best Twitter video viral TikTok 2022 list. Do not believe? Visit the link attached below and see what Nick Luciano does in the video. Starting with the numbers of likes @kaylavoid's received for her video on SugarCrush, Nick Luciano is shown lip-syncing the same song. And it worked quite well!
@@ -511,6 +625,9 @@ Here’s a link to the video:
 
 ## 8\. [@myaussiegal's](https://www.tiktok.com/@my%5Faussie%5Fga) Dog Drawing
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot of @myaussiegal Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-8.jpg)
 
 Will you be amazed that a dog is drawing a flower, or it is one of the most liked videos on TikTok? Because both are true. And [@myaussiegal's](https://www.tiktok.com/@my%5Faussie%5Fga) shows that in her video. A dog carrying out the canvas, the paint tubes, and drawing out a charming sunflower — and users make it one of the most liked videos on TikTok.
@@ -521,6 +638,9 @@ Here’s a link to the video:
 
 ## 9\. A wave hitting the camera
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot of a wave hitting the camera Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-9.jpg)
 
 TikTok has shown time and time again that all it takes is a little bit of creativity to be famous on the platform. Once again, it shows that remark to be true via this simple clip of Jordy. In the video, you can see a wave hitting the camera. Yes, that is all in the video, yet it managed to rank as one of the most liked videos on TikTok. And for a reason: Jordy managed to entertain his viewers via a new style of videos continuously. The success of this simple clip is an accumulation of all those videos.
@@ -531,6 +651,10 @@ Here’s a link to the profile:
 
 ## 10\. ZeddyWill’s — Bro, who got you smiling like that?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Screenshot ZeddyWill’s Tiktok viral video ](https://images.wondershare.com/filmora/article-images/2022/02/tiktok-viral-videos-on-twitter-10.jpg)
 
 Some weird poses, swift tones, and a lot of giggling ended up dominating TikTok's soundbites.
@@ -539,6 +663,9 @@ Here’s a link to the video:
 
 [Zeddy's Bro, who got you smiling like that?](https://www.tiktok.com/@zeddywill/video/6988664229502979334?referer%5Furl=https%3A%2F%2Fwww.buzzfeed.com%2F&referer%5Fvideo%5Fid=6988664229502979334&refer=embed)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Those are the top 10 clips for this Twitter Video Viral 2022 TikTok list. Hope you found out some valuable tips to employ in your own videos. And who knows? You can make our list next year. Of course, it is not that easy to explode on TikTok. But with a little time and effort, that fear is not hard to achieve.
@@ -568,3 +695,50 @@ Those are the top 10 clips for this Twitter Video Viral 2022 TikTok list. Hope y
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-custom-thumbnail-for-twitter-videos/"><u>[New] 2024 Approved  Custom Thumbnail for Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-screen-saver-saviors-how-to-download-and-save-your-favorite-tweets/"><u>[New] 2024 Approved  Screen Saver Saviors  How to Download and Save Your Favorite Tweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-sharing-twitter-videos-a-step-by-step-guide-for-whatsapp-users/"><u>[New] 2024 Approved  Sharing Twitter Videos  A Step-by-Step Guide for WhatsApp Users</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-converting-social-media-audio-to-personalized-mobile-alerts/"><u>[New] Converting Social Media Audio to Personalized Mobile Alerts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-exploring-the-essence-of-vimeo-a-leader-in-video-platforms/"><u>[New] In 2024, Exploring the Essence of Vimeo  A Leader in Video Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-talking-audio-log-audit/"><u>[New] In 2024, Talking Audio Log Audit</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-master-money-making-on-reddit-in-just-a-few-simple-steps/"><u>[New] Master Money-Making on Reddit in Just a Few Simple Steps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twittify-your-snaps-seamless-tweeting-to-snapsharing-for-2024/"><u>[New] Twittify Your Snaps  Seamless Tweeting-to-Snapsharing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-archive-your-antics-a-practical-guide-to-capturing-and-storing-gif-images-from-twitter/"><u>[Updated] 2024 Approved  Archive Your Antics  A Practical Guide to Capturing and Storing GIF Images From Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-preeminent-platforms-twitter-like-experiences/"><u>[Updated] 2024 Approved  Preeminent Platforms  Twitter-Like Experiences</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-primewave-riders-most-fancied-and-binge-watched-originals-on-twitter/"><u>[Updated] 2024 Approved  PrimeWave Riders  Most Fancied & Binge-Watched Originals on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-snap-and-save-securely-downloading-vids-from-twitter/"><u>[Updated] 2024 Approved  Snap & Save  Securely Downloading Vids From Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cost-free-creative-twitter-videos-to-gif-magic/"><u>[Updated] Cost-Free Creative  Twitter Videos to Gif Magic</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-crafting-memorable-tweets-video-integration-for-2024/"><u>[Updated] Crafting Memorable Tweets  Video Integration for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cross-social-video-broadcasting-from-twitter-to-snapchat-for-2024/"><u>[Updated] Cross-Social Video Broadcasting  From Twitter, To Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-flashfacts-the-social-media-spark-of-video-tweet-for-2024/"><u>[Updated] FlashFacts  The Social Media Spark of Video Tweet for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-prime-video-power-players-all-time-top-tweets-and-views-ranking/"><u>[Updated] In 2024, Prime Video Power Players  All-Time Top Tweets & Views Ranking</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-zoom-in-on-success-screenshots-made-simple-by-ezvide-tech/"><u>[Updated] In 2024, Zoom In on Success  Screenshots Made Simple by EZvide Tech</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-youtube-permanently-stop-video-snips-complete-guide/"><u>[Updated] Mastering YouTube  Permanently Stop Video Snips [Complete Guide]</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweeting-visuals-integrating-youtube-and-snapchat/"><u>[Updated] Tweeting Visuals  Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-apex-sporting-cameras-for-extreme-enthusiasts/"><u>2024 Approved  Apex Sporting Cameras for Extreme Enthusiasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-easy-process-how-to-save-twitter-videos-on-an-android-device/"><u>2024 Approved  Easy Process  How to Save Twitter Videos on an Android Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-restore-noise-to-silent-twitter-video-posts/"><u>2024 Approved  Restore Noise to Silent Twitter Video Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-social-sensation-best-insta-stories-effects/"><u>2024 Approved  Social Sensation  Best Insta Stories Effects</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-picks-for-gaming-displays-on-xbox-series-x-console/"><u>2024 Approved  Top Picks for Gaming Displays on Xbox Series X Console</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-vidovibes-engage-with-twitter-then-save-the-moving-pictures/"><u>2024 Approved  VidoVibes  Engage with Twitter, Then Save the Moving Pictures</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boost-engagement-posting-twitter-videos-on-snapchat/"><u>Boost Engagement  Posting Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boosting-visuals-high-definition-on-twitter-vids/"><u>Boosting Visuals  High-Definition on Twitter Vids</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/camera-screens-at-your-fingertips-review-of-top-free-recorders/"><u>Camera Screens at Your Fingertips  Review of Top Free Recorders</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-youtube-share-on-snapchat-tips-for-2024/"><u>Direct YouTube, Share on Snapchat  Tips for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-apple-iphone-12-mini-how-to-unlock-a-disabled-apple-iphone-12-mini-by-drfone-ios/"><u>Disabled Apple iPhone 12 mini How to Unlock a Disabled Apple iPhone 12 mini?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-infinix-note-30-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Infinix Note 30 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-apple-iphone-15-pro-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, Apple iPhone 15 Pro Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-primevideos-leaders-twitters-best-liked-and-most-watched-content/"><u>In 2024, PrimeVideos Leaders  Twitter's Best-Liked & Most-Watched Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-ultimate-2023-tweet-video-roundup/"><u>In 2024, Ultimate 2023 Tweet Video Roundup</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maximize-impact-tweeting-with-videos-for-2024/"><u>Maximize Impact  Tweeting with Videos for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/minimizing-browser-resource-usage-winmacchromeos-comparison/"><u>Minimizing Browser Resource Usage: Win/Mac/ChromeOS Comparison</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/precision-in-volume-decrease-lumafusions-methodology/"><u>Precision in Volume Decrease  Lumafusion's Methodology</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/shift-twitter-video-preview-panel/"><u>Shift Twitter Video Preview Panel</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/sky-surfing-in-hd-with-the-yuneec-drone-review-for-2024/"><u>Sky Surfing in HD with the Yuneec Drone Review for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-picks-7-royalty-free-audios-for-video-editing/"><u>Top Picks  7 Royalty-Free Audios for Video Editing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/videotwit-extractor-directly-download-tweeted-media-for-mobile/"><u>VideoTwit Extractor  Directly Download Tweeted Media for Mobile</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/vimeoifytweets-video-to-mp3-and-mp4/"><u>VimeoifyTweets  Video-to-MP3 & MP4</u></a></li>
+</ul></div>

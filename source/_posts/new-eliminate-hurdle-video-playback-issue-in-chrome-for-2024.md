@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Eliminate Hurdle  Video Playback Issue in Chrome for 2024\""
-date: 2024-05-21T04:22:22.573Z
-updated: 2024-05-22T04:22:22.573Z
+date: 2024-07-27T16:10:04.777Z
+updated: 2024-07-28T16:10:04.777Z
 tags:
   - ai video
   - ai twitter
@@ -12,13 +12,16 @@ categories:
 description: "\"This Article Describes [New] Eliminate Hurdle: Video Playback Issue in Chrome for 2024\""
 excerpt: "\"This Article Describes [New] Eliminate Hurdle: Video Playback Issue in Chrome for 2024\""
 keywords: "Chrome Video Play Issue,Fixing Browser Lag,Stop Chrome Buffering,Resolve Video Glitches,Chrome Playback Error Fix,Clear Chrome Video Hiccups,Enhance Chrome Video Speed"
-thumbnail: https://www.lifewire.com/thmb/pS9dw1BYrcj7JfjdKUdVPI_At5g=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/woman-with-remote-cropped-getty-169707531-5b2ebd5943a1030036b1eb56.jpg
+thumbnail: https://thmb.techidaily.com/bca0e2a8225a07a3beb4a4a94473f168eb2b08c9ce7db19335f27276911d69ad.jpg
 ---
 
 ## Eliminate Hurdle: Video Playback Issue in Chrome
 
 # Solution for Twitter Videos Not Playing in Chrome
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -27,6 +30,118 @@ thumbnail: https://www.lifewire.com/thmb/pS9dw1BYrcj7JfjdKUdVPI_At5g=/400x300/fi
 
 Social Media Platforms without videos seem to be a horrifying thought. Videos are one of the most engaging and eye-catching sources of information. Human nature prefers an easy and convenient way to get the required information such as videos instead of reading an entire article or post. Unfortunately, there is a common problem of Twitter videos not playing in Chrome for most Twitter users. There can so many distinct reasons that might be causing such a problem. If you are the one who is facing the issue of Twitter videos not playing in Chrome, then this article is for you. By following the methods discussed in this article, the videos will start to auto-play while you scroll through the Twitter Feed.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/download-gif-from-twitter.gif)
+
+There could be so many reasons for Twitter videos not playing in Chrome. We will go through each reason one by one and try to solve all those reasons to see which one works for you.
+
+---
+
+**You might be interested in:**
+
+* [How to Download Twitter Video](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+1. #### Twitter Video Format
+
+One of the most important aspects to consider while fixing this problem is checking if the video that is not being played has the correct format. Twitter only supports MP4 video format and A64 audio format. If any video on Twitter doesn't have such a format, it will not play. If only a few Twitter videos are not playing in Chrome but most of the videos are playing, this might be the problem with those videos. The best way o watch those videos is to download them using a third-party downloading platform.
+
+1. #### Flash for Twitter
+
+If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
+
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
+![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
+
+In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
+
+![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
+
+This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
+
+1. #### Clear Cookies and Cache
+
+Clearing cookies and cache can solve multiple problems related to web browsers. If the above method didn't work for you, try clearing your Chrome browser's cookies and cache. This method will restore any changes or settings that were saved and make your browser load the website in its original form. To do that, go to the setting of Chrome.
+
+![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
+
+Under the setting panel find and choose 'Clear Browsing Data'.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
+![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
+
+Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
+
+![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
+
+This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
+
+1. #### Disable Chrome Extensions
+
+If you are still facing Twitter videos not playing in Chrome but playing in other browsers after applying all the above methods. You should try disabling all the Chrome extensions that are enabled in your Chrome browser, then reload the page and check if the videos are playing now or not.
+
+To disable Chrome extensions, go to the "More Tools" then click on "Extensions".
+
+![twitter-video-not-playing-fix7](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix7.jpg)
+
+It will open a new window that contains all the extensions that are installed in your Chrome browser. Disable each of these extensions one by one.
+
+After disabling all the extensions, reload the page and see if the videos are playing or not.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
+
+1. #### Disable Hardware Acceleration
+
+Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![twitter-video-not-playing-fix9](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix9.jpg)
+
+Now try to play the Twitter videos. Hopefully, it will work now. If not then you can try the last step.
+
+1. #### Update your Browser
+
+Are you still facing the same problem with Twitter videos after all the changes? Then the last thing you should try is to update your browser. If you are running an outdated version of Chrome, it might hinder the videos from playing. In addition, the outdated version can make your browser incompatible with Twitter videos. You can quickly check if your browser is an updated version of Chrome or not by clicking on the three dots on the top right corner of the browser. If it shows you an option to update your browser, you are running an outdated Chrome version. Therefore, you should update it as soon as possible to fix all the problems related to it, including playing Twitter videos.
+
+All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Social Media Platforms without videos seem to be a horrifying thought. Videos are one of the most engaging and eye-catching sources of information. Human nature prefers an easy and convenient way to get the required information such as videos instead of reading an entire article or post. Unfortunately, there is a common problem of Twitter videos not playing in Chrome for most Twitter users. There can so many distinct reasons that might be causing such a problem. If you are the one who is facing the issue of Twitter videos not playing in Chrome, then this article is for you. By following the methods discussed in this article, the videos will start to auto-play while you scroll through the Twitter Feed.
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/download-gif-from-twitter.gif)
 
 There could be so many reasons for Twitter videos not playing in Chrome. We will go through each reason one by one and try to solve all those reasons to see which one works for you.
@@ -51,6 +166,9 @@ If you have checked the above aspect and it is not the case with your Twitter vi
 
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
 
 This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
@@ -63,6 +181,9 @@ Clearing cookies and cache can solve multiple problems related to web browsers. 
 
 Under the setting panel find and choose 'Clear Browsing Data'.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
@@ -145,6 +266,23 @@ This will allow Twitter to use flash to play videos. If this was the reason behi
 
 Clearing cookies and cache can solve multiple problems related to web browsers. If the above method didn't work for you, try clearing your Chrome browser's cookies and cache. This method will restore any changes or settings that were saved and make your browser load the website in its original form. To do that, go to the setting of Chrome.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
 
 Under the setting panel find and choose 'Clear Browsing Data'.
@@ -163,12 +301,18 @@ If you are still facing Twitter videos not playing in Chrome but playing in othe
 
 To disable Chrome extensions, go to the "More Tools" then click on "Extensions".
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix7](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix7.jpg)
 
 It will open a new window that contains all the extensions that are installed in your Chrome browser. Disable each of these extensions one by one.
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
 1. #### Disable Hardware Acceleration
@@ -185,6 +329,9 @@ Are you still facing the same problem with Twitter videos after all the changes?
 
 All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -219,10 +366,17 @@ One of the most important aspects to consider while fixing this problem is check
 
 If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
 
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
 
 This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
@@ -249,12 +403,18 @@ If you are still facing Twitter videos not playing in Chrome but playing in othe
 
 To disable Chrome extensions, go to the "More Tools" then click on "Extensions".
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix7](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix7.jpg)
 
 It will open a new window that contains all the extensions that are installed in your Chrome browser. Disable each of these extensions one by one.
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
 1. #### Disable Hardware Acceleration
@@ -271,92 +431,9 @@ Are you still facing the same problem with Twitter videos after all the changes?
 
 All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
 
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Social Media Platforms without videos seem to be a horrifying thought. Videos are one of the most engaging and eye-catching sources of information. Human nature prefers an easy and convenient way to get the required information such as videos instead of reading an entire article or post. Unfortunately, there is a common problem of Twitter videos not playing in Chrome for most Twitter users. There can so many distinct reasons that might be causing such a problem. If you are the one who is facing the issue of Twitter videos not playing in Chrome, then this article is for you. By following the methods discussed in this article, the videos will start to auto-play while you scroll through the Twitter Feed.
-
-![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/download-gif-from-twitter.gif)
-
-There could be so many reasons for Twitter videos not playing in Chrome. We will go through each reason one by one and try to solve all those reasons to see which one works for you.
-
----
-
-**You might be interested in:**
-
-* [How to Download Twitter Video](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-1. #### Twitter Video Format
-
-One of the most important aspects to consider while fixing this problem is checking if the video that is not being played has the correct format. Twitter only supports MP4 video format and A64 audio format. If any video on Twitter doesn't have such a format, it will not play. If only a few Twitter videos are not playing in Chrome but most of the videos are playing, this might be the problem with those videos. The best way o watch those videos is to download them using a third-party downloading platform.
-
-1. #### Flash for Twitter
-
-If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
-
-![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
-
-In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
-
-![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
-
-This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
-
-1. #### Clear Cookies and Cache
-
-Clearing cookies and cache can solve multiple problems related to web browsers. If the above method didn't work for you, try clearing your Chrome browser's cookies and cache. This method will restore any changes or settings that were saved and make your browser load the website in its original form. To do that, go to the setting of Chrome.
-
-![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
-
-Under the setting panel find and choose 'Clear Browsing Data'.
-
-![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
-
-Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
-
-![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
-
-This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
-
-1. #### Disable Chrome Extensions
-
-If you are still facing Twitter videos not playing in Chrome but playing in other browsers after applying all the above methods. You should try disabling all the Chrome extensions that are enabled in your Chrome browser, then reload the page and check if the videos are playing now or not.
-
-To disable Chrome extensions, go to the "More Tools" then click on "Extensions".
-
-![twitter-video-not-playing-fix7](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix7.jpg)
-
-It will open a new window that contains all the extensions that are installed in your Chrome browser. Disable each of these extensions one by one.
-
-After disabling all the extensions, reload the page and see if the videos are playing or not.
-
-![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
-
-1. #### Disable Hardware Acceleration
-
-Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
-
-![twitter-video-not-playing-fix9](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix9.jpg)
-
-Now try to play the Twitter videos. Hopefully, it will work now. If not then you can try the last step.
-
-1. #### Update your Browser
-
-Are you still facing the same problem with Twitter videos after all the changes? Then the last thing you should try is to update your browser. If you are running an outdated version of Chrome, it might hinder the videos from playing. In addition, the outdated version can make your browser incompatible with Twitter videos. You can quickly check if your browser is an updated version of Chrome or not by clicking on the three dots on the top right corner of the browser. If it shows you an option to update your browser, you are running an outdated Chrome version. Therefore, you should update it as soon as possible to fix all the problems related to it, including playing Twitter videos.
-
-All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -388,3 +465,65 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-decoding-twitter-archived-content-for-clarity/"><u>[New] 2024 Approved  Decoding Twitter Archived Content for Clarity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-hear-now-or-never-the-solution-for-twitter-vids/"><u>[New] 2024 Approved  Hear Now or Never  The Solution for Twitter Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-link-up-titles-video-upload-to-twittertumblr/"><u>[New] 2024 Approved  Link-Up Titles  Video Upload to Twitter/Tumblr</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-premier-sites-for-tweeting-in-a-post-twitter-era/"><u>[New] 2024 Approved  Premier Sites for Tweeting in a Post-Twitter Era</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-jokes-unveiled-3-pc-based-methods/"><u>[New] 2024 Approved  Twitter Jokes Unveiled  3 PC-Based Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-all-about-2023s-twitter-live-vids-for-2024/"><u>[New] All About 2023'S Twitter Live Vids for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-crafting-impactful-reactions-the-ultimate-guidebook-for-2024/"><u>[New] Crafting Impactful Reactions  The Ultimate Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-much-money-do-youtubers-make-per-view/"><u>[New] How Much Money Do YouTubers Make Per View</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-hilarious-highlights-reddit-and-twitters-best-bits/"><u>[New] In 2024, Hilarious Highlights  Reddit and Twitter's Best Bits</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-share-twitter-videos-on-facebook/"><u>[New] In 2024, How to Share Twitter Videos on Facebook?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-pinnacle-solution-for-virtual-realms/"><u>[New] In 2024, Pinnacle Solution for Virtual Realms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-your-pathway-to-mastery-in-youtube-vids-on-twitter/"><u>[New] In 2024, Your Pathway to Mastery in YouTube Vids on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mastering-memes-top-twitter-gif-saver-of-2024-unveiled/"><u>[New] Mastering Memes  Top Twitter GIF Saver of 2024 Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-the-landscape-of-online-storytelling-with-reels/"><u>[New] Navigating the Landscape of Online Storytelling with Reels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-re-enable-sound-on-twitter-video-tweets-for-2024/"><u>[New] Re-Enable Sound on Twitter Video Tweets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-reclaiming-acoustics-lost-in-social-media-videos-for-2024/"><u>[New] Reclaiming Acoustics Lost in Social Media Videos for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-twitter-gif-repository-capturing-the-essence-in-frames-for-2024/"><u>[New] Twitter Gif Repository  Capturing the Essence in Frames for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-amazons-favorite-originals-twitter-top-picks/"><u>[Updated] 2024 Approved  Amazon's Favorite Originals - Twitter Top Picks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-capture-twitter-gifs-on-your-computer-quickly/"><u>[Updated] 2024 Approved  Capture Twitter Gifs on Your Computer Quickly</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-cushioning-calm-top-relaxing-pc-titles/"><u>[Updated] 2024 Approved  Cushioning Calm  Top Relaxing PC Titles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-keeping-the-laughs-iosandroid-methods-for-tweets-as-gifs/"><u>[Updated] 2024 Approved  Keeping the Laughs  IOS/Android Methods for Tweets as GIFs</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-best-practices-leveraging-videos-to-boost-education/"><u>[Updated] In 2024, Best Practices  Leveraging Videos to Boost Education</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-deliberating-on-auroras-contribution-to-photographic-quality/"><u>[Updated] In 2024, Deliberating on Aurora’s Contribution to Photographic Quality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers/"><u>[Updated] In 2024, Essential Insights  How to Choose Among the Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-laughter-ledger-twittersphere-tales-for-2024/"><u>[Updated] Laughter Ledger  Twittersphere Tales for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel-for-2024/"><u>[Updated] Shift Twitter Video Preview Panel for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-media-synopsis-top-trending-twitvideos/"><u>[Updated] Social Media Synopsis  Top Trending TwitVideos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-toolkit-for-youtube-video-editors-everywhere/"><u>[Updated] The Essential Toolkit for YouTube Video Editors Everywhere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-upload-and-share-videos-on-twitter-made-easy/"><u>[Updated] Upload & Share  Videos on Twitter Made Easy</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/10t-5g-messages-recovery-recover-deleted-messages-from-10t-5g-by-fonelab-android-recover-messages/"><u>10T 5G Messages Recovery - Recover Deleted Messages from 10T 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-maximizing-viewing-tweeting-in-high-definition-hd/"><u>2024 Approved  Maximizing Viewing  Tweeting in High Definition (HD)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ultimate-2023-tweet-video-roundup/"><u>2024 Approved  Ultimate 2023 Tweet Video Roundup</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/a-stepwise-approach-to-twitter-archive-utilization/"><u>A Stepwise Approach to Twitter Archive Utilization</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/compelling-case-for-continuing-with-windows-10-win10/"><u>Compelling Case for Continuing with Windows 10 (Win10)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/direct-webcam-streaming-with-vlc-for-2024/"><u>Direct Webcam Streaming with VLC for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-social-to-storage-iphone-and-android-gif-savings-for-2024/"><u>From Social to Storage  IPhone & Android GIF Savings for 2024</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-13-pro-max-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 13 Pro Max Data Completely | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-screen-mirroring-apple-iphone-15-pro-to-tv-or-pc-drfone-by-drfone-ios/"><u>How Screen Mirroring Apple iPhone 15 Pro to TV or PC? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-oneplus-nord-3-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your OnePlus Nord 3 5G</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-on-hold-charging-issue-a-step-by-step-guide/"><u>How to Resolve 'On-Hold Charging' Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-save-funny-tweet-graphics-gifs-in-minutes/"><u>How To Save Funny Tweet Graphics (GIFs) in Minutes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-guide-to-gathering-gold-from-guided-goods-gazes-online/"><u>In 2024, A Guide to Gathering Gold From Guided Goods' Gazes Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-expert-blueprint-fashioning-timer-functionality-with-video-editors/"><u>In 2024, Expert Blueprint  Fashioning Timer Functionality with Video Editors</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-virtuoso-your-guide-to-windows-8-movie-maker/"><u>In 2024, From Novice to Virtuoso  Your Guide to Windows 8 Movie Maker</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-ios-video-experience-the-10-most-excellent-players/"><u>In 2024, IOS Video Experience  The 10 Most Excellent Players</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-15-pro-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your iPhone 15 Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-hd-chronicles-of-twitters-visual-content/"><u>In 2024, The HD Chronicles of Twitter's Visual Content</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/no-more-warped-graphics-in-win11/"><u>No More Warped Graphics in Win11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/non-twitter-video-tweeting-hacks-for-the-modern-user-for-2024/"><u>Non-Twitter Video Tweeting Hacks for the Modern User for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/reactivating-hidden-remove-option-for-pin-access-control/"><u>Reactivating Hidden 'Remove' Option for PIN Access Control</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/snort-spree-top-10-viral-laughs-online-for-2024/"><u>Snort Spree  Top 10 Viral Laughs Online for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/spectacular-mini-houses-you-cant-miss-in-mc/"><u>Spectacular Mini-Houses You Can't Miss in MC</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-best-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>Updated 2024 Approved Best 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-read-on-to-learn-about-opencv-object-tracking-what-it-is-and-how-to-implement-it-in-python-and-opencv/"><u>Updated 2024 Approved Read on to Learn About OpenCV Object Tracking, What It Is, and How to Implement It in Python, and OpenCV</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/videotwitterconverter-direct-media-conversion-for-2024/"><u>VideoTwitterConverter  Direct Media Conversion for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/vimeoifytweets-audiovideo-tweet-tool/"><u>VimeoifyTweets  Audio/Video Tweet Tool</u></a></li>
+<li><a href="https://games-able.techidaily.com/youtube-games-unleash-your-potential-on-new-mini-challenges/"><u>YouTube Games: Unleash Your Potential on New Mini Challenges!</u></a></li>
+</ul></div>
