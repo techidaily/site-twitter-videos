@@ -1,7 +1,7 @@
 ---
 title: "Ayaneo Unveils the Newly Launched AMD-Driven Mini PC: The Classic Macintosh Revival - Now in Retail!"
-date: 2024-08-13T21:03:48.244Z
-updated: 2024-08-14T21:03:48.244Z
+date: 2024-09-04T03:41:32.581Z
+updated: 2024-09-05T03:41:32.581Z
 tags:
   - desktop
 categories:
@@ -49,9 +49,6 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -148,3 +145,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 <li><a href="https://twitter-videos.techidaily.com/unpacking-speed-and-value-in-depth-review-of-the-tp-link-archer-c80-sub-100-wireless-router/"><u>Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router</u></a></li>
 <li><a href="https://video-ai-editor.techidaily.com/updated-best-android-video-editing-apps-free-and-paid-options/"><u>Updated Best Android Video Editing Apps Free and Paid Options</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

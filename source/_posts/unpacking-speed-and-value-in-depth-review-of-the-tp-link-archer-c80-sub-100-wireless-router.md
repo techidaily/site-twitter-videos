@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-08-06T17:50:08.520Z
-updated: 2024-08-07T17:50:08.520Z
+date: 2024-09-04T03:41:33.180Z
+updated: 2024-09-05T03:41:33.180Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -36,14 +36,8 @@ Lifewire / Todd Braylor
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Fitbit Inspire HR
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/P9a50_oB4MstZx5zB9lbu2dMq68=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
 
 Lifewire / Todd Braylor
@@ -70,9 +64,6 @@ Lifewire / Todd Braylor
 
  We recently put the Inspire HR to the test to evaluate how the inclusion of heart rate functions augments Fitbit's core wellness model. We wore the Inspire HR continually for a week of daily training runs, day-to-day activities, and while sleeping to get a picture of how the fitness tracker can provide valuable perspectives for any training goal while remaining a budget-oriented fitness tracker.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
  Lifewire / Todd Braylor
@@ -91,12 +82,19 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
 
@@ -104,6 +102,12 @@ The powerful video editing program for your Windows PC</a>
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Performance: However you exercise, there's an app for that**
 
  The Fitbit Inspire HR has a host of different exercise apps for whatever activities you enjoy and features specific modes for running, biking, swimming, treadmill workouts, weight lifting, and interval training.
@@ -122,9 +126,6 @@ The powerful video editing program for your Windows PC</a>
 
  If you simply wear the Inspire HR to bed, it will automatically detect when you are asleep through a combined lack of movement and changes in your heart rate patterns, known as heart rate variability (HRV). It will be able to tell how much time you spend in light, deep, and REM stages, and give you a more accurate chart of your resting heart rate. The value of sleep data for athletic performance makes sleep monitoring an accessible and highly beneficial entry point to gain in-depth insights into your body's recovery and performance physiology.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/kpOf5qE4yUp_TsA4L5ERLgL3tbM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-02-e84796705da049fbb75f5e2a098c1e8e.jpg)
 
  Lifewire / Todd Braylor
@@ -138,7 +139,10 @@ The powerful video editing program for your Windows PC</a>
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Software Features: Limited to the Fitbit wellness model**
 
@@ -152,6 +156,12 @@ The powerful video editing program for your Windows PC</a>
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Fitbit Inspire HR vs. Garmin vívosport**
 
  One of the main competitors to Fitbit in the active wearables market is Garmin. The Garmin vívosport activity tracker is a competitor to the Fitbit Inspire HR and mimics its slim wristband design.
@@ -167,7 +177,10 @@ The powerful video editing program for your Windows PC</a>
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Look at Amazon Prime’s Biggest Tweeters and Favorites in '23"
-date: 2024-07-27T17:02:55.546Z
-updated: 2024-07-28T17:02:55.546Z
+date: 2024-09-04T03:41:36.074Z
+updated: 2024-09-05T03:41:36.074Z
 tags:
   - ai video
   - ai twitter
@@ -33,137 +33,68 @@ Every month, Amazon Prime Video, the well-known streaming service, releases new 
 
 Amazon Prime Video offers such a large collection of TV episodes and movies to choose from that deciding what's genuinely worth watching may be difficult. That is why we have come! Aaron Sorkin's Being the Ricardos, starring Nicole Kidman and Javier Bardem as Lucille Ball and Desi Arnaz, the holiday rom-com series With Love, the sixth and final season of the sci-fi series The Expanse, the Riz Ahmed-starring alien movie Encounter, and more are among the most recent additions we've given our seal of approval to. If none of them appeal to you, our list of suggestions is very extensive, so we're certain you'll discover something else you like on **Twitter amazon prime video**.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. BTS Dynamite
 
 The most-watched video on the Twitter is none other than BTS video song Dynamite that’s in English and have a lot of views even on the Twitter. BTS's "Dynamite," which was released at midnight Eastern Time on August 21, 2020, shattered records while also delivering much-needed comfort and pleasure to fans throughout the globe. "Dynamite" is accessible to a large audience since it is BTS's first all-English tune. It's easy to detect the shift from BTS's regular lyrics and approach, which is to be anticipated (the track was written by David Stewart and Jessica Agombar). The group, however, said in many interviews that they preferred the song in its original form—they got the tape and enjoyed it, so they worked hard to learn the English lyrics.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
-### 2\. The Underground Railroad
-
-Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins' most recent production. Now, the filmmaker is back with The Underground Railroad, a limited series on Amazon that has already received acclaim for its strong narrative. Cora Randall, played by ‘Thuso Mbedu’, attempts to escape slavery by riding the titular underground railroad; however, in this other reality, the railroad is an actual railroad with trains and conductors, rather than just a network of safe homes and covert paths. The Underground Railroad offers a strong, sad narrative with a terrific ensemble cast and magnificent photography that's better viewed over many hours rather than in one sitting.
-
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 3\. Mission: Impossible – Ghost Protocol (2011)
-
-Some arguments can be made for any of the Mission: Impossible films being the finest, but I'm here to end the debate once and for all: Ghost Protocol from 2011\. Brad Bird, well renowned for his work with Pixar, offers a level of inventiveness to the action scenes that come from working in the infinitely creative world of animation. The image of Tom Cruise's Ethan Hunt mounting the Burj Khalifa in Dubai is spectacular even on the tiniest screen.
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-3.jpg)
-
-### 4\. The Second Family Man
-
-The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitter. Manoj Bajpayee, Priyamani, and Samantha Akkineni play key roles in the program. Following the recent controversy in which it was said that The Family Man 2 harms Tamil sensibilities, fans are now appreciating Samantha Akkineni for her depiction of Raji, a Tamil rights activist. The Family Man 2 has already gotten a lot of positive feedback on Twitter, only a few hours after its premiere. Internet viewers are enamored with the show's plot and all of the performers' performances, particularly Samantha Akkineni's. Manoj Bajpayee, Priyamani, Samantha Akkineni, and Sharib Hashmi play significant parts in the program. The program has progressed from Season 1 under the direction of Raj and DK, although not much has changed in terms of plot. While the program is receiving rave reviews from reviewers, the Internet can't seem to get enough of it.
-
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### 5\. The Wheel of Time
-
-The Wheel of Time, published by Amazon, is based on another famous high fantasy novel series and aspires to be the next Game of Thrones. It ticks all the fantasy boxes: a prophecy about a strong young person who will rescue the world, extensive world-building that needs its map, and British accents.
-
-While we wait for the Lord of the Rings TV program to arrive on Prime Video, there's another epic fantasy show to enjoy in the meanwhile. Rosamund Pike plays a member of a powerful group of women who can wield magic in The Wheel of Time, which is likewise based on a series of novels. She joins a group of five young individuals on a round-the-world trip, thinking that one of them is the Dragon's predicted reincarnation. Things take up in the fourth episode, and it's certainly worth seeing.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-5.jpg)
-
-## Conclusion
-
-Amazon's Twitter engagement, although mostly serving as a platform for content marketing rather than driving direct sales, still works to build and nurture an engaged community of consumers, encouraging as many as possible to join Prime. Q4 is often a big quarter for Amazon, and 2021 was no exception. Amazon got another 3% of British homes to sign up for Prime membership, bringing the total number of Prime subscribers to 56 percent. The same goes for the **prime video twitter** handle. It's no surprise, therefore, that Prime Video accounted for 45 percent of new SVoD subscribers over the Christmas season. All of these films have one thing in common: the need to appeal to a larger audience on **amazon prime video Twitter**.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Every month, Amazon Prime Video, the well-known streaming service, releases new series, movies, and documentaries that many people share across **prime video Twitter** with viewing. The issue is that since Amazon Prime material is changed frequently, your favorite movie may not always be accessible. What can you do to ensure that you can watch your favorite films over and over again? While there aren't many new movies uploaded to **amazon prime video India Twitter** at the moment, there's always enough to see, including the last part in Sony's animated Hotel Transylvania saga. The issue, it turns out, is picking among the streaming service's hundreds of titles for **Twitter amazon prime video**.
-
-## Part 1: Twitter's Top 5 Most Viewed Videos
-
-Amazon Prime Video offers such a large collection of TV episodes and movies to choose from that deciding what's genuinely worth watching may be difficult. That is why we have come! Aaron Sorkin's Being the Ricardos, starring Nicole Kidman and Javier Bardem as Lucille Ball and Desi Arnaz, the holiday rom-com series With Love, the sixth and final season of the sci-fi series The Expanse, the Riz Ahmed-starring alien movie Encounter, and more are among the most recent additions we've given our seal of approval to. If none of them appeal to you, our list of suggestions is very extensive, so we're certain you'll discover something else you like on **Twitter amazon prime video**.
-
-### 1\. BTS Dynamite
-
-The most-watched video on the Twitter is none other than BTS video song Dynamite that’s in English and have a lot of views even on the Twitter. BTS's "Dynamite," which was released at midnight Eastern Time on August 21, 2020, shattered records while also delivering much-needed comfort and pleasure to fans throughout the globe. "Dynamite" is accessible to a large audience since it is BTS's first all-English tune. It's easy to detect the shift from BTS's regular lyrics and approach, which is to be anticipated (the track was written by David Stewart and Jessica Agombar). The group, however, said in many interviews that they preferred the song in its original form—they got the tape and enjoyed it, so they worked hard to learn the English lyrics.
-
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-1.jpg)
-
-### 2\. The Underground Railroad
-
-Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins' most recent production. Now, the filmmaker is back with The Underground Railroad, a limited series on Amazon that has already received acclaim for its strong narrative. Cora Randall, played by ‘Thuso Mbedu’, attempts to escape slavery by riding the titular underground railroad; however, in this other reality, the railroad is an actual railroad with trains and conductors, rather than just a network of safe homes and covert paths. The Underground Railroad offers a strong, sad narrative with a terrific ensemble cast and magnificent photography that's better viewed over many hours rather than in one sitting.
-
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
-
-### 3\. Mission: Impossible – Ghost Protocol (2011)
-
-Some arguments can be made for any of the Mission: Impossible films being the finest, but I'm here to end the debate once and for all: Ghost Protocol from 2011\. Brad Bird, well renowned for his work with Pixar, offers a level of inventiveness to the action scenes that come from working in the infinitely creative world of animation. The image of Tom Cruise's Ethan Hunt mounting the Burj Khalifa in Dubai is spectacular even on the tiniest screen.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
-![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
-### 4\. The Second Family Man
-
-The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitter. Manoj Bajpayee, Priyamani, and Samantha Akkineni play key roles in the program. Following the recent controversy in which it was said that The Family Man 2 harms Tamil sensibilities, fans are now appreciating Samantha Akkineni for her depiction of Raji, a Tamil rights activist. The Family Man 2 has already gotten a lot of positive feedback on Twitter, only a few hours after its premiere. Internet viewers are enamored with the show's plot and all of the performers' performances, particularly Samantha Akkineni's. Manoj Bajpayee, Priyamani, Samantha Akkineni, and Sharib Hashmi play significant parts in the program. The program has progressed from Season 1 under the direction of Raj and DK, although not much has changed in terms of plot. While the program is receiving rave reviews from reviewers, the Internet can't seem to get enough of it.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+### 2\. The Underground Railroad
+
+Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins' most recent production. Now, the filmmaker is back with The Underground Railroad, a limited series on Amazon that has already received acclaim for its strong narrative. Cora Randall, played by ‘Thuso Mbedu’, attempts to escape slavery by riding the titular underground railroad; however, in this other reality, the railroad is an actual railroad with trains and conductors, rather than just a network of safe homes and covert paths. The Underground Railroad offers a strong, sad narrative with a terrific ensemble cast and magnificent photography that's better viewed over many hours rather than in one sitting.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
+
+### 3\. Mission: Impossible – Ghost Protocol (2011)
+
+Some arguments can be made for any of the Mission: Impossible films being the finest, but I'm here to end the debate once and for all: Ghost Protocol from 2011\. Brad Bird, well renowned for his work with Pixar, offers a level of inventiveness to the action scenes that come from working in the infinitely creative world of animation. The image of Tom Cruise's Ethan Hunt mounting the Burj Khalifa in Dubai is spectacular even on the tiniest screen.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4\. The Second Family Man
+
+The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitter. Manoj Bajpayee, Priyamani, and Samantha Akkineni play key roles in the program. Following the recent controversy in which it was said that The Family Man 2 harms Tamil sensibilities, fans are now appreciating Samantha Akkineni for her depiction of Raji, a Tamil rights activist. The Family Man 2 has already gotten a lot of positive feedback on Twitter, only a few hours after its premiere. Internet viewers are enamored with the show's plot and all of the performers' performances, particularly Samantha Akkineni's. Manoj Bajpayee, Priyamani, Samantha Akkineni, and Sharib Hashmi play significant parts in the program. The program has progressed from Season 1 under the direction of Raj and DK, although not much has changed in terms of plot. While the program is receiving rave reviews from reviewers, the Internet can't seem to get enough of it.
+
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Wheel of Time
 
 The Wheel of Time, published by Amazon, is based on another famous high fantasy novel series and aspires to be the next Game of Thrones. It ticks all the fantasy boxes: a prophecy about a strong young person who will rescue the world, extensive world-building that needs its map, and British accents.
 
 While we wait for the Lord of the Rings TV program to arrive on Prime Video, there's another epic fantasy show to enjoy in the meanwhile. Rosamund Pike plays a member of a powerful group of women who can wield magic in The Wheel of Time, which is likewise based on a series of novels. She joins a group of five young individuals on a round-the-world trip, thinking that one of them is the Dragon's predicted reincarnation. Things take up in the fourth episode, and it's certainly worth seeing.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Amazon's Twitter engagement, although mostly serving as a platform for content marketing rather than driving direct sales, still works to build and nurture an engaged community of consumers, encouraging as many as possible to join Prime. Q4 is often a big quarter for Amazon, and 2021 was no exception. Amazon got another 3% of British homes to sign up for Prime membership, bringing the total number of Prime subscribers to 56 percent. The same goes for the **prime video twitter** handle. It's no surprise, therefore, that Prime Video accounted for 45 percent of new SVoD subscribers over the Christmas season. All of these films have one thing in common: the need to appeal to a larger audience on **amazon prime video Twitter**.
@@ -174,16 +105,10 @@ Amazon's Twitter engagement, although mostly serving as a platform for content m
 
 Every month, Amazon Prime Video, the well-known streaming service, releases new series, movies, and documentaries that many people share across **prime video Twitter** with viewing. The issue is that since Amazon Prime material is changed frequently, your favorite movie may not always be accessible. What can you do to ensure that you can watch your favorite films over and over again? While there aren't many new movies uploaded to **amazon prime video India Twitter** at the moment, there's always enough to see, including the last part in Sony's animated Hotel Transylvania saga. The issue, it turns out, is picking among the streaming service's hundreds of titles for **Twitter amazon prime video**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Part 1: Twitter's Top 5 Most Viewed Videos
 
 Amazon Prime Video offers such a large collection of TV episodes and movies to choose from that deciding what's genuinely worth watching may be difficult. That is why we have come! Aaron Sorkin's Being the Ricardos, starring Nicole Kidman and Javier Bardem as Lucille Ball and Desi Arnaz, the holiday rom-com series With Love, the sixth and final season of the sci-fi series The Expanse, the Riz Ahmed-starring alien movie Encounter, and more are among the most recent additions we've given our seal of approval to. If none of them appeal to you, our list of suggestions is very extensive, so we're certain you'll discover something else you like on **Twitter amazon prime video**.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. BTS Dynamite
 
 The most-watched video on the Twitter is none other than BTS video song Dynamite that’s in English and have a lot of views even on the Twitter. BTS's "Dynamite," which was released at midnight Eastern Time on August 21, 2020, shattered records while also delivering much-needed comfort and pleasure to fans throughout the globe. "Dynamite" is accessible to a large audience since it is BTS's first all-English tune. It's easy to detect the shift from BTS's regular lyrics and approach, which is to be anticipated (the track was written by David Stewart and Jessica Agombar). The group, however, said in many interviews that they preferred the song in its original form—they got the tape and enjoyed it, so they worked hard to learn the English lyrics.
@@ -191,7 +116,16 @@ The most-watched video on the Twitter is none other than BTS video song Dynamite
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. The Underground Railroad
 
@@ -200,7 +134,16 @@ Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins'
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Mission: Impossible – Ghost Protocol (2011)
 
@@ -214,8 +157,111 @@ The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitte
 
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-4.jpg)
 
+### 5\. The Wheel of Time
+
+The Wheel of Time, published by Amazon, is based on another famous high fantasy novel series and aspires to be the next Game of Thrones. It ticks all the fantasy boxes: a prophecy about a strong young person who will rescue the world, extensive world-building that needs its map, and British accents.
+
+While we wait for the Lord of the Rings TV program to arrive on Prime Video, there's another epic fantasy show to enjoy in the meanwhile. Rosamund Pike plays a member of a powerful group of women who can wield magic in The Wheel of Time, which is likewise based on a series of novels. She joins a group of five young individuals on a round-the-world trip, thinking that one of them is the Dragon's predicted reincarnation. Things take up in the fourth episode, and it's certainly worth seeing.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-5.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+Amazon's Twitter engagement, although mostly serving as a platform for content marketing rather than driving direct sales, still works to build and nurture an engaged community of consumers, encouraging as many as possible to join Prime. Q4 is often a big quarter for Amazon, and 2021 was no exception. Amazon got another 3% of British homes to sign up for Prime membership, bringing the total number of Prime subscribers to 56 percent. The same goes for the **prime video twitter** handle. It's no surprise, therefore, that Prime Video accounted for 45 percent of new SVoD subscribers over the Christmas season. All of these films have one thing in common: the need to appeal to a larger audience on **amazon prime video Twitter**.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Every month, Amazon Prime Video, the well-known streaming service, releases new series, movies, and documentaries that many people share across **prime video Twitter** with viewing. The issue is that since Amazon Prime material is changed frequently, your favorite movie may not always be accessible. What can you do to ensure that you can watch your favorite films over and over again? While there aren't many new movies uploaded to **amazon prime video India Twitter** at the moment, there's always enough to see, including the last part in Sony's animated Hotel Transylvania saga. The issue, it turns out, is picking among the streaming service's hundreds of titles for **Twitter amazon prime video**.
+
+## Part 1: Twitter's Top 5 Most Viewed Videos
+
+Amazon Prime Video offers such a large collection of TV episodes and movies to choose from that deciding what's genuinely worth watching may be difficult. That is why we have come! Aaron Sorkin's Being the Ricardos, starring Nicole Kidman and Javier Bardem as Lucille Ball and Desi Arnaz, the holiday rom-com series With Love, the sixth and final season of the sci-fi series The Expanse, the Riz Ahmed-starring alien movie Encounter, and more are among the most recent additions we've given our seal of approval to. If none of them appeal to you, our list of suggestions is very extensive, so we're certain you'll discover something else you like on **Twitter amazon prime video**.
+
+### 1\. BTS Dynamite
+
+The most-watched video on the Twitter is none other than BTS video song Dynamite that’s in English and have a lot of views even on the Twitter. BTS's "Dynamite," which was released at midnight Eastern Time on August 21, 2020, shattered records while also delivering much-needed comfort and pleasure to fans throughout the globe. "Dynamite" is accessible to a large audience since it is BTS's first all-English tune. It's easy to detect the shift from BTS's regular lyrics and approach, which is to be anticipated (the track was written by David Stewart and Jessica Agombar). The group, however, said in many interviews that they preferred the song in its original form—they got the tape and enjoyed it, so they worked hard to learn the English lyrics.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-1.jpg)
+
+### 2\. The Underground Railroad
+
+Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins' most recent production. Now, the filmmaker is back with The Underground Railroad, a limited series on Amazon that has already received acclaim for its strong narrative. Cora Randall, played by ‘Thuso Mbedu’, attempts to escape slavery by riding the titular underground railroad; however, in this other reality, the railroad is an actual railroad with trains and conductors, rather than just a network of safe homes and covert paths. The Underground Railroad offers a strong, sad narrative with a terrific ensemble cast and magnificent photography that's better viewed over many hours rather than in one sitting.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 3\. Mission: Impossible – Ghost Protocol (2011)
+
+Some arguments can be made for any of the Mission: Impossible films being the finest, but I'm here to end the debate once and for all: Ghost Protocol from 2011\. Brad Bird, well renowned for his work with Pixar, offers a level of inventiveness to the action scenes that come from working in the infinitely creative world of animation. The image of Tom Cruise's Ethan Hunt mounting the Burj Khalifa in Dubai is spectacular even on the tiniest screen.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 4\. The Second Family Man
+
+The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitter. Manoj Bajpayee, Priyamani, and Samantha Akkineni play key roles in the program. Following the recent controversy in which it was said that The Family Man 2 harms Tamil sensibilities, fans are now appreciating Samantha Akkineni for her depiction of Raji, a Tamil rights activist. The Family Man 2 has already gotten a lot of positive feedback on Twitter, only a few hours after its premiere. Internet viewers are enamored with the show's plot and all of the performers' performances, particularly Samantha Akkineni's. Manoj Bajpayee, Priyamani, Samantha Akkineni, and Sharib Hashmi play significant parts in the program. The program has progressed from Season 1 under the direction of Raj and DK, although not much has changed in terms of plot. While the program is receiving rave reviews from reviewers, the Internet can't seem to get enough of it.
+
+![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 5\. The Wheel of Time
 
@@ -235,14 +281,16 @@ Amazon's Twitter engagement, although mostly serving as a platform for content m
 
 Every month, Amazon Prime Video, the well-known streaming service, releases new series, movies, and documentaries that many people share across **prime video Twitter** with viewing. The issue is that since Amazon Prime material is changed frequently, your favorite movie may not always be accessible. What can you do to ensure that you can watch your favorite films over and over again? While there aren't many new movies uploaded to **amazon prime video India Twitter** at the moment, there's always enough to see, including the last part in Sony's animated Hotel Transylvania saga. The issue, it turns out, is picking among the streaming service's hundreds of titles for **Twitter amazon prime video**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## Part 1: Twitter's Top 5 Most Viewed Videos
 
 Amazon Prime Video offers such a large collection of TV episodes and movies to choose from that deciding what's genuinely worth watching may be difficult. That is why we have come! Aaron Sorkin's Being the Ricardos, starring Nicole Kidman and Javier Bardem as Lucille Ball and Desi Arnaz, the holiday rom-com series With Love, the sixth and final season of the sci-fi series The Expanse, the Riz Ahmed-starring alien movie Encounter, and more are among the most recent additions we've given our seal of approval to. If none of them appeal to you, our list of suggestions is very extensive, so we're certain you'll discover something else you like on **Twitter amazon prime video**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. BTS Dynamite
 
 The most-watched video on the Twitter is none other than BTS video song Dynamite that’s in English and have a lot of views even on the Twitter. BTS's "Dynamite," which was released at midnight Eastern Time on August 21, 2020, shattered records while also delivering much-needed comfort and pleasure to fans throughout the globe. "Dynamite" is accessible to a large audience since it is BTS's first all-English tune. It's easy to detect the shift from BTS's regular lyrics and approach, which is to be anticipated (the track was written by David Stewart and Jessica Agombar). The group, however, said in many interviews that they preferred the song in its original form—they got the tape and enjoyed it, so they worked hard to learn the English lyrics.
@@ -250,7 +298,16 @@ The most-watched video on the Twitter is none other than BTS video song Dynamite
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2030381/7443" target="_top" id="2030381">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030381" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030381/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2024338/7443" target="_top" id="2024338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024338/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. The Underground Railroad
 
@@ -259,7 +316,10 @@ Moonlight, one of the finest Oscar-winning films of all time, was Barry Jenkins'
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 3\. Mission: Impossible – Ghost Protocol (2011)
 
@@ -268,7 +328,10 @@ Some arguments can be made for any of the Mission: Impossible films being the fi
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. The Second Family Man
 
@@ -276,6 +339,12 @@ The Family Man 2, which is now streaming on Amazon Prime Video, has wowed Twitte
 
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Wheel of Time
 
 The Wheel of Time, published by Amazon, is based on another famous high fantasy novel series and aspires to be the next Game of Thrones. It ticks all the fantasy boxes: a prophecy about a strong young person who will rescue the world, extensive world-building that needs its map, and British accents.
@@ -284,6 +353,12 @@ While we wait for the Lord of the Rings TV program to arrive on Prime Video, the
 
 ![viewed videos](https://images.wondershare.com/filmora/article-images/2022/02/top-5-most-viewed-videos-on-twitter-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Amazon's Twitter engagement, although mostly serving as a platform for content marketing rather than driving direct sales, still works to build and nurture an engaged community of consumers, encouraging as many as possible to join Prime. Q4 is often a big quarter for Amazon, and 2021 was no exception. Amazon got another 3% of British homes to sign up for Prime membership, bringing the total number of Prime subscribers to 56 percent. The same goes for the **prime video twitter** handle. It's no surprise, therefore, that Prime Video accounted for 45 percent of new SVoD subscribers over the Christmas season. All of these films have one thing in common: the need to appeal to a larger audience on **amazon prime video Twitter**.
