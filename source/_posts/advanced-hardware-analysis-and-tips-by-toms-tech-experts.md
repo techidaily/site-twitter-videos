@@ -1,7 +1,7 @@
 ---
 title: Advanced Hardware Analysis and Tips by Tom's Tech Experts
-date: 2024-09-04T03:41:33.057Z
-updated: 2024-09-05T03:41:33.057Z
+date: 2024-09-09T17:30:37.764Z
+updated: 2024-09-10T17:30:37.764Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/e6VFSiUmkEQEEtKTQwAQQh-320-80.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Uncover Top Hardware Reviews and Specs with [Your Site Name] – The Experts' Choice for Quality Equipment
 
 This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show was filled interesting AI focused PCs, but often, their most interesting features had little to do with AI. Such is the case with[MSI](https://www.tomshardware.com/tag/msi-microstar) 's MEG Vision X AI Desktop, which we stumbled upon in the company's sprawling booth.
@@ -23,18 +29,36 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 
 ![MSI Meg Vision X with Gelsinger Signature](https://cdn.mos.cms.futurecdn.net/BYkvUDqMNVz6ycnx4BZFYV-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  By default, the touch display shows key PC stats such as your CPU temperature and clock speed. It also allows you to launch your favorite apps on your primary screen by tapping a shortcut icon. You can change performance modes here as well, opting for more speed or quieter fans.
 
 ![MSI Meg Vision X](https://cdn.mos.cms.futurecdn.net/2SRaW8dq9GVUxC4BK2xbzh-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  The display is seen by Windows as a full-fledged second display in portrait mode. So you can play YouTube videos on it or run apps on it if you wish. MSI reps said a game streamer should keep their chat or OBS window on the front-panel screen while gaming on their primary monitor. They also said that the touch screen uses Intel integrated graphics while the main monitor or any secondary monitors you attach would use the Nvidia graphics card.
 
  We got to spend a few minutes with the MSI MEG Vision X and its touch screen and we were impressed with how responsive it was. We put a YouTube vertical video onto the touch screen and then swiped down to switch to a different one. The screen supports ten-point touch so you can pinch-to-zoom or even finger paint on it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -49,6 +73,12 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 
 ![MSI Meg Vision X](https://cdn.mos.cms.futurecdn.net/naxGXKocxiSqBdGWe9LHqR-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  But even if having a local image generator / chatbot is really valuable to you, you don't need a special PC or an on-case screen on the case to get those features. MSI may have its own branded apps, but it's likely using the same chat and image generation that's available elsewhere. Anyone who has a decent graphics card can download and install Stable Diffusion image generator or LLama for chat. If you have an RTX card, try[ComfyUI](https://github.com/comfyanonymous/ComfyUI) , which is a very powerful frontend for Stable Diffusion.
@@ -121,10 +151,3 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 <li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-seamless-connectivity-with-our-detailed-look-at-google-naster-nest-wi-fi/"><u>Unveiling the Power of Seamless Connectivity with Our Detailed Look at Google Naster Nest Wi-Fi</u></a></li>
 <li><a href="https://network-issues.techidaily.com/windows-interrupted-by-nvidia-error-no-longer-halted/"><u>Windows Interrupted By NVIDIA Error, No Longer Halted</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2024-09-04T03:41:32.549Z
-updated: 2024-09-05T03:41:32.549Z
+date: 2024-09-09T17:30:37.308Z
+updated: 2024-09-10T17:30:37.308Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/a8380bddcca8cf55ebe9b6409c5102df744a27a7ccc7e054a06e6cf78ab12144.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Maximize Graphics Power & Performance - Elevate Your Build Using Our DIY Kit's PCIe Connection Between Mini PC and eGPU, Outpacing Thunderbolt 4 Speeds
 
 Mini PCs, the class of desktops that fit in really tiny cases, have a following among PC enthusiasts thanks to Intel's (now Asus's) NUC line. But because of their size and modest thermal budgets, most mini PCs have two severe limitations: they rely on performance-limited mobile CPUs and they usually are stuck with integrated graphics.
@@ -23,6 +29,12 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker Turbo Mini X Open](https://cdn.mos.cms.futurecdn.net/6Lgg2ep6349kAWRyprQDe3-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  You can use any Raptor Lake or Raptor Lake Refresh chip that consumes 65 watts, a Core i5-1440 or Core i7-1470 for example. A passive heat sink covers the chip and a blower fan sits next to the sink and above the SODIMM slots. The kit doesn't come with an SSD (or the RAM or CPU) but it does come with a heatsink you can use with your SSD to keep it cool.
@@ -31,6 +43,12 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -45,6 +63,12 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -53,6 +77,12 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  Mini Maker is a very new brand whose parent company is Hibertek, a Taiwanese OEM that builds B2B systems. Company reps said that they are trying to find a partner in the U.S. to sell the Turbo Mini X and its other mini PCs. The products may carry any future partners' brand name or they could be labeled as Mini Maker. At present, the system is set to come out in mainland China and Taiwan.
@@ -125,10 +155,3 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 <li><a href="https://twitter-videos.techidaily.com/twittervidstowebm-direct-media-conversion/"><u>TwitterVidsToWebM  Direct Media Conversion</u></a></li>
 <li><a href="https://youtube-tips.techidaily.com/-video-vault-top-10-most-viewed-in-a-day-for-2024/"><u>Viral Video Vault  Top 10 Most Viewed in a Day for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

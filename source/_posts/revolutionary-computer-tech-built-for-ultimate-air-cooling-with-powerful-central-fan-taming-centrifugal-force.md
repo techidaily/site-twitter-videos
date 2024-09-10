@@ -1,7 +1,7 @@
 ---
 title: "Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force"
-date: 2024-09-04T03:41:33.085Z
-updated: 2024-09-05T03:41:33.085Z
+date: 2024-09-09T17:30:37.793Z
+updated: 2024-09-10T17:30:37.793Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/134b4c3950f92b62491adfc9a2cfa838e49057f0eead8f917808b4db67b3f9f1.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cutting-Edge PC Architecture: Expertly Engineered for Efficient Air Cooling at the Heart of a Large Central Fan - Conquer Centrifugal Dynamics
 
 Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengthy video showcasing the building, iteration, and operation of[a true fan PC build](https://www.bilibili.com/video/BV1JE421A713/) , by which we mean the entire PC has been built into the center of a giant box fan painted to look like a case fan. This video demo should not be mistaken for an actually-viable[Mini PC](https://www.tomshardware.com/tag/mini-pc) project, and does not constitute any[PC cooling advice](https://www.tomshardware.com/how-to/set-up-pc-case-fans-for-airflow-and-performance) .
@@ -19,10 +25,28 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
  Now, let's talk a little more about the details of the PC build in question. Sodabaka essentially took an old Intel Sandybridge-era[Mini ITX](https://www.tomshardware.com/best-picks/best-mini-itx-pc-cases) motherboard and tested its operation while attached to a spinning fan.
@@ -35,6 +59,12 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -118,10 +148,3 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 <li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>Viral Video to Visuals  Converting Tweets to Costless CGI</u></a></li>
 <li><a href="https://twitter-videos.techidaily.com/your-first-step-on-twitter-creating-an-account-for-2024/"><u>Your First Step on Twitter  Creating an Account for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

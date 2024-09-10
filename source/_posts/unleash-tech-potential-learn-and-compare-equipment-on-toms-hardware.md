@@ -1,7 +1,7 @@
 ---
 title: Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.
-date: 2024-09-04T03:41:32.818Z
-updated: 2024-09-05T03:41:32.818Z
+date: 2024-09-09T17:30:37.551Z
+updated: 2024-09-10T17:30:37.551Z
 tags:
   - desktop
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unleash Mobile Data Potential with WD Ultrastar Transporter's Massive Capacity - 368TB, Ice Lake Xeon CPU, and More
 
 [Western Digital](https://www.tomshardware.com/tag/western-digital) , known for its hard drives and SSDs, has unveiled a new product that isn't a storage device in the technical sense. The product, known as the Ultrastar Transporter, is a new Western Digital-built travel case that houses a whopping 368TB of NVMe flash storage. The case is TAA compliant and has a 12-core Intel Ice Lake server that houses all SSDs and dual 200Gb ethernet ports.
@@ -19,10 +25,22 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
  A few examples include workloads where high-capacity data capture needs to be processed at one location from another. Another is the proliferation of multi-datacenter workflows, where large data sets have to be held at multiple locations and rapidly sent to those locations faster than what raw internet bandwidth can provide.
@@ -31,6 +49,12 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
  The case itself looks like a conventional carrying case. The outer shell appears to be hard plastic, with metal supporting rails filling the lips of the case. The case features two latching mechanisms and a mechanism to attach a lock for[security](https://www.tomshardware.com/tag/security) . You can transport the travel case by rolling it on its two wheels or with another handle that allows you to carry it like a briefcase.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -95,10 +119,3 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 <li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>Viral Video to Visuals  Converting Tweets to Costless CGI</u></a></li>
 <li><a href="https://twitter-videos.techidaily.com/your-first-step-on-twitter-creating-an-account-for-2024/"><u>Your First Step on Twitter  Creating an Account for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
