@@ -1,7 +1,7 @@
 ---
 title: Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.
-date: 2024-09-09T17:30:37.551Z
-updated: 2024-09-10T17:30:37.551Z
+date: 2024-09-12T20:47:32.858Z
+updated: 2024-09-16T01:23:44.571Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unleash Mobile Data Potential with WD Ultrastar Transporter's Massive Capacity - 368TB, Ice Lake Xeon CPU, and More
 
 [Western Digital](https://www.tomshardware.com/tag/western-digital) , known for its hard drives and SSDs, has unveiled a new product that isn't a storage device in the technical sense. The product, known as the Ultrastar Transporter, is a new Western Digital-built travel case that houses a whopping 368TB of NVMe flash storage. The case is TAA compliant and has a 12-core Intel Ice Lake server that houses all SSDs and dual 200Gb ethernet ports.
@@ -25,22 +19,10 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
  A few examples include workloads where high-capacity data capture needs to be processed at one location from another. Another is the proliferation of multi-datacenter workflows, where large data sets have to be held at multiple locations and rapidly sent to those locations faster than what raw internet bandwidth can provide.
@@ -49,12 +31,6 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
  The case itself looks like a conventional carrying case. The outer shell appears to be hard plastic, with metal supporting rails filling the lips of the case. The case features two latching mechanisms and a mechanism to attach a lock for[security](https://www.tomshardware.com/tag/security) . You can transport the travel case by rolling it on its two wheels or with another handle that allows you to carry it like a briefcase.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -63,14 +39,11 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,41 +54,24 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/LGUWSQcG25ZiirpTUw3vBZ-320-80.jpg
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-insta-elite-blueprint-15-proven-tips-to-amass-thousands-of-followers-rapidly/"><u>[New] 2024 Approved  The Insta Elite Blueprint  15 Proven Tips to Amass Thousands of Followers Rapidly</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-a-step-by-step-to-mastering-instagram-chat-videos-for-2024/"><u>[New] A Step-by-Step to Mastering Instagram Chat Videos for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-smart-strategies-for-utilizing-b-roll-footage-effectively/"><u>[New] Smart Strategies for Utilizing B-Roll Footage Effectively</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-dont-overlook-this-weeks-favorite-tiktoks/"><u>[Updated] 2024 Approved  Don’t Overlook This Week's Favorite TikToks</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-full-scope-understanding-online-performance-artists/"><u>[Updated] 2024 Approved  Full Scope  Understanding Online Performance Artists</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-dancefloor-dynamics-free-pristine-dj-template-videos/"><u>[Updated] Dancefloor Dynamics  Free, Pristine DJ Template Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-best-practices-for-video-editing-and-cropping/"><u>[Updated] Instagram's Best Practices for Video Editing & Cropping</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-redesign-twitter-video-header-for-2024/"><u>[Updated] Redesign Twitter Video Header for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-method-storing-tweet-imagesvideos-on-your-mobile/"><u>[Updated] Secure Method  Storing Tweet Images/Videos on Your Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snap-to-gifs-making-twitter-video-freely-convertible/"><u>[Updated] Snap to GIFs  Making Twitter Video Freely Convertible</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snapchat-tips-uploading-twitter-videos-for-max-impact-for-2024/"><u>[Updated] SnapChat Tips  Uploading Twitter Videos for Max Impact for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone-for-2024/"><u>[Updated] Tech Insight  Pulling and Keeping Twitters Vids in Phone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>[Updated] The Connected World  Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-top-20-trending-memes-reddit-vs-twitter/"><u>[Updated] Top 20 Trending Memes  Reddit Vs. Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>[Updated] TwitTrek Toolkit  A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>[Updated] Unlocking the Potential  Twitter to Snapchat Video Exchange for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-your-guide-to-studio-lights-and-equipment-17/"><u>[Updated] Your Guide to Studio Lights & Equipment (#17)</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/8-exemplary-templates-dominate-social-media-creatives-for-2024/"><u>8 Exemplary Templates Dominate Social Media Creatives for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/ai-tech-your-familys-comprehensive-overview/"><u>AI Tech: Your Family's Comprehensive Overview</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-the-world-of-open-source-connectivity-evaluating-the-linksys-wrt1900acs-wi-fi-routers-potential/"><u>Dive Into the World of Open Source Connectivity: Evaluating the Linksys WRT1900ACS Wi-Fi Router's Potential</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/enabling-windows-pressed-enter-mechanism/"><u>Enabling Windows' Pressed Enter Mechanism</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/enhance-your-stream-the-top-5-cameras-to-stand-out-on-twitch/"><u>Enhance Your Stream  The Top 5 Cameras to Stand Out on Twitch</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-calibrate-an-iphones-battery-in-6-easy-steps/"><u>How to Calibrate an iPhone's Battery in 6 Easy Steps</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-zte-nubia-z60-ultra-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on ZTE Nubia Z60 Ultra Quickly? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-stop-genshin-impact-from-continuously-crashing-on-windows-and-linux-systems/"><u>How to Stop Genshin Impact From Continuously Crashing on Windows and Linux Systems</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-tecno-camon-20-pro-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Tecno Camon 20 Pro 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintaining-confidentiality-tips-for-securely-incorporating-chatgpt-into-your-job-tasks/"><u>Maintaining Confidentiality: Tips for Securely Incorporating ChatGPT Into Your Job Tasks</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-infinix-hot-40-pro-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Infinix Hot 40 Pro Phone Now with These Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secure-and-simplify-your-macs-space-the-standard-package-of-stellar-scheduled-file-remover-v5/"><u>Secure & Simplify Your Mac's Space – The Standard Package of Stellar Scheduled File Remover V5</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/secure-social-media-comprehensive-guide-to-change-your-facebook-account-password/"><u>Secure Social Media: Comprehensive Guide to Change Your Facebook Account Password</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/structural-control-systems-like-base-isolators-and-dampers-are-designed-to-reduce-or-alter-seismic-force-transmission-improving-building-performance-during-222/"><u>Structural Control Systems Like Base Isolators and Dampers Are Designed to Reduce or Alter Seismic Force Transmission, Improving Building Performance During Earthquakes</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/top-iphones-ranked-the-ultimate-guide-for-gamers/"><u>Top iPhones Ranked: The Ultimate Guide for Gamers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ultimate-luxury-cosmetics-series/"><u>Ultimate Luxury Cosmetics Series</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unpacking-speed-and-value-in-depth-review-of-the-tp-link-archer-c80-sub-100-wireless-router/"><u>Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher  Gather Twitter Videos Effortlessly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>Viral Video to Visuals  Converting Tweets to Costless CGI</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/your-first-step-on-twitter-creating-an-account-for-2024/"><u>Your First Step on Twitter  Creating an Account for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-solving-the-issue-of-spinning-videos-on-instagram/"><u>[New] Solving the Issue of Spinning Videos on Instagram</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unseen-algorithms-powering-youtubes-viewer-statistics/"><u>[Updated] Unseen Algorithms Powering YouTube's Viewer Statistics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-simplify-your-tech-life-capture-and-store-youtube-streaming-effortlessly/"><u>2024 Approved Simplify Your Tech Life Capture and Store YouTube Streaming Effortlessly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-transform-videos-for-free-leading-enhancement-pages/"><u>2024 Approved Transform Videos for Free Leading Enhancement Pages</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/advanced-hardware-analysis-and-tips-by-toms-tech-experts/"><u>Advanced Hardware Analysis and Tips by Tom's Tech Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hands-on-analysis-discovering-the-power-and-comfort-of-cycwagens-latest-e-bike-model/"><u>Hands-On Analysis: Discovering the Power and Comfort of CycWagen's Latest E-Bike Model</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-sound-symphony-music-within-whatsapp-statuses/"><u>In 2024, Sound Symphony Music Within WhatsApp Statuses</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-depth-analysis-and-comparison-of-gear-by-toms-hardware-experts/"><u>In-Depth Analysis and Comparison of Gear by Tom's Hardware Experts</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-here-are-some-alternatives-for-gopro-studio-which-are-handy-in-terms-of-video-editing/"><u>New In 2024, Here Are some Alternatives for GoPro Studio Which Are Handy in Terms of Video Editing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/revolutionary-computer-tech-built-for-ultimate-air-cooling-with-powerful-central-fan-taming-centrifugal-force/"><u>Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleashing-performance-the-msi-codex-r2-desktop-gaming-setup-reviewed-and-tested/"><u>Unleashing Performance: The MSI CODEX R2 Desktop Gaming Setup Reviewed and Tested</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/winxvideo-ai-optimizacion-de-contenido-multimedia-con-herramientas-para-mejora-y-conversion/"><u>Winxvideo AI: Optimización De Contenido Multimedia Con Herramientas Para Mejora Y Conversión</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

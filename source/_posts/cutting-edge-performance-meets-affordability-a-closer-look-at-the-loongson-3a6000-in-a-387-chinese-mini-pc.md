@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2024-09-09T17:30:37.294Z
-updated: 2024-09-10T17:30:37.294Z
+date: 2024-09-13T17:15:55.918Z
+updated: 2024-09-16T02:36:43.223Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0747a09da8301ee779ce2acf.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Maximize Graphics Power & Performance - Elevate Your Build Using Our DIY Kit's PCIe Connection Between Mini PC and eGPU, Outpacing Thunderbolt 4 Speeds
 
 Mini PCs, the class of desktops that fit in really tiny cases, have a following among PC enthusiasts thanks to Intel's (now Asus's) NUC line. But because of their size and modest thermal budgets, most mini PCs have two severe limitations: they rely on performance-limited mobile CPUs and they usually are stuck with integrated graphics.
@@ -29,12 +23,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker Turbo Mini X Open](https://cdn.mos.cms.futurecdn.net/6Lgg2ep6349kAWRyprQDe3-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  You can use any Raptor Lake or Raptor Lake Refresh chip that consumes 65 watts, a Core i5-1440 or Core i7-1470 for example. A passive heat sink covers the chip and a blower fan sits next to the sink and above the SODIMM slots. The kit doesn't come with an SSD (or the RAM or CPU) but it does come with a heatsink you can use with your SSD to keep it cool.
@@ -43,12 +31,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -63,12 +45,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -77,12 +53,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  Mini Maker is a very new brand whose parent company is Hibertek, a Taiwanese OEM that builds B2B systems. Company reps said that they are trying to find a partner in the U.S. to sell the Turbo Mini X and its other mini PCs. The products may carry any future partners' brand name or they could be labeled as Mini Maker. At present, the system is set to come out in mainland China and Taiwan.
@@ -91,14 +61,11 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  But even at a much higher price, the Turbo Mini X and Streamplay X could be a very compelling combination. Users with limited desk space or those who just like the idea of a tiny desktop could get a lot of performance and flexibility with a very small footprint.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,41 +76,27 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-loudness-in-the-void-breaking-soundless-twitter-vids/"><u>[New] 2024 Approved  Loudness in the Void  Breaking Soundless Twitter Vids</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-copyright-concerns-in-screencasting-youtube-videos/"><u>[New] 2024 Approved  Navigating Copyright Concerns in Screencasting YouTube Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-streamlining-your-timeline-leading-tools-to-unfollow-tweets/"><u>[New] 2024 Approved  Streamlining Your Timeline  Leading Tools to Unfollow Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-from-footage-to-followers-uploading-on-twitter/"><u>[New] From Footage to Followers  Uploading on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-how-to-save-twitter-videos-seamlessly-on-your-android/"><u>[New] How to Save Twitter Videos Seamlessly on Your Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-explore-twitter-videos-in-high-fidelity-format/"><u>[New] In 2024, Explore Twitter Videos in High Fidelity Format</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-fluent-in-content-sharing-tiktok-twitter-transition/"><u>[New] In 2024, Fluent in Content Sharing  TikTok-Twitter Transition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-social-media-battlefield-tiktoks-top-10-twitters/"><u>[New] In 2024, The Social Media Battlefield  TikTok's Top 10 Twitters</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweet-treasure-trove-the-most-popular-tweeps/"><u>[New] In 2024, Tweet Treasure Trove  The Most Popular Tweeps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-perfect-your-photos-with-text-tips-for-adding-titles-in-microsoft-photos/"><u>[New] Perfect Your Photos with Text  Tips for Adding Titles in Microsoft Photos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-transformative-tutorial-turning-vids-on-twitter-into-catchy-animated-memes-gifs/"><u>[New] Transformative Tutorial  Turning Vids on Twitter Into Catchy Animated Memes (GIFs)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-elevate-your-twitter-presence-essential-unfollowing-apps-guide/"><u>[Updated] Elevate Your Twitter Presence  Essential Unfollowing Apps Guide</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-cross-device-the-ultimate-tutorial-for-scraping-gifs-from-fb/"><u>[Updated] In 2024, Cross-Device  The Ultimate Tutorial for Scraping GIFs From FB</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-video-transit-route-tweeting-to-tumbling/"><u>[Updated] In 2024, Video Transit Route  Tweeting to Tumbling</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-interplatform-video-uploading-twitter-and-tumblr-synced/"><u>[Updated] Interplatform Video Uploading  Twitter & Tumblr Synced</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-tweet-reactions-a-complete-guide-for-23-for-2024/"><u>[Updated] Mastering Tweet Reactions - A Complete Guide for '23 for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-navigating-video-uploads-on-social-platforms-for-2024/"><u>[Updated] Navigating Video Uploads on Social Platforms for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-real-time-sharing-iphone-video-and-image-crafting/"><u>[Updated] Real-Time Sharing  IPhone Video & Image Crafting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeting-and-tumbling-sharing-videos-seamlessly/"><u>[Updated] Tweeting & Tumbling  Sharing Videos Seamlessly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-video-converter-convert-twitter-video-to-audiomp4webm-for-2024/"><u>[Updated] Twitter Video Converter | Convert Twitter Video to Audio/MP4/WebM for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-instant-sharing-convert-tweets-to-snaps-users/"><u>2024 Approved  Instant Sharing  Convert Tweets to Snaps Users</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/dive-into-detailed-device-reviews-on-toms-technological-treasure-trove/"><u>Dive Into Detailed Device Reviews on Tom's Technological Treasure Trove</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/fixing-mss32dll-errors-a-comprehensive-guide-for-quick-solutions/"><u>Fixing mss32.dll Errors: A Comprehensive Guide for Quick Solutions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/generate-humor-picmagic-creation/"><u>Generate Humor  PicMagic Creation</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-keep-your-tp-link-ub400-bluetooth-adapter-running-smoothly-with-updated-drivers/"><u>How to Keep Your TP-Link UB400 Bluetooth Adapter Running Smoothly with Updated Drivers</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-iphone-15-pro-max-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and iPhone 15 Pro Max without Apple Account</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-a-quick-walkthrough-of-new-user-registration-on-twitter/"><u>In 2024, A Quick Walkthrough of New User Registration on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-beginning-with-tweets-your-new-twitter-journey/"><u>In 2024, Beginning with Tweets  Your New Twitter Journey</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-infinix-hot-40i-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Infinix Hot 40i To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-webm-transformation-from-tweeted-visuals/"><u>In 2024, WebM Transformation From Tweeted Visuals</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-y28-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo Y28 5G? Fixed | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/laugh-riot-10-most-entertaining-youtube-videos-for-2024/"><u>Laugh Riot  10 Most Entertaining YouTube Videos for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-realme-v30t-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Realme V30T Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/seamless-online-media-dissemination-on-vimeo-for-2024/"><u>Seamless Online Media Dissemination on Vimeo for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/stop-buffer-tweet-vids-in-chromium-browser-for-2024/"><u>Stop Buffer  Tweet Vids in Chromium Browser for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-google-chromes-advanced-multiscreen-capabilities/"><u>[Updated] Explore Google Chrome's Advanced Multiscreen Capabilities</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-find-the-top-8-video-communication-apps-for-android-groups/"><u>[Updated] In 2024, Find the Top 8 Video Communication Apps for Android Groups</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-chat-room-to-global-stage-broadcast-google-meet-on-youtube/"><u>2024 Approved From Chat Room to Global Stage Broadcast Google Meet on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-the-mysteries-of-firefoxs-pip-mode/"><u>2024 Approved Unveiling the Mysteries of Firefox’s PIP Mode</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/advanced-hardware-analysis-and-tips-by-toms-tech-experts/"><u>Advanced Hardware Analysis and Tips by Tom's Tech Experts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/best-practices-elevating-your-virtual-identity-on-facebook/"><u>Best Practices Elevating Your Virtual Identity on Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/dive-into-the-past-with-sibolans-ryzen-mini-pc-power-ranger-shades-meet-vintage-tech-at-a-bargain-price/"><u>Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-zhoaxin-to-lenovo-how-china-is-revolutionizing-pc-manufacturing-with-its-own-cpu-designs/"><u>From Zhoaxin to Lenovo - How China Is Revolutionizing PC Manufacturing with Its Own CPU Designs</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/miniature-homes-japanese-and-chinese-inspirations-for-2024/"><u>Miniature Homes Japanese & Chinese Inspirations for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-through-cutting-edge-technology-on-toms-hardware-blog/"><u>Navigating Through Cutting-Edge Technology on Tom's Hardware Blog</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/quick-fixes-for-common-phasmophobia-vr-game-errors/"><u>Quick Fixes for Common Phasmophobia VR Game Errors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/revolutionary-computer-tech-built-for-ultimate-air-cooling-with-powerful-central-fan-taming-centrifugal-force/"><u>Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-new-samsung-galaxy-tab-s6-discovering-its-innovative-features-and-dex-functionality/"><u>The Ultimate Review of the New Samsung Galaxy Tab S6 - Discovering Its Innovative Features and DeX Functionality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleashing-performance-the-msi-codex-r2-desktop-gaming-setup-reviewed-and-tested/"><u>Unleashing Performance: The MSI CODEX R2 Desktop Gaming Setup Reviewed and Tested</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

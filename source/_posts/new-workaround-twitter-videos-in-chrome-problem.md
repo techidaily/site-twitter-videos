@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Workaround  Twitter Videos in Chrome Problem\""
-date: 2024-09-09T17:30:43.111Z
-updated: 2024-09-10T17:30:43.111Z
+date: 2024-09-14T22:56:19.603Z
+updated: 2024-09-15T23:48:15.236Z
 tags:
   - ai video
   - ai twitter
@@ -21,12 +21,6 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
@@ -55,22 +49,10 @@ If you have checked the above aspect and it is not the case with your Twitter vi
 
 ![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
 
 ![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
 
 1. #### Clear Cookies and Cache
@@ -79,18 +61,6 @@ Clearing cookies and cache can solve multiple problems related to web browsers. 
 
 ![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Under the setting panel find and choose 'Clear Browsing Data'.
 
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
@@ -99,12 +69,6 @@ Now select the time range, you should select the 'All time' for the required res
 
 ![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
 
 1. #### Disable Chrome Extensions
@@ -121,12 +85,6 @@ After disabling all the extensions, reload the page and see if the videos are pl
 
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. #### Disable Hardware Acceleration
 
 Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
@@ -149,46 +107,31 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-funniest-punchlines-reddit-vs-twitter-memes/"><u>[New] 2024 Approved  Funniest Punchlines  Reddit Vs. Twitter Memes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-quick-quirky-qs-how-to-save-funny-tweets-as-gifs/"><u>[New] In 2024, Quick, Quirky Qs  How To Save Funny Tweets as GIFs</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-nexus-of-delight-kid-focused-gaming-guide/"><u>[New] Nexus of Delight  Kid-Focused Gaming Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-primes-premier-pieces-the-watched-and-tweeted-superstars-for-2024/"><u>[New] Prime’s Premier Pieces  The #Watched & Tweeted Superstars for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-best-twitter-gif-saver-for-you/"><u>[Updated] 2024 | Best Twitter GIF Saver for You</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-revealing-the-best-of-both-worlds-1-tiktoks-on-twitter/"><u>[Updated] 2024 Approved  Revealing the Best of Both Worlds  #1 TikToks on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-swift-tip-extracting-and-storing-twitter-video-on-phone/"><u>[Updated] 2024 Approved  Swift Tip  Extracting and Storing Twitter Video on Phone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-understanding-aspect-ratio-regulations-on-twitter/"><u>[Updated] 2024 Approved  Understanding Aspect Ratio Regulations on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-crafting-memorable-tweets-video-integration/"><u>[Updated] Crafting Memorable Tweets  Video Integration</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-create-powerful-biz-decks-with-no-cost-templates/"><u>[Updated] Create Powerful Biz Decks with No-Cost Templates</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-direct-video-tweet-to-twitter-apps-no-retweets-involved-for-2024/"><u>[Updated] Direct Video Tweet to Twitter Apps, No Retweets Involved for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-directing-viewers-across-platforms-igtv-and-facebook/"><u>[Updated] Directing Viewers Across Platforms  IGTV & Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-how-to-post-twitter-videos-on-snapchat/"><u>[Updated] In 2024, How to Post Twitter Videos on Snapchat?</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-reaping-rewards-a-comprehensive-guide-to-7-14-stardew-mods/"><u>[Updated] In 2024, Reaping Rewards  A Comprehensive Guide to #7-14 Stardew Mods</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-science-of-audience-retention-on-tweets/"><u>[Updated] In 2024, The Science of Audience Retention on Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-masterclass-converting-twitter-vids-to-eye-catching-engaging-gifs-for-2024/"><u>[Updated] Masterclass  Converting Twitter Vids to Eye-Catching, Engaging GIFs for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-preserving-gifs-from-twitter-for-mobile-devices-for-2024/"><u>[Updated] Preserving GIFs From Twitter for Mobile Devices for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-redesigned-look-at-s3700-sony-entertainment-for-2024/"><u>[Updated] Redesigned Look at S3700 Sony Entertainment for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-movie-journey-for-inspiration-seekers/"><u>[Updated] The Ultimate Movie Journey for Inspiration Seekers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-guide-to-playing-twitter-on-chromium-browser/"><u>2024 Approved  Guide to Playing Twitter on Chromium Browser</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterful-drawings-made-easy-top-chrome-os-tools-for-artists/"><u>2024 Approved  Masterful Drawings Made Easy  Top Chrome OS Tools for Artists</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-convert-twitter-videos-to-gifs/"><u>How To Convert Twitter Videos To GIFS?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-alternative-recreation-in-the-firstrow-rankings/"><u>In 2024, Alternative Recreation in the Firstrow Rankings</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-domination-how-videos-rule-twitter/"><u>In 2024, Digital Domination  How Videos Rule Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-gifify-your-tweet-a-costless-how-to-guide/"><u>In 2024, Gifify Your Tweet  A Costless How-To Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-can-i-use-twitter-archive/"><u>In 2024, How Can I Use Twitter Archive?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-seamless-transition-of-tweeted-vids-to-snappy-ends/"><u>In 2024, The Seamless Transition of Tweeted Vids to Snappy Ends</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/reclaiming-acoustics-lost-in-social-media-videos/"><u>Reclaiming Acoustics Lost in Social Media Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/start-earning-today-the-top-13-money-making-tips-for-newbies-for-2024/"><u>Start Earning Today  The Top 13 Money-Making Tips for Newbies for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-seamless-tweet-to-snap-transition-guide/"><u>The Seamless Tweet-to-Snap Transition Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-15-innovative-choices-for-action-cams-excluding-gopro/"><u>[New] 15 Innovative Choices for Action Cams, Excluding GoPro</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-add-a-professional-touch-youtube-video-image-crafting/"><u>[New] 2024 Approved Add a Professional Touch YouTube Video Image Crafting</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-record-webcam-chat/"><u>[New] How to Record Webcam Chat</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-essential-guide-utilizing-vimeo-record-for-screen-and-webcam-capture/"><u>[New] In 2024, Essential Guide Utilizing Vimeo Record for Screen & Webcam Capture</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-ultimate-guide-to-screenshot-and-record-mastery-on-mi-11/"><u>[Updated] In 2024, The Ultimate Guide to Screenshot & Record Mastery on Mi 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/advancements-from-pci-sig-new-copperlink-cable-solutions-set-to-revolutionize-pcie-5-and-6-connections-keep-an-eye-out-for-the-upcoming-pcie-7-standard/"><u>Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cutting-edge-performance-meets-affordability-a-closer-look-at-the-loongson-3a6000-in-a-387-chinese-mini-pc/"><u>Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/in-depth-analysis-of-moto-g-power-exceptional-longevity-and-performance/"><u>In-Depth Analysis of Moto G Power: Exceptional Longevity & Performance</u></a></li>
+<li><a href="https://solve-news.techidaily.com/navigating-gpu-accelerated-video-encoding-with-handbrake-essential-qandas-unveiled/"><u>Navigating GPU-Accelerated Video Encoding with HandBrake: Essential Q&As Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-gadget-secrets-with-toms-hardware-analysis/"><u>Unveiling Gadget Secrets with Tom's Hardware Analysis</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

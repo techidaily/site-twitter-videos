@@ -1,7 +1,7 @@
 ---
 title: "Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force"
-date: 2024-09-09T17:30:37.793Z
-updated: 2024-09-10T17:30:37.793Z
+date: 2024-09-13T01:54:38.730Z
+updated: 2024-09-16T01:05:44.158Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/134b4c3950f92b62491adfc9a2cfa838e49057f0eead8f917808b4db67b3f9f1.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cutting-Edge PC Architecture: Expertly Engineered for Efficient Air Cooling at the Heart of a Large Central Fan - Conquer Centrifugal Dynamics
 
 Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengthy video showcasing the building, iteration, and operation of[a true fan PC build](https://www.bilibili.com/video/BV1JE421A713/) , by which we mean the entire PC has been built into the center of a giant box fan painted to look like a case fan. This video demo should not be mistaken for an actually-viable[Mini PC](https://www.tomshardware.com/tag/mini-pc) project, and does not constitute any[PC cooling advice](https://www.tomshardware.com/how-to/set-up-pc-case-fans-for-airflow-and-performance) .
@@ -25,28 +19,10 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: 苏打baka on Bilibili)
 
  Now, let's talk a little more about the details of the PC build in question. Sodabaka essentially took an old Intel Sandybridge-era[Mini ITX](https://www.tomshardware.com/best-picks/best-mini-itx-pc-cases) motherboard and tested its operation while attached to a spinning fan.
@@ -59,12 +35,6 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -73,14 +43,11 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,60 +58,32 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-top-20-trending-memes-reddit-vs-twitter/"><u>[New] 2024 Approved  Top 20 Trending Memes  Reddit Vs. Twitter</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-discover-efficient-techniques-for-live-discord-recording-for-2024/"><u>[New] Discover Efficient Techniques for Live Discord Recording for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-glacial-glory-celebrating-olympic-champions-and-their-epic-slopesideshow-22/"><u>[New] Glacial Glory  Celebrating Olympic Champions & Their Epic Slopesideshow '22</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels/"><u>[New] In 2024, Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-laptop-dvd-playback-hacks-top-free-tools/"><u>[New] Laptop DVD Playback Hacks  Top Free Tools</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-premiere-vr-developers-shaping-the-future/"><u>[New] Premiere VR Developers Shaping the Future</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-sync-up-with-tiktok-live-the-strategy-for-participation/"><u>[New] Sync Up with TikTok Live  The Strategy for Participation</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-deceptive-consequences-of-genuine-popularity-illusions/"><u>[Updated] In 2024, The Deceptive Consequences of Genuine Popularity Illusions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-redesign-twitter-video-header-for-2024/"><u>[Updated] Redesign Twitter Video Header for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>[Updated] Retweeted Gifs  IPhone/Android Step-by-Step Savings for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-method-storing-tweet-imagesvideos-on-your-mobile/"><u>[Updated] Secure Method  Storing Tweet Images/Videos on Your Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-transfer-of-twitter-video-files-to-android/"><u>[Updated] Secure Transfer of Twitter Video Files to Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-your-tweets-as-snaps-easy-tutorials-for-2024/"><u>[Updated] Share Your Tweets as Snaps - Easy Tutorials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel/"><u>[Updated] Shift Twitter Video Preview Panel</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snap-to-gifs-making-twitter-video-freely-convertible/"><u>[Updated] Snap to GIFs  Making Twitter Video Freely Convertible</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snapchat-tips-uploading-twitter-videos-for-max-impact-for-2024/"><u>[Updated] SnapChat Tips  Uploading Twitter Videos for Max Impact for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-streamline-success-a-review-of-top-name-generators/"><u>[Updated] Streamline Success  A Review of Top Name Generators</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat/"><u>[Updated] Streamline Your Content  Posting Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-syncing-tiktok-content-with-twitter-for-2024/"><u>[Updated] Syncing TikTok Content with Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone-for-2024/"><u>[Updated] Tech Insight  Pulling and Keeping Twitters Vids in Phone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>[Updated] The Connected World  Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-top-20-trending-memes-reddit-vs-twitter/"><u>[Updated] Top 20 Trending Memes  Reddit Vs. Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-image-previews-for-youtube-like-experience-in-twitter-videos-for-2024/"><u>[Updated] Tweaking Image Previews for YouTube-Like Experience in Twitter Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming-for-2024/"><u>[Updated] Twitch Your Way  Mastering Twitter Video Livestreaming for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hilarious-highlights-for-2024/"><u>[Updated] Twitter's Hilarious Highlights for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>[Updated] TwitTrek Toolkit  A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitvidsync-ios-tool-to-seamlessly-save-twitter-vids-for-2024/"><u>[Updated] TwitVidsync  IOS Tool to Seamlessly Save Twitter Vids for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>[Updated] Unlocking the Potential  Twitter to Snapchat Video Exchange for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-wit-waves-the-top-10-jokes/"><u>[Updated] Wit Waves  The Top 10 Jokes</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-how-to-terminate-your-own-discord-server-pcmobile/"><u>2024 Approved  How to Terminate Your Own Discord Server (PC/Mobile)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-leading-meaningful-conversations-an-interviewers-journey/"><u>2024 Approved  Leading Meaningful Conversations  An Interviewer's Journey</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-prime-windows-10-photo-display/"><u>2024 Approved  Prime Windows 10 Photo Display</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-smooth-reels-enhancing-android-video-clarity/"><u>2024 Approved  Smooth 'Reels'  Enhancing Android Video Clarity</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/ai-tech-your-familys-comprehensive-overview/"><u>AI Tech: Your Family's Comprehensive Overview</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/capture-every-detail-android-recording-at-zero-cost/"><u>Capture Every Detail  Android Recording at Zero Cost</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-the-world-of-open-source-connectivity-evaluating-the-linksys-wrt1900acs-wi-fi-routers-potential/"><u>Dive Into the World of Open Source Connectivity: Evaluating the Linksys WRT1900ACS Wi-Fi Router's Potential</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/enabling-windows-pressed-enter-mechanism/"><u>Enabling Windows' Pressed Enter Mechanism</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-13-pro-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/free-download-ultimate-guide-and-driver-installation-for-logitech-k350-wireless-keyboard/"><u>Free Download: Ultimate Guide & Driver Installation for Logitech K350 Wireless Keyboard</u></a></li>
-<li><a href="https://driver-install.techidaily.com/1720063687158-get-your-tp-link-wireless-adapter-software-no-price/"><u>Get Your TP Link Wireless Adapter Software, No Price!</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/how-nokia-72-outshines-rivals-in-the-mid-range-smartphone-market-a-review/"><u>How Nokia 7.2 Outshines Rivals in The Mid-Range Smartphone Market - A Review</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-calibrate-an-iphones-battery-in-6-easy-steps/"><u>How to Calibrate an iPhone's Battery in 6 Easy Steps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-galaxy-f04-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Galaxy F04 Contacts  An Easy Method Explained.</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-transform-your-auditory-perception-with-internet-based-audio-modification-tools/"><u>In 2024, Transform Your Auditory Perception with Internet-Based Audio Modification Tools</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-top-10-preferred-gopro-housing/"><u>In 2024, Ultimate Guide  Top 10 Preferred GoPro Housing</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/iphone-laughs-and-lightheartedness/"><u>IPhone Laughs & Lightheartedness</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintaining-confidentiality-tips-for-securely-incorporating-chatgpt-into-your-job-tasks/"><u>Maintaining Confidentiality: Tips for Securely Incorporating ChatGPT Into Your Job Tasks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/proper-curing-is-essential-for-concrete-to-reach-its-intended-strength-and-durability/"><u>Proper Curing Is Essential for Concrete to Reach Its Intended Strength and Durability.</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/remedying-screen-sync-errors/"><u>Remedying Screen Sync Errors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/revolutionizing-iphone-photography-with-hdr-techniques-for-2024/"><u>Revolutionizing iPhone Photography with HDR Techniques for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secure-and-simplify-your-macs-space-the-standard-package-of-stellar-scheduled-file-remover-v5/"><u>Secure & Simplify Your Mac's Space – The Standard Package of Stellar Scheduled File Remover V5</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unpacking-speed-and-value-in-depth-review-of-the-tp-link-archer-c80-sub-100-wireless-router/"><u>Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher  Gather Twitter Videos Effortlessly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>Viral Video to Visuals  Converting Tweets to Costless CGI</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/your-first-step-on-twitter-creating-an-account-for-2024/"><u>Your First Step on Twitter  Creating an Account for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-streaming-made-easy-mac-methodology-for-recording-netflix/"><u>[New] 2024 Approved Streaming Made Easy Mac Methodology for Recording Netflix</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-obs-and-shadowplay-which-streams-better/"><u>[New] In 2024, Obs and ShadowPlay - Which Streams Better?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-free-fast-and-easy-top-5-choices-for-pinterest-video-downloaders/"><u>[Updated] In 2024, Free, Fast & Easy Top 5 Choices for Pinterest Video Downloaders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-troubleshooting-tips-fixing-srt-from-premiere-freeze/"><u>[Updated] Troubleshooting Tips Fixing SRT From Premiere Freeze</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/discover-cutting-edge-tech-with-insights-from-toms-hardware-experts/"><u>Discover Cutting-Edge Tech with Insights From Tom's Hardware Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhanced-computing-gigabyte-leads-the-charge-in-ai-tech-with-branded-workstations-premium-gpus-from-amdintel-and-essential-ssds/"><u>Enhanced Computing: Gigabyte Leads the Charge in AI Tech with Branded Workstations, Premium GPUs From AMD/Intel & Essential SSDs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/flight-in-the-smallest-form-a-compreenasive-look-at-dji-sparks-miniature-wonders/"><u>Flight in the Smallest Form A Compreenasive Look at DJI Spark's Miniature Wonders</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-apple-iphone-6s-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-honor-magic-5-lite-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Honor Magic 5 Lite to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/redefining-heroism-in-the-spider-man-franchise-with-miles-morales-expert-analysis/"><u>Redefining Heroism in the Spider-Man Franchise with Miles Morales - Expert Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/1723262399490-save-big-on-a-high-performance-cyberpower-desktop-999-with-nvidia-rtx-4060-and-more/"><u>Save Big on a High-Performance CyberPower Desktop: $999 with Nvidia RTX 4060 & More</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-nokia-c12-plus-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Nokia C12 Plus Phone Pattern Lock</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-picks-unmissable-black-friday-bargains-on-tribit-sound-gear/"><u>Top Picks: Unmissable Black Friday Bargains on Tribit Sound Gear</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleashing-potential-in-a-small-package-four-gigabit-lan-ports-complement-the-intel-raptor-cpu-inside-energy-efficient-msis-ms-c90/"><u>Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

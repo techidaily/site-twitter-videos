@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-09-09T17:30:37.597Z
-updated: 2024-09-10T17:30:37.597Z
+date: 2024-09-10T20:18:50.890Z
+updated: 2024-09-15T21:11:46.557Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -17,12 +17,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Tony Mitera
 
  What We Like
@@ -45,12 +39,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
@@ -80,12 +68,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -96,18 +78,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -117,11 +87,18 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -132,21 +109,16 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
 
@@ -193,8 +165,6 @@ A good choice with just a few nagging flaws.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -204,36 +174,15 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-incentivizing-engagement-for-a-robust-subscription-base/"><u>[New] 2024 Approved  Incentivizing Engagement for a Robust Subscription Base</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>[Updated] Retweeted Gifs  IPhone/Android Step-by-Step Savings for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-revamp-twitter-video-summary/"><u>[Updated] Revamp Twitter Video Summary</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-screen-scrapers-companion-easy-steps-to-save-tweets-visuals-for-2024/"><u>[Updated] Screen Scrapers' Companion  Easy Steps to Save Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-your-tweets-as-snaps-easy-tutorials-for-2024/"><u>[Updated] Share Your Tweets as Snaps - Easy Tutorials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel/"><u>[Updated] Shift Twitter Video Preview Panel</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-twitterscape-with-these-pc-tips/"><u>[Updated] Streamline Your Twitterscape with These PC Tips</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-streamlining-sound-recording-a-filmmakers-handbook-on-voice-overs-for-2024/"><u>[Updated] Streamlining Sound Recording  A Filmmaker's Handbook on Voice-Overs for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tailored-thumbnail-for-social-media-vids/"><u>[Updated] Tailored Thumbnail for Social Media Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone-for-2024/"><u>[Updated] Tech Insight  Pulling and Keeping Twitters Vids in Phone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>[Updated] The Connected World  Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-image-previews-for-youtube-like-experience-in-twitter-videos-for-2024/"><u>[Updated] Tweaking Image Previews for YouTube-Like Experience in Twitter Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming-for-2024/"><u>[Updated] Twitch Your Way  Mastering Twitter Video Livestreaming for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-ultimate-list-5-social-networks-like-twitter/"><u>[Updated] Ultimate List  5 Social Networks Like Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>[Updated] Unlocking the Potential  Twitter to Snapchat Video Exchange for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-virtual-producers-showdown-for-2024/"><u>[Updated] Virtual Producer's Showdown for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-wit-waves-the-top-10-jokes/"><u>[Updated] Wit Waves  The Top 10 Jokes</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-honor-play-8t-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Honor Play 8T Activity | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bluetooth-connection-woes-on-windows-10-how-to-get-your-paired-devices-really-connected-and-working/"><u>Bluetooth Connection Woes on Windows 10 - How to Get Your Paired Devices Really Connected and Working</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-the-world-of-open-source-connectivity-evaluating-the-linksys-wrt1900acs-wi-fi-routers-potential/"><u>Dive Into the World of Open Source Connectivity: Evaluating the Linksys WRT1900ACS Wi-Fi Router's Potential</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-superior-safe-browsing-routers-for-families/"><u>Expert Picks: Superior Safe Browsing Routers for Families</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-advanced-performance-and-innovative-design-in-dells-alienware-aurora-r9-an-essential-review-for-gamers/"><u>Exploring Advanced Performance and Innovative Design in Dell's Alienware Aurora R9: An Essential Review for Gamers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-calibrate-an-iphones-battery-in-6-easy-steps/"><u>How to Calibrate an iPhone's Battery in 6 Easy Steps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-xs-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone XS to the Previous iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-s17-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo S17 Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-safely-access-publicly-recorded-c-span-content/"><u>In 2024, How to Safely Access Publicly Recorded C-Span Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/iphone-data-detonator-reinstate-with-confidence/"><u>IPhone Data Detonator: Reinstate with Confidence</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintaining-confidentiality-tips-for-securely-incorporating-chatgpt-into-your-job-tasks/"><u>Maintaining Confidentiality: Tips for Securely Incorporating ChatGPT Into Your Job Tasks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/remedying-screen-sync-errors/"><u>Remedying Screen Sync Errors</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secure-and-simplify-your-macs-space-the-standard-package-of-stellar-scheduled-file-remover-v5/"><u>Secure & Simplify Your Mac's Space – The Standard Package of Stellar Scheduled File Remover V5</u></a></li>
-<li><a href="https://win-able.techidaily.com/taming-the-beast-mastering-fps-stability-and-eliminating-lags-in-cod-black-ops-4/"><u>Taming the Beast: Mastering FPS Stability and Eliminating Lags in COD Black Ops 4</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-a-complete-rundown-on-excellent-screen-recording-of-facetime-calls/"><u>[Updated] A Complete Rundown on Excellent Screen-Recording of FaceTime Calls</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-funny-faces-crafting-7-cheeky-youtube-comedy-videos/"><u>[Updated] Funny Faces Crafting 7 Cheeky YouTube Comedy Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-se-2022-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone SE (2022) Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/enhance-your-productivity-with-the-sabrent-compact-mouse-precision-meets-cable-free-portability/"><u>Enhance Your Productivity with the Sabrent Compact Mouse - Precision Meets Cable-Free Portability!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/intel-xeons-new-era-micron-launches-high-capacity-256gb-ddr5-8800-mrdimms/"><u>Intel Xeon's New Era: Micron Launches High-Capacity 256GB DDR5-8800 MRDIMMs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-ranking-vob-video-editor-tools-a-comprehensive-guide-to-cutting-joining-and-more/"><u>Top-Ranking VOB Video Editor Tools: A Comprehensive Guide to Cutting, Joining & More</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleash-tech-potential-learn-and-compare-equipment-on-toms-hardware/"><u>Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-the-world-of-gadgets-with-toms-hardware/"><u>Unveiling the World of Gadgets with Tom's Hardware</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block</u></a></li>
 </ul></div>
+

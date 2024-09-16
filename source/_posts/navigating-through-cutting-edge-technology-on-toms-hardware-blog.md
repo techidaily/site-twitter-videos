@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Cutting-Edge Technology on Tom's Hardware Blog
-date: 2024-09-09T17:30:37.838Z
-updated: 2024-09-10T17:30:37.838Z
+date: 2024-09-10T01:27:48.247Z
+updated: 2024-09-15T21:35:58.102Z
 tags:
   - desktop
 categories:
@@ -9,24 +9,12 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/EC84iW6Q73XSWA9w7o9N68-320-80.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Explore Cutting-Edge Tech with Tom's Hardware - Your Ultimate Gadget Guide
 
 Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com/desktops/mini-pcs/minisforum-atomman-x7-ti-touchscreen-mini-pc-comes-packing-an-intel-core-ultra-9-185h) device, this time with its eye on Mini PCs designed for gaming. The firm’s premium sub-brand is used here for a device offering the twin charms, and AMD Advantage blessings, of a[Ryzen R9 7945HX](https://www.tomshardware.com/news/ryzen-9-7945hx-beats-core-i9-13950hx) and Radeon[RX 7600M XT](https://www.tomshardware.com/news/amd-launches-rx-7600m-gpus-mobile-rdna-3-with-rtx-3060-performance) . Curiously, the new[AtomMan G7 Pt](https://www.minisforum.com/page/g7pt/index.html?lang=en) appears to be a rejigged version of the proposed Minisforum HX200G which was[showcased at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) back in January.
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/PyZgZxKUB9Acg9JX58bM36-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  As per our headline, Minisforum claims this is “the world’s first AMD Advantage-certified A+A high-performance Mini PC.” You can read more about[AMD Advantage for desktops](https://www.tomshardware.com/news/amds-advantage-comes-to-desktops-with-new-perf-boosting-features) , and we have[reviewed some laptops](https://www.tomshardware.com/reviews/asus-rog-strix-g15-advantage-edition-rx-6800m) with this certification. The AtomMan G7 Pt, however, is somewhere in-between as a Mini PC featuring mobile processors. For the rest of the specs check out the table below.
@@ -48,12 +36,6 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/BCXcTW8u5XFwpHJ2k5ueD6-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  The AMD Dragon Range CPU and RX7600M XT may not be the newest or most powerful AMD combo a PC maker could assemble in mid-2024\. Nevertheless, they should do a pretty good job delivering a capable mini gaming system experience, as long as user ambitions for higher resolutions (like 4K) and raytracing are kept in check.
@@ -68,22 +50,10 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
 ![Minisforum AtomMan G7 Pt](https://cdn.mos.cms.futurecdn.net/5vH5yUKbtEt5tHuJMtPYk5-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Minisforum)
 
  One of the bigger changes we have seen added to the AtomMan G7 Pt since its name was switched from the HX200G is the provision of dual RGB backlighting panels. The example logo scrawl provides a prime example of beauty being in the eye of the beholder.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -94,14 +64,11 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
  Pricing for the AtomMan G7 Pt hasn’t been divulged, though we have written back to Minisforum for some pricing details. Those particularly interested in this device might find it worthwhile to sign up for updates and a $50 discount coupon.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,56 +79,28 @@ Minisforum has launched its second[AtomMan branded](https://www.tomshardware.com
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/lash-forward-quick-youtube-playlists-distribution-for-2024/"><u>[New] Flash Forward  Quick Youtube Playlists Distribution for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-make-every-minute-count-for-view-growth-with-youtube-shorts/"><u>[New] How to Make Every Minute Count for View Growth with YouTube Shorts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-stepwise-guide-to-uploading-and-livestreaming-video-recordings/"><u>[New] Stepwise Guide to Uploading and Livestreaming Video Recordings</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-dive-deep-into-the-digital-world-adding-panoramic-photos-to-your-feed/"><u>[Updated] 2024 Approved  Dive Deep Into the Digital World  Adding Panoramic Photos to Your Feed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-redesign-twitter-video-header-for-2024/"><u>[Updated] Redesign Twitter Video Header for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>[Updated] Retweeted Gifs  IPhone/Android Step-by-Step Savings for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-revamp-twitter-video-summary/"><u>[Updated] Revamp Twitter Video Summary</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-screen-scrapers-companion-easy-steps-to-save-tweets-visuals-for-2024/"><u>[Updated] Screen Scrapers' Companion  Easy Steps to Save Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-method-storing-tweet-imagesvideos-on-your-mobile/"><u>[Updated] Secure Method  Storing Tweet Images/Videos on Your Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-transfer-of-twitter-video-files-to-android/"><u>[Updated] Secure Transfer of Twitter Video Files to Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-your-tweets-as-snaps-easy-tutorials-for-2024/"><u>[Updated] Share Your Tweets as Snaps - Easy Tutorials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel/"><u>[Updated] Shift Twitter Video Preview Panel</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snap-to-gifs-making-twitter-video-freely-convertible/"><u>[Updated] Snap to GIFs  Making Twitter Video Freely Convertible</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snapchat-tips-uploading-twitter-videos-for-max-impact-for-2024/"><u>[Updated] SnapChat Tips  Uploading Twitter Videos for Max Impact for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat/"><u>[Updated] Streamline Your Content  Posting Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-twitterscape-with-these-pc-tips/"><u>[Updated] Streamline Your Twitterscape with These PC Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-syncing-tiktok-content-with-twitter-for-2024/"><u>[Updated] Syncing TikTok Content with Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tailored-thumbnail-for-social-media-vids/"><u>[Updated] Tailored Thumbnail for Social Media Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone-for-2024/"><u>[Updated] Tech Insight  Pulling and Keeping Twitters Vids in Phone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>[Updated] The Connected World  Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-top-20-trending-memes-reddit-vs-twitter/"><u>[Updated] Top 20 Trending Memes  Reddit Vs. Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-image-previews-for-youtube-like-experience-in-twitter-videos-for-2024/"><u>[Updated] Tweaking Image Previews for YouTube-Like Experience in Twitter Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming-for-2024/"><u>[Updated] Twitch Your Way  Mastering Twitter Video Livestreaming for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hilarious-highlights-for-2024/"><u>[Updated] Twitter's Hilarious Highlights for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>[Updated] TwitTrek Toolkit  A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitvidsync-ios-tool-to-seamlessly-save-twitter-vids-for-2024/"><u>[Updated] TwitVidsync  IOS Tool to Seamlessly Save Twitter Vids for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-ultimate-list-5-social-networks-like-twitter/"><u>[Updated] Ultimate List  5 Social Networks Like Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>[Updated] Unlocking the Potential  Twitter to Snapchat Video Exchange for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-wit-waves-the-top-10-jokes/"><u>[Updated] Wit Waves  The Top 10 Jokes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/ai-tech-your-familys-comprehensive-overview/"><u>AI Tech: Your Family's Comprehensive Overview</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/all-you-need-to-know-about-googles-next-smartwatch-price-forecasts-release-window-and-hints-at-features/"><u>All You Need to Know About Google's Next Smartwatch - Price Forecasts, Release Window, and Hints at Features</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-under-attack-unraveling-the-mystery/"><u>ChatGPT Under Attack: Unraveling the Mystery</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-the-world-of-open-source-connectivity-evaluating-the-linksys-wrt1900acs-wi-fi-routers-potential/"><u>Dive Into the World of Open Source Connectivity: Evaluating the Linksys WRT1900ACS Wi-Fi Router's Potential</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/enabling-windows-pressed-enter-mechanism/"><u>Enabling Windows' Pressed Enter Mechanism</u></a></li>
-<li><a href="https://driver-install.techidaily.com/geforce-gtx-1650-driver-quick-install/"><u>GeForce GTX 1650 Driver - Quick Install</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-calibrate-an-iphones-battery-in-6-easy-steps/"><u>How to Calibrate an iPhone's Battery in 6 Easy Steps</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-pop-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Pop 8? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-chucklebox-top-meme-generator/"><u>In 2024, ChuckleBox - Top Meme Generator</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-jovial-access-key-strategies/"><u>In 2024, Jovial Access Key Strategies</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-the-ultimate-guide-to-choosing-a-tunefab-recorder/"><u>In 2024, The Ultimate Guide to Choosing a Tunefab Recorder</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/iphone-data-detonator-reinstate-with-confidence/"><u>IPhone Data Detonator: Reinstate with Confidence</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintaining-confidentiality-tips-for-securely-incorporating-chatgpt-into-your-job-tasks/"><u>Maintaining Confidentiality: Tips for Securely Incorporating ChatGPT Into Your Job Tasks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/remedying-screen-sync-errors/"><u>Remedying Screen Sync Errors</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secure-and-simplify-your-macs-space-the-standard-package-of-stellar-scheduled-file-remover-v5/"><u>Secure & Simplify Your Mac's Space – The Standard Package of Stellar Scheduled File Remover V5</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/er-the-10-best-makeup-experts-on-youtube-you-cant-ignore/"><u>Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unpacking-speed-and-value-in-depth-review-of-the-tp-link-archer-c80-sub-100-wireless-router/"><u>Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher  Gather Twitter Videos Effortlessly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-video-to-visuals-converting-tweets-to-costless-cgi/"><u>Viral Video to Visuals  Converting Tweets to Costless CGI</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/your-first-step-on-twitter-creating-an-account-for-2024/"><u>Your First Step on Twitter  Creating an Account for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-connect-and-conquer-tips-for-eternal-snapstreaks/"><u>[New] 2024 Approved Connect and Conquer Tips for Eternal Snapstreaks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-navigate-the-vlogiverse-6-curated-questionnaires-for-discerning-viewers/"><u>[New] Navigate the Vlogiverse 6 Curated Questionnaires for Discerning Viewers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/860-asus-nuc-14-proplus-enhanced-power-and-performance-with-meteor-lake-cpus/"><u>$860 Asus NUC 14 Pro+: Enhanced Power & Performance with Meteor Lake CPUs</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevate-video-branding-incorporating-watermarks-into-youtube-media/"><u>2024 Approved Elevate Video Branding Incorporating Watermarks Into YouTube Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/breakthrough-in-high-speed-processing-with-intels-new-optical-interconnect-technology-for-cpu-and-gpu-integration-delivering-up-to-wartime-bandwidth/"><u>Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/dissecting-cyberpunk-2ebsonsons-flaws-and-unfinished-brilliance/"><u>Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-poco-c65-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Poco C65? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-turn-high-definition-fb-videos-into-mp4-720p-1080p-for-free-online/"><u>In 2024, How To Turn High Definition FB Videos Into MP4 (720P, 1080P) for Free Online</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/introducing-lenovos-legion-7000k-towers-in-china-revolutionizing-gaming-with-advanced-modt-and-laptop-processor-integration/"><u>Introducing Lenovo’s Legion 7000K Towers in China: Revolutionizing Gaming with Advanced MoDT and Laptop Processor Integration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/lenovo-harnesses-chinas-native-cpu-powerhouse-for-its-fresh-computer-collection-five-peers-also-innovate-with-zhoaxin-technology-at-core/"><u>Lenovo Harnesses China's Native CPU Powerhouse for Its Fresh Computer Collection: Five Peers Also Innovate with Zhoaxin Technology at Core</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/mass-production-commences-for-cixins-latest-12-core-arm-based-ai-processor-achieving-45-tops-benchmark-in-china/"><u>Mass Production Commences for Cixin's Latest 12-Core Arm-Based AI Processor: Achieving 45 TOPS Benchmark in China</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/toms-tech-reviews-unlocking-the-secrets-of-computer-hardware/"><u>Tom's Tech Reviews: Unlocking the Secrets of Computer Hardware</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-collage-guide-from-concept-to-completion/"><u>Ultimate Collage Guide From Concept to Completion</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/1723262379974-unleash-mobile-data-potential-with-wd-ultrastar-transporters-massive-capacity-368tb-ice-lake-xeon-cpu-and-more/"><u>Unleash Mobile Data Potential with WD Ultrastar Transporter's Massive Capacity - 368TB, Ice Lake Xeon CPU, and More</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-best-intro-creator-software-for-windows-and-mac-for-2024/"><u>Updated Best Intro Creator Software for Windows and Mac for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-11-missing-advanced-display-options/"><u>Windows 11: Missing Advanced Display Options</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: Unleash Mobile Data Potential with WD Ultrastar Transporter's Massive Capacity - 368TB, Ice Lake Xeon CPU, and More
-date: 2024-09-09T17:30:37.203Z
-updated: 2024-09-10T17:30:37.203Z
+date: 2024-09-13T20:34:53.026Z
+updated: 2024-09-15T17:16:41.420Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4a594b07cf7ffe549e83acd7.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Unleash Mobile Data Potential with WD Ultrastar Transporter's Massive Capacity - 368TB, Ice Lake Xeon CPU, and More
 
 [Western Digital](https://www.tomshardware.com/tag/western-digital) , known for its hard drives and SSDs, has unveiled a new product that isn't a storage device in the technical sense. The product, known as the Ultrastar Transporter, is a new Western Digital-built travel case that houses a whopping 368TB of NVMe flash storage. The case is TAA compliant and has a 12-core Intel Ice Lake server that houses all SSDs and dual 200Gb ethernet ports.
@@ -25,22 +19,10 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
 ![Western Digital Ultrastar Transporter](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Western Digital)
 
  A few examples include workloads where high-capacity data capture needs to be processed at one location from another. Another is the proliferation of multi-datacenter workflows, where large data sets have to be held at multiple locations and rapidly sent to those locations faster than what raw internet bandwidth can provide.
@@ -49,18 +31,6 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
  The case itself looks like a conventional carrying case. The outer shell appears to be hard plastic, with metal supporting rails filling the lips of the case. The case features two latching mechanisms and a mechanism to attach a lock for[security](https://www.tomshardware.com/tag/security) . You can transport the travel case by rolling it on its two wheels or with another handle that allows you to carry it like a briefcase.
 
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -69,14 +39,11 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,60 +54,23 @@ thumbnail: https://thmb.techidaily.com/3f943451ad9f20674a4982a12bf6e3782b7a46fb4
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram/"><u>[Desktop & Mobile Solutions] How to Rotate Videos for Instagram?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-effortlessly-manage-followers-with-top-twitter-cleanup-apps/"><u>[New] 2024 Approved  Effortlessly Manage Followers with Top Twitter Cleanup Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-essential-guide-fetching-twitter-videos-directly-from-mobile/"><u>[New] 2024 Approved  Essential Guide  Fetching Twitter Videos Directly From Mobile</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-archive-awesome-perfecting-twitter-video-backups-for-2024/"><u>[New] Archive Awesome  Perfecting Twitter Video Backups for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-capture-the-magic-our-list-of-top-12-cameras-for-exceptional-vlogs-for-2024/"><u>[New] Capture the Magic  Our List of Top 12 Cameras for Exceptional Vlogs for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-filming-friends-directly-share-videos-on-twitter-for-2024/"><u>[New] Filming Friends  Directly Share Videos on Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-expert-tips-for-twitter-video-interactions/"><u>[New] In 2024, Expert Tips for Twitter Video Interactions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-smartphone-savvy-capturing-and-storing-twitter-gifs/"><u>[New] In 2024, Smartphone Savvy  Capturing & Storing Twitter GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-guide-to-compliant-twitter-media-posts/"><u>[New] In 2024, Step-by-Step Guide to Compliant Twitter Media Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-insiders-manual-reacting-on-twitter-videos/"><u>[New] Insider’s Manual  Reacting on Twitter Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mastering-twitter-broadcast-alive-tweets-guide/"><u>[New] Mastering Twitter Broadcast  Alive Tweets Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-no-cost-nintendo-switch-virtual-games-for-2024/"><u>[New] No-Cost Nintendo Switch Virtual Games for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tailored-timeline-management-best-twitter-unfollow-tools-ranked-for-2024/"><u>[New] Tailored Timeline Management  Best Twitter Unfollow Tools Ranked for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-telegram-for-novices-an-easy-path-to-effective-advertising/"><u>[New] Telegram for Novices  An Easy Path to Effective Advertising</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-social-to-storage-iphone-and-android-gif-savings/"><u>[Updated] 2024 Approved  From Social to Storage  IPhone & Android GIF Savings</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-videos-on-facebook-the-transfer-guide/"><u>[Updated] 2024 Approved  Twitter Videos on Facebook  The Transfer Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-viral-videos-not-pricey-twitter-video-to-gif-conversion/"><u>[Updated] 2024 Approved  Viral Videos, Not Pricey  Twitter Video to GIF Conversion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-visualsnitch-capture-and-save-tweets-images-and-videos/"><u>[Updated] 2024 Approved  VisualSnitch  Capture and Save Tweets' Images & Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-all-inclusive-screen-logger-detailed-app-analyses-for-2024/"><u>[Updated] All-Inclusive Screen Logger - Detailed App Analyses for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-edu-core-definitive-learning-channels-online-for-2024/"><u>[Updated] Edu-Core  Definitive Learning Channels Online for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-chortle-curators-humor-hunt/"><u>[Updated] In 2024, Chortle Curators  Humor Hunt</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-cross-social-video-broadcasting-from-twitter-to-snapchat/"><u>[Updated] In 2024, Cross-Social Video Broadcasting  From Twitter, To Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-yearbook-of-viral-content-on-twitter-2023-edition/"><u>[Updated] In 2024, The Yearbook of Viral Content on Twitter, 2023 Edition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-trendsetters-on-twitternet-top-10-threads-ranking/"><u>[Updated] In 2024, Trendsetters on Twitternet  Top 10 Threads Ranking</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-master-guide-ultimate-tips-for-maximizing-mobizens-screen-capture-for-2024/"><u>[Updated] Master Guide  Ultimate Tips for Maximizing Mobizen's Screen Capture for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitter-video-content-flow-to-facebook-for-2024/"><u>[Updated] Navigating Twitter Video Content Flow to Facebook for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-quick-twitterscape-snag-gifs-with-these-tips/"><u>[Updated] Quick Twitterscape  Snag Gifs with These Tips</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-streamline-video-saving-from-linkedin-using-this-6-app-compilation-for-2024/"><u>[Updated] Streamline Video Saving From LinkedIn Using This 6-App Compilation for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-cinematics-from-video-to-wavmp3/"><u>[Updated] Tweeted Cinematics  From Video to WAV/MP3</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-upgrading-visual-appeal-a-how-to-guide-for-twitter-video-image-changes/"><u>2024 Approved  Upgrading Visual Appeal  A How-To Guide for Twitter Video Image Changes</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-oneplus-11r-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-oppo-reno-9a-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Oppo Reno 9A System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazon-prime-hits-twitters-trendiest-watchers-and-lovers-for-2024/"><u>Amazon Prime Hits  Twitter's Trendiest Watchers & Lovers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/bypass-issue-twitter-video-on-chrome-freeze-for-2024/"><u>Bypass Issue  Twitter Video on Chrome Freeze for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-sony-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Sony? Try These Fixes</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-successfully-overcome-windows-update-issue-error-80244019-explained-and-solved/"><u>How to Successfully Overcome Windows Update Issue – Error 80244019 Explained and Solved</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Realme V30T | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-elevating-visual-engagement-transferring-twitter-videos-on-snapchat/"><u>In 2024, Elevating Visual Engagement  Transferring Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-motorola-defy-2-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Motorola Defy 2 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-ios-leading-ps2-simulators-top-picks/"><u>In 2024, IOS Leading PS2 Simulators  Top Picks</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-refurbished-apple-iphone-12-pro-everything-you-need-to-know-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Refurbished Apple iPhone 12 Pro Everything You Need to Know | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionary-marketing-tactics-keyword-essentials/"><u>In 2024, Revolutionary Marketing Tactics  Keyword Essentials</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-social-media-sound-conversion/"><u>In 2024, Social Media Sound Conversion</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-pursuit-of-perfection-a-complete-sj-cam-s6-review/"><u>In Pursuit of Perfection  A Complete SJ-CAM S6 Review</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/instant-recording-tips-for-facetime-chats-for-2024/"><u>Instant Recording Tips for FaceTime Chats for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/meme-marchers-the-path-to-viral-twitcinema/"><u>Meme Marchers  The Path to Viral TwitCinema</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-13-ultra-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi 13 Ultra and Browser | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/starfield-wont-play-solve-your-game-launch-issues-with-this-comprehensive-guide-steam-and-xbox/"><u>Starfield Won't Play? Solve Your Game Launch Issues with This Comprehensive Guide (Steam & Xbox)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-future-of-social-media-sharing-twitter-videos-on-fb/"><u>The Future of Social Media  Sharing Twitter Videos on FB</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/transforming-youtube-content-advanced-strategies-to-perfect-videos-after-publishing-for-2024/"><u>Transforming YouTube Content  Advanced Strategies to Perfect Videos After Publishing for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unraveling-video-platform-distinctions-a-youtube-vs-dailymention-analysis/"><u>Unraveling Video Platform Distinctions  A YouTube Vs. DailyMention Analysis</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unveiling-the-features-a-detailed-examination-of-bandns-nook-glowlight-plus-ebook-reader/"><u>Unveiling the Features: A Detailed Examination of B&N's Nook GlowLight Plus Ebook Reader</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-moment-makers-2024/"><u>Viral Moment Makers 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/watching-wonders-amazon-primes-top-series-on-twitter-for-2024/"><u>Watching Wonders  Amazon Prime's Top Series on Twitter for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-save-money-with-the-right-youtube-tv-plan/"><u>[New] How to Save Money with the Right YouTube TV Plan</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-for-selective-image-editing-in-photo-software/"><u>[Updated] Expert Tips for Selective Image Editing in Photo Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-filmmakers-guide-seamless-editing-and-uploading-360-degree-footage-for-youtube/"><u>[Updated] In 2024, A Filmmaker's Guide Seamless Editing & Uploading 360-Degree Footage for YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-perfecting-time-lapse-videos-on-a-gopro-hero5-black/"><u>[Updated] Perfecting Time-Lapse Videos on a GoPro Hero5 Black</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/discover-the-best-no-cost-pc-games-and-demystify-the-world-of-mechanical-keyboards-today/"><u>Discover the Best No-Cost PC Games and Demystify the World of Mechanical Keyboards Today</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-the-powerhouse-underneath-how-noctuas-nh-l12sx77-transforms-small-form-factor-pc-cooling-with-superior-ram-and-vrm-heat-sink-design/"><u>Discover the Powerhouse Underneath: How Noctua's NH-L12Sx77 Transforms Small Form Factor PC Cooling with Superior RAM and VRM Heat Sink Design</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-infinix-zero-30-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Infinix Zero 30 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/intel-xeons-new-era-micron-launches-high-capacity-256gb-ddr5-8800-mrdimms/"><u>Intel Xeon's New Era: Micron Launches High-Capacity 256GB DDR5-8800 MRDIMMs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/next-level-computing-on-demand-portable-256-core-servers-with-giant-storage-and-ram-in-fly-away-kits/"><u>Next-Level Computing On Demand: Portable 256-Core Servers With Giant Storage and RAM in Fly-Away Kits</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/ultimate-verdict-testing-the-reliability-of-the-185wh-50000mah-battery-pack-by-maxoak/"><u>Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleash-tech-potential-learn-and-compare-equipment-on-toms-hardware/"><u>Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

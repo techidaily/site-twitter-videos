@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-09-09T17:30:37.413Z
-updated: 2024-09-10T17:30:37.413Z
+date: 2024-09-14T02:09:46.018Z
+updated: 2024-09-15T21:52:22.998Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/5d3b16b34799fd4027e4ade17484dcb7de0969abd15218a509c4db117b716df9.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## $59 for Musical Mastery: Embrace the World of Open Source with Tulip's MicroPython-Driven Computer Designed for Musicians
 
 For just $59, musicians now have a new option for a purpose-built musical computer with a touchscreen and music synthesizer— meet the[Tulip Creative Computer](https://tulip.computer/) , a FOSS (Free and Open Source) project available as a pre-made purchase in free software form for existing PCs and Macs, or even fully buildable at home to those with the resources and know-how to get it done.
@@ -25,12 +19,6 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  Tulip, a musical computer based on Micropython - YouTube ![Tulip, a musical computer based on Micropython - YouTube](https://img.youtube.com/vi/1lYFjQp7Xrw/maxresdefault.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Watch On](https://youtu.be/1lYFjQp7Xrw)
 
  The synthesizer at the heart of Tulip is the AMY (Addictive Music synthesizer librarY), another FOSS project made to be integrated across "almost any program, architecture, or microcontroller" and usable as an FM synthesizer, analog-type synthesizer, drum machine, or even a breakpoint synthesizer. AMY is also used by the FOSS mesh synthesizer project Alles (think FOSS wireless speaker mesh solution), which Tulip Creative Computers also supports.
@@ -41,12 +29,6 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -55,14 +37,11 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,43 +52,27 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-efficient-methods-for-extracting-vimeo-sound-tracks/"><u>[New] Efficient Methods for Extracting Vimeo Sound Tracks</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-developing-optimal-canon-chrono-recordings/"><u>[New] In 2024, Developing Optimal Canon Chrono Recordings</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-audio-experts-choice-best-6-microphone-picks-for-online-broadcasting/"><u>[Updated] Audio Experts' Choice  Best 6 Microphone Picks for Online Broadcasting</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-essential-info-for-tweeting-videos-aspect-ratios-required-for-2024/"><u>[Updated] Essential Info for Tweeting Videos  Aspect Ratios Required for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-redesign-twitter-video-header-for-2024/"><u>[Updated] Redesign Twitter Video Header for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>[Updated] Retweeted Gifs  IPhone/Android Step-by-Step Savings for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-revamp-twitter-video-summary/"><u>[Updated] Revamp Twitter Video Summary</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-screen-scrapers-companion-easy-steps-to-save-tweets-visuals-for-2024/"><u>[Updated] Screen Scrapers' Companion  Easy Steps to Save Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-secure-transfer-of-twitter-video-files-to-android/"><u>[Updated] Secure Transfer of Twitter Video Files to Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-your-tweets-as-snaps-easy-tutorials-for-2024/"><u>[Updated] Share Your Tweets as Snaps - Easy Tutorials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-shift-twitter-video-preview-panel/"><u>[Updated] Shift Twitter Video Preview Panel</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat/"><u>[Updated] Streamline Your Content  Posting Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-twitterscape-with-these-pc-tips/"><u>[Updated] Streamline Your Twitterscape with These PC Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-syncing-tiktok-content-with-twitter-for-2024/"><u>[Updated] Syncing TikTok Content with Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tailored-thumbnail-for-social-media-vids/"><u>[Updated] Tailored Thumbnail for Social Media Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tech-insight-pulling-and-keeping-twitters-vids-in-phone-for-2024/"><u>[Updated] Tech Insight  Pulling and Keeping Twitters Vids in Phone for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>[Updated] The Connected World  Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-image-previews-for-youtube-like-experience-in-twitter-videos-for-2024/"><u>[Updated] Tweaking Image Previews for YouTube-Like Experience in Twitter Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming-for-2024/"><u>[Updated] Twitch Your Way  Mastering Twitter Video Livestreaming for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hilarious-highlights-for-2024/"><u>[Updated] Twitter's Hilarious Highlights for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>[Updated] TwitTrek Toolkit  A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitvidsync-ios-tool-to-seamlessly-save-twitter-vids-for-2024/"><u>[Updated] TwitVidsync  IOS Tool to Seamlessly Save Twitter Vids for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-ultimate-list-5-social-networks-like-twitter/"><u>[Updated] Ultimate List  5 Social Networks Like Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>[Updated] Unlocking the Potential  Twitter to Snapchat Video Exchange for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-wit-waves-the-top-10-jokes/"><u>[Updated] Wit Waves  The Top 10 Jokes</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-unveiling-the-10-best-free-os-agnostic-video-solutions/"><u>2024 Approved  Unveiling the 10 Best Free OS-Agnostic Video Solutions</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-unveiled-understanding-and-assessing-risks/"><u>AI Unveiled: Understanding & Assessing Risks</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/boosting-engagement-joint-video-strategies-for-growth/"><u>Boosting Engagement  Joint Video Strategies for Growth</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-the-world-of-open-source-connectivity-evaluating-the-linksys-wrt1900acs-wi-fi-routers-potential/"><u>Dive Into the World of Open Source Connectivity: Evaluating the Linksys WRT1900ACS Wi-Fi Router's Potential</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/effortless-driver-download-and-updates-for-scansnap-s1300i-users/"><u>Effortless Driver Download & Updates for ScanSnap S1300i Users</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/essentials-of-film-color-enhancement-for-2024/"><u>Essentials of Film Color Enhancement for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-calibrate-an-iphones-battery-in-6-easy-steps/"><u>How to Calibrate an iPhone's Battery in 6 Easy Steps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/infographic-insight-whats-hot-on-23-social-sphere/"><u>Infographic Insight  What's Hot on '23 Social Sphere</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/iphone-data-detonator-reinstate-with-confidence/"><u>IPhone Data Detonator: Reinstate with Confidence</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/remedying-screen-sync-errors/"><u>Remedying Screen Sync Errors</u></a></li>
-<li><a href="https://fox-that.techidaily.com/restore-your-iphones-volume-troubleshooting-tips-for-no-sound/"><u>Restore Your iPhone's Volume: Troubleshooting Tips for No Sound</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secure-and-simplify-your-macs-space-the-standard-package-of-stellar-scheduled-file-remover-v5/"><u>Secure & Simplify Your Mac's Space – The Standard Package of Stellar Scheduled File Remover V5</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher  Gather Twitter Videos Effortlessly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-2023-free-compre-folios/"><u>[New] Innovative 2023 Free, Compre Folios</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-collabs-that-attract-and-retain-viewers-for-2024/"><u>[Updated] Crafting Collabs that Attract and Retain Viewers for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-cinematic-closeness-a-kinemaster-expertise-for-close-up-craft/"><u>2024 Approved Cinematic Closeness A Kinemaster Expertise for Close-Up Craft</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlocking-windows-11-potential-with-a-simple-upgrade/"><u>2024 Approved Unlocking Windows 11 Potential with a Simple Upgrade</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/award-winning-app-for-families-mondlys-innovative-design/"><u>Award-Winning App for Families: Mondly's Innovative Design</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-razer-camera-study/"><u>Comprehensive Razer Camera Study</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/dive-into-the-past-with-sibolans-ryzen-mini-pc-power-ranger-shades-meet-vintage-tech-at-a-bargain-price/"><u>Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/exploring-the-world-of-computing-with-toms-hardware-insights/"><u>Exploring the World of Computing with Tom's Hardware Insights</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-htc-u23-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-zhoaxin-to-lenovo-how-china-is-revolutionizing-pc-manufacturing-with-its-own-cpu-designs/"><u>From Zhoaxin to Lenovo - How China Is Revolutionizing PC Manufacturing with Its Own CPU Designs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-through-cutting-edge-technology-on-toms-hardware-blog/"><u>Navigating Through Cutting-Edge Technology on Tom's Hardware Blog</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/revolutionary-computer-tech-built-for-ultimate-air-cooling-with-powerful-central-fan-taming-centrifugal-force/"><u>Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-13-pro-max-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone 13 Pro Max</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/toms-hardware-hub-explore-cutting-edge-tech-advice-for-every-level-of-user/"><u>Tom's Hardware Hub: Explore Cutting-Edge Tech Advice For Every Level of User</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

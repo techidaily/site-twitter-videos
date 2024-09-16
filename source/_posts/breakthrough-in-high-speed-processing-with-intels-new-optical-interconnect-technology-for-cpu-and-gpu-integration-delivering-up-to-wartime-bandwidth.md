@@ -1,7 +1,7 @@
 ---
 title: Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth
-date: 2024-09-09T17:30:37.219Z
-updated: 2024-09-10T17:30:37.219Z
+date: 2024-09-14T23:06:12.037Z
+updated: 2024-09-15T22:38:10.286Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://cdn.mos.cms.futurecdn.net/oPMXJGetzuURdNctz3AxRm-320-80.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Next-Gen Computing: Discover the Powerful Combination of Meteor Lake CPU and Intel Core I9 in OneXPlayer's New Mini-PC - Enhanced with up to 32GB RAM & OCuLink Technology
 
 One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU enclosure, just introduced its first mini-PC on Indiegogo—the OneXPlayer M1\. This tiny device (via[Liliputing](https://liliputing.com/onexplayer-m1-is-a-mini-pc-with-intel-core-ultra-9-185h-oculink-and-usb4/) ) has the Intel Core Ultra 9 185H and up to 32 GB of RAM. It also has an RJ45 port, Wi-Fi 6E, and Bluetooth 5.2, meaning you have three different connectivity options.
@@ -31,32 +25,6 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
- (Image credit: One-Netbook)
-
-![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
- (Image credit: One-Netbook)
-
-![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: One-Netbook)
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
@@ -65,12 +33,14 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+ (Image credit: One-Netbook)
+
+![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+ (Image credit: One-Netbook)
+
+![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
  (Image credit: One-Netbook)
 
  Aside from the Power button, One-Netbook also gave its mini-PC an RGB button to adjust the RGB lights on the case. But what’s interesting is that the Turbo button from PCs in the 1980s and 1990s is returning on the OneXPlayer M1\. The Turbo button will push the 185H’s power draw from the base 45 to 60 watts — just five watts short of its maximum configurable TDP. A 100-watt USB-C power supply also powers the mini-PC, so you’ll have ample power, even pushing the processor to its limit.
@@ -79,18 +49,6 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -99,14 +57,11 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,54 +72,27 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-finding-superior-hashtags-for-your-youtube-content/"><u>[New] 2024 Approved  Finding Superior Hashtags for Your YouTube Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-leveraging-live-tweets-strategies-unveiled/"><u>[New] 2024 Approved  Leveraging Live Tweets  Strategies Unveiled</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-switch-strikes-top-10-fighting-game-picks/"><u>[New] 2024 Approved  Switch Strikes  Top 10 Fighting Game Picks</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/new-best-student-focused-historical-yt-series/"><u>[New] Best Student-Focused Historical YT Series</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-boost-engagement-by-personalizing-your-twitter-videos-with-new-thumbnails/"><u>[New] Boost Engagement by Personalizing Your Twitter Videos with New Thumbnails</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-direct-upload-from-twitter-to-tumblr-for-2024/"><u>[New] Direct Upload From Twitter to Tumblr for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-flawless-flow-from-tiktok-creations-to-twitter-broadcasting/"><u>[New] Flawless Flow From TikTok Creations to Twitter Broadcasting</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-becoming-a-meet-maestro-chat-techniques-unveiled/"><u>[New] In 2024, Becoming a Meet Maestro  Chat Techniques Unveiled</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-digital-drama-videoviral-sagas-unfold-online/"><u>[New] In 2024, Digital Drama  #VideoViral Sagas Unfold Online</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-hashtag-hits-top-10-viral-tiktoks-on-twitter/"><u>[New] In 2024, Hashtag Hits  Top 10 Viral TikToks on Twitter</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-making-a-channels-story-visible-in-snippets/"><u>[New] In 2024, Making a Channel's Story Visible in Snippets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-prime-video-kingmakers-top-tweeted-and-most-watched-originals/"><u>[New] In 2024, Prime Video Kingmakers  Top Tweeted & Most Watched Originals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-sociostreamer-convert-tweets-to-videos/"><u>[New] In 2024, SocioStreamer  Convert Tweets to Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unveiling-audible-tweets-within-social-media-videos/"><u>[New] In 2024, Unveiling Audible Tweets Within Social Media Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-maintain-proper-aspect-ratio-for-tweeted-movies-for-2024/"><u>[New] Maintain Proper Aspect Ratio for Tweeted Movies for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-stop-muted-tracks-in-tweeted-video-content/"><u>[New] Stop Muted Tracks in Tweeted Video Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweeting-visual-stories-from-vids-to-interactive-gifs/"><u>[New] Tweeting Visual Stories  From Vids to Interactive GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-unveiling-the-process-of-making-a-twitter-account-for-2024/"><u>[New] Unveiling the Process of Making a Twitter Account for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-video-mastery-step-by-step-guide-to-cropping-and-exporting-for-insta-for-2024/"><u>[New] Video Mastery  Step by Step Guide to Cropping and Exporting for Insta for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-demystifying-twitter-archives-for-users-and-analysts/"><u>[Updated] 2024 Approved  Demystifying Twitter Archives for Users & Analysts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-capture-your-audience-the-smartphone-guide-to-youtube-thumbnails/"><u>[Updated] Capture Your Audience  The Smartphone Guide to YouTube Thumbnails</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-complying-with-dimension-requirements-in-twitter-videos-for-2024/"><u>[Updated] Complying with Dimension Requirements in Twitter Videos for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-content-appeal-with-these-essential-5-tiktok-caption-techniques/"><u>[Updated] Elevate Content Appeal with These Essential 5 TikTok Caption Techniques</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-hand-tracking-explained-types-and-applications/"><u>[Updated] Hand Tracking Explained  Types and Applications</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-convenient-approach-to-downloading-the-funniest-tweets-gifs-on-pc/"><u>[Updated] In 2024, Convenient Approach to Downloading the Funniest Tweets (GIFs) on PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-empowering-tiktok-sharing-on-twitter-networks/"><u>[Updated] In 2024, Empowering TikTok Sharing on Twitter Networks</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-easy-route-to-capturing-every-gameplay-moment/"><u>[Updated] In 2024, The Easy Route to Capturing Every Gameplay Moment</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-science-of-audience-retention-on-tweets-for-2024/"><u>[Updated] The Science of Audience Retention on Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-top-strategies-for-crafting-viral-reactions-a-guide/"><u>[Updated] Top Strategies for Crafting Viral Reactions  A Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hot-takes-the-10-craziest-tweets-for-2024/"><u>[Updated] Twitter's Hot Takes  The 10 Craziest Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-from-zero-to-hero-on-twitter-live/"><u>2024 Approved  From Zero to Hero on Twitter Live</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-iphone-12-pro-max-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From iPhone 12 Pro Max</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/cost-free-creative-conversion-twitter-to-tweeple-gifs-for-2024/"><u>Cost-Free Creative Conversion  Twitter to Tweeple GIFs for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/cutting-edge-online-methods-for-supercharging-vhs-artifacts/"><u>Cutting-Edge Online Methods for Supercharging VHS Artifacts</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/essential-knowledge-optimizing-your-use-of-mobizen-recorders-for-2024/"><u>Essential Knowledge  Optimizing Your Use of Mobizen Recorders for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-f34-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy F34 5G? Try These Fixes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/go-live-on-twitter-a-practical-guide/"><u>Go Live on Twitter  A Practical Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-videos-from-your-infinix-by-fonelab-android-recover-video/"><u>How to recover old videos from your Infinix</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oneplus-nord-ce-3-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your OnePlus Nord CE 3 5GFRP Lock</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-vivo-v27e-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Vivo V27e Device</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-slowly-quieting-tracks-with-fl-studio/"><u>In 2024, Slowly Quieting Tracks with FL Studio</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-video-time-warp-techniques-for-2024/"><u>Instagram Video Time Warp Techniques for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maximizing-visibility-on-twitter-campaigns-for-2024/"><u>Maximizing Visibility on Twitter Campaigns for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-through-historical-twitter-data-for-2024/"><u>Navigating Through Historical Twitter Data for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-how-to-reset-final-cut-pro-x-to-troubleshoot-issues-for-2024/"><u>New How to Reset Final Cut Pro X to Troubleshoot Issues for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-guide-to-youtube-playlist-in-html-for-2024/"><u>Step-by-Step Guide to YouTube Playlist in HTML for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitdance-choreographed-videos-go-viral-online-for-2024/"><u>TwitDance  Choreographed Videos Go Viral Online for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-potential-of-youtube-shorts-a-comprehensive-tutorial-for-2024/"><u>Unlocking the Potential of YouTube Shorts  A Comprehensive Tutorial for 2024</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-locate-the-wolf-whistle-ambiance-for-2024/"><u>Updated Locate the Wolf Whistle Ambiance for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-become-an-expert-at-capturing-every-detail-on-xiaomi-mi-11/"><u>[New] Become an Expert at Capturing Every Detail on Xiaomi Mi 11</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-leading-tech-review-the-top-10-screen-recorders/"><u>[Updated] 2024 Approved Leading Tech Review The Top 10 Screen Recorders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimal-strategy-for-integrating-linktree-in-tiktok-profiles/"><u>[Updated] Optimal Strategy for Integrating Linktree in TikTok Profiles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveil-images-clearly-10-online-editors-guide/"><u>[Updated] Unveil Images Clearly 10 Online Editors' Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/discover-cutting-edge-tech-with-insights-from-toms-hardware-experts/"><u>Discover Cutting-Edge Tech with Insights From Tom's Hardware Experts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discovering-the-range-of-ipads-that-feature-internal-gps-capabilities/"><u>Discovering the Range of iPads That Feature Internal GPS Capabilities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhanced-computing-gigabyte-leads-the-charge-in-ai-tech-with-branded-workstations-premium-gpus-from-amdintel-and-essential-ssds/"><u>Enhanced Computing: Gigabyte Leads the Charge in AI Tech with Branded Workstations, Premium GPUs From AMD/Intel & Essential SSDs</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-simple-guide-asus-touchpad-driver-installation-on-windows-10/"><u>Quick and Simple Guide: ASUS Touchpad Driver Installation on Windows 10</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/redefining-heroism-in-the-spider-man-franchise-with-miles-morales-expert-analysis/"><u>Redefining Heroism in the Spider-Man Franchise with Miles Morales - Expert Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/1723262399490-save-big-on-a-high-performance-cyberpower-desktop-999-with-nvidia-rtx-4060-and-more/"><u>Save Big on a High-Performance CyberPower Desktop: $999 with Nvidia RTX 4060 & More</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-notch-hardware-evaluations-by-toms-industry-experts/"><u>Top-Notch Hardware Evaluations by Tom's Industry Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/transform-your-tunes-with-our-newly-launched-open-source-tulip-creative-pc-running-micropython-all-for-only-59-dollars/"><u>Transform Your Tunes with Our Newly Launched Open-Source Tulip Creative PC Running MicroPython, All for Only 59 Dollars</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unleash-your-stream-potential-on-youtube-with-just-a-handful-of-followers-for-2024/"><u>Unleash Your Stream Potential on YouTube with Just a Handful of Followers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-the-world-of-gadgets-with-toms-hardware/"><u>Unveiling the World of Gadgets with Tom's Hardware</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
