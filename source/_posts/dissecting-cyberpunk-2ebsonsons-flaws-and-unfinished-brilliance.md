@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2024-09-14T23:16:37.820Z
-updated: 2024-09-15T17:16:37.924Z
+date: 2024-09-16T16:50:20.917Z
+updated: 2024-09-20T21:07:54.688Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -73,20 +73,33 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -97,6 +110,13 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -110,13 +130,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -125,16 +138,16 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -155,13 +168,6 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -206,20 +212,15 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/updated-a-comprehensive-guide-to-modern-versatile-game-recording-software-for-2024/"><u>[Updated] A Comprehensive Guide to Modern, Versatile Game Recording Software for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-experts-guide-to-the-best-ipad-voice-recording-tools-3-for-2024/"><u>[Updated] Expert's Guide to the Best iPad Voice Recording Tools #3 for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/advancements-from-pci-sig-new-copperlink-cable-solutions-set-to-revolutionize-pcie-5-and-6-connections-keep-an-eye-out-for-the-upcoming-pcie-7-standard/"><u>Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/1723262349631-ayaneo-unveils-the-newly-launched-amd-driven-mini-pc-the-classic-macintosh-revival-now-in-retail/"><u>Ayaneo Unveils the Newly Launched AMD-Driven Mini PC: The Classic Macintosh Revival - Now in Retail!</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-vs-bing-bot-showdown-a-comprehensive-breakdown-of-their-10-main-distinctions/"><u>ChatGPT Vs. Bing Bot Showdown: A Comprehensive Breakdown of Their 10 Main Distinctions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-test-drive-of-the-linksys-velop-tri-band-mesh-wifi-system/"><u>Comprehensive Test Drive of the Linksys Velop Tri-Band Mesh WiFi System</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/crafting-quality-content-image-submission-for-youtubers/"><u>Crafting Quality Content Image Submission for YouTubers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/cutting-edge-performance-meets-affordability-a-closer-look-at-the-loongson-3a6000-in-a-387-chinese-mini-pc/"><u>Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/dive-into-electronics-with-toms-gadget-guide-professional-reviews-and-comparisons/"><u>Dive Into Electronics with Tom's Gadget Guide - Professional Reviews and Comparisons</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-12-mini-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 12 mini Safe and Legal</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/expert-tips-and-guides-on-electronics-from-toms-hardware-hub/"><u>Expert Tips and Guides on Electronics From Tom's Hardware Hub</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-mix-fold-3-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Mix Fold 3 with Video Repair Utility on Windows?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-speakers-guide-to-captivating-visual-storytelling/"><u>In 2024, The Speaker's Guide to Captivating Visual Storytelling</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-gadget-secrets-with-toms-hardware-analysis/"><u>Unveiling Gadget Secrets with Tom's Hardware Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-the-best-in-computing-the-toms-hardware-scoop/"><u>Unveiling the Best in Computing: The Tom's Hardware Scoop</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-live-video-on-fb-audience-focused-guide/"><u>[New] Live Video on FB Audience-Focused Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-extreme-sports-face-off-comparing-hero5-black-to-session/"><u>2024 Approved Extreme Sports Face-Off Comparing Hero5 Black to Session</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-potential-effects-of-artificial-intelligence-on-game-development/"><u>Exploring the Potential Effects of Artificial Intelligence on Game Development</u></a></li>
+<li><a href="https://win-able.techidaily.com/helldivers-2-wont-start-on-steam-here-are-quick-fixes/"><u>Helldivers 2 Won't Start on Steam? Here Are Quick Fixes!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-tactics-for-increasing-campaign-efficiency-with-smart-hashtag-usage-on-fb/"><u>In 2024, Tactics for Increasing Campaign Efficiency with Smart Hashtag Usage on FB</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/innovating-your-ultimate-tiktok-seal-for-2024/"><u>Innovating Your Ultimate TikTok Seal for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/next-level-computing-on-demand-portable-256-core-servers-with-giant-storage-and-ram-in-fly-away-kits/"><u>Next-Level Computing On Demand: Portable 256-Core Servers With Giant Storage and RAM in Fly-Away Kits</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/stop-the-crashes-masterful-strategies-to-smooth-out-your-diablo-immortal-experience-on-pc/"><u>Stop the Crashes: Masterful Strategies to Smooth Out Your Diablo Immortal Experience on PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleash-tech-potential-learn-and-compare-equipment-on-toms-hardware/"><u>Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-the-world-of-gadgets-with-toms-hardware/"><u>Unveiling the World of Gadgets with Tom's Hardware</u></a></li>
 </ul></div>
 

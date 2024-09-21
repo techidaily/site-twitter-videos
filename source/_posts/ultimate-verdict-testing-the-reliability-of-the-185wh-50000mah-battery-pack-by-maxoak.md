@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-09-10T20:18:50.890Z
-updated: 2024-09-15T21:11:46.557Z
+date: 2024-09-16T23:09:03.473Z
+updated: 2024-09-20T19:19:06.054Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -86,19 +86,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -109,16 +96,16 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
 
@@ -143,6 +130,19 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
+
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,15 +174,14 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/updated-a-complete-rundown-on-excellent-screen-recording-of-facetime-calls/"><u>[Updated] A Complete Rundown on Excellent Screen-Recording of FaceTime Calls</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-funny-faces-crafting-7-cheeky-youtube-comedy-videos/"><u>[Updated] Funny Faces Crafting 7 Cheeky YouTube Comedy Videos</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/did-your-apple-iphone-se-2022-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your Apple iPhone SE (2022) Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/enhance-your-productivity-with-the-sabrent-compact-mouse-precision-meets-cable-free-portability/"><u>Enhance Your Productivity with the Sabrent Compact Mouse - Precision Meets Cable-Free Portability!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/intel-xeons-new-era-micron-launches-high-capacity-256gb-ddr5-8800-mrdimms/"><u>Intel Xeon's New Era: Micron Launches High-Capacity 256GB DDR5-8800 MRDIMMs</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-ranking-vob-video-editor-tools-a-comprehensive-guide-to-cutting-joining-and-more/"><u>Top-Ranking VOB Video Editor Tools: A Comprehensive Guide to Cutting, Joining & More</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unleash-tech-potential-learn-and-compare-equipment-on-toms-hardware/"><u>Unleash Tech Potential - Learn and Compare Equipment on Tom's Hardware.</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-the-world-of-gadgets-with-toms-hardware/"><u>Unveiling the World of Gadgets with Tom's Hardware</u></a></li>
-<li><a href="https://facebook.techidaily.com/watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-essential-tactics-for-success-in-instagrams-video-discussions/"><u>[Updated] 2024 Approved Essential Tactics for Success in Instagram's Video Discussions</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-prime-sites-where-your-presents-stand-out-in-a-sea-of-boxes/"><u>[Updated] 2024 Approved Prime Sites Where Your Presents Stand Out in a Sea of Boxes</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-high-quality-capture-on-mac-a-review-of-top-10-software/"><u>[Updated] In 2024, High-Quality Capture on Mac A Review of Top 10 Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bring-command-prompt-to-windows-11s-task-manager/"><u>Bring Command Prompt to Windows 11'S Task Manager</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/discovering-new-heights-in-reading-with-the-2018-amazon-kindle-paperwhite-ultimate-review-for-enhanced-literature-adventure/"><u>Discovering New Heights in Reading with the 2018 Amazon Kindle Paperwhite: Ultimate Review for Enhanced Literature Adventure</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/exploring-the-world-of-computing-with-toms-hardware-insights/"><u>Exploring the World of Computing with Tom's Hardware Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/pioneering-tech-evaluations-and-discounts-join-the-circle-of-gizmogeeks-community/"><u>Pioneering Tech Evaluations and Discounts - Join the Circle of GizmoGeeks Community</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-vanguard-initiation-errors-for-a-smooth-gameplay-experience-in-valorant/"><u>Resolving Vanguard Initiation Errors for a Smooth Gameplay Experience in Valorant</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/toms-hardware-hub-explore-cutting-edge-tech-advice-for-every-level-of-user/"><u>Tom's Hardware Hub: Explore Cutting-Edge Tech Advice For Every Level of User</u></a></li>
 </ul></div>
 

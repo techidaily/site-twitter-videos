@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mend Error  Non-Playing Vids in Chrome\""
-date: 2024-09-09T17:30:44.802Z
-updated: 2024-09-10T17:30:44.802Z
+date: 2024-09-13T19:05:34.382Z
+updated: 2024-09-21T07:35:24.497Z
 tags:
   - ai video
   - ai twitter
@@ -53,12 +53,6 @@ In the window of settings, you will find flash in this list. Click the drop-down
 
 ![twitter-video-not-playing-fix3](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This will allow Twitter to use flash to play videos. If this was the reason behind the Twitter videos not playing in Chrome, allowing flash will solve this problem.
 
 1. #### Clear Cookies and Cache
@@ -67,32 +61,14 @@ Clearing cookies and cache can solve multiple problems related to web browsers. 
 
 ![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Under the setting panel find and choose 'Clear Browsing Data'.
 
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
 
 ![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
 
 1. #### Disable Chrome Extensions
@@ -103,24 +79,12 @@ To disable Chrome extensions, go to the "More Tools" then click on "Extensions".
 
 ![twitter-video-not-playing-fix7](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It will open a new window that contains all the extensions that are installed in your Chrome browser. Disable each of these extensions one by one.
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. #### Disable Hardware Acceleration
 
 Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
@@ -143,52 +107,35 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-amplifying-online-videos-best-5-tools-and-tricks/"><u>[New] 2024 Approved  Amplifying Online Videos  Best 5 Tools & Tricks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[New] 2024 Approved  Pinnacle Platforms  Alternatives to the Oldest Birdcalls</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-saturating-screen-with-high-definition-tweets/"><u>[New] 2024 Approved  Saturating Screen with High-Definition Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-snicker-showcase-top-10-tweets/"><u>[New] 2024 Approved  Snicker Showcase  Top 10 Tweets</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-craft-compelling-fb-video-ads-free-toolkit-included-for-2024/"><u>[New] Craft Compelling FB Video Ads - Free Toolkit Included for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-funny-frenzy-discovering-the-top-tweets-for-laughter/"><u>[New] Funny Frenzy  Discovering the Top Tweets for Laughter</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-ideal-ict-equipment-educators-top-10-lecture-capturers/"><u>[New] Ideal ICT Equipment  Educators' Top 10 Lecture Capturers</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-expressive-leadership-examination-refined-no-8/"><u>[New] In 2024, Expressive Leadership Examination - Refined No. 8</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-next-level-android-for-3d-video-enthusiasts/"><u>[New] In 2024, Next-Level Android for 3D Video Enthusiasts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-reel-revolution-enjoying-twitter-videos-at-ultimate-quality/"><u>[New] In 2024, Reel Revolution  Enjoying Twitter Videos at Ultimate Quality</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/avigating-youtubes-algorithm-as-a-game-streamer/"><u>[New] Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitsoundscape-audio-from-tweets-for-2024/"><u>[New] TwitSoundscape  Audio From Tweets for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-unlock-social-media-secrets-with-instagram-insights-for-2024/"><u>[New] Unlock Social Media Secrets with Instagram Insights for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-crossing-platforms-upload-video-to-twittertumblr-for-2024/"><u>[Updated] Crossing Platforms  Upload Video to Twitter/Tumblr for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-customize-twitter-video-snapshot/"><u>[Updated] Customize Twitter Video Snapshot</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-diving-into-twitter-starting-fresh/"><u>[Updated] Diving Into Twitter  Starting Fresh</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-post-a-video-between-twitter-and-tumblr/"><u>[Updated] How to Post a Video Between Twitter and Tumblr?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-modify-twitter-video-screenshot/"><u>[Updated] Modify Twitter Video Screenshot</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-secrets-of-effective-powerpoint-presentation-recordings/"><u>[Updated] Secrets of Effective PowerPoint Presentation Recordings</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-ultimate-snapchat-plus-twitter-duo-video-posting-guide-for-2024/"><u>[Updated] The Ultimate Snapchat + Twitter Duo (Video Posting Guide) for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unraveling-the-best-video-formats-for-youtube-success/"><u>[Updated] Unraveling the Best Video Formats for YouTube Success</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-from-twitter-to-gifs-a-cost-saving-how-to-guide/"><u>2024 Approved  From Twitter to Gifs  A Cost-Saving How-To Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-media-impact-tiktoks-viral-tweets-at-the-forefront/"><u>2024 Approved  Social Media Impact  TikTok's Viral Tweets at the Forefront</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-take-it-upward-expert-techniques-for-phones/"><u>2024 Approved  Take It Upward  Expert Techniques for Phones</u></a></li>
-<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y200e-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/demystify-video-editing-with-free-vimeo-resources/"><u>Demystify Video Editing with Free Vimeo Resources</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/downloading-the-latest-tiktok-features-on-your-macbook/"><u>Downloading the Latest TikTok Features on Your MacBook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/from-camera-to-community-shared-videos-on-twtplustumble-for-2024/"><u>From Camera to Community  Shared Videos on Twt+Tumble for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-motorola-moto-g84-5g-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from Motorola Moto G84 5G</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Realme 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-my-vivo-x-flip-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Vivo X Flip Location Is Wrong | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-tiktok-to-twitter-sharing-videos/"><u>In 2024, TikTok to Twitter  Sharing Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/innovative-techniques-to-transform-your-footage-in-gopro-studio/"><u>Innovative Techniques to Transform Your Footage in GoPro Studio</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/prime-video-kingmakers-top-tweeted-and-most-watched-originals-for-2024/"><u>Prime Video Kingmakers  Top Tweeted & Most Watched Originals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/quicktweet-clip-swiftly-gather-social-media-vids/"><u>QuickTweet Clip  Swiftly Gather Social Media Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-high-def-odyssey-of-youtubes-twitter-vids/"><u>The High-Def Odyssey of YouTube's Twitter Vids</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitter-video-dimensions-aspect-ratio-standards-for-2024/"><u>Twitter Video Dimensions  Aspect Ratio Standards for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-global-vr-landscape-recent-developments/"><u>[New] Global VR Landscape Recent Developments</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-20-most-popular-memes-on-reddit-and-twitter/"><u>[New] In 2024, 20 Most Popular Memes on Reddit and Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preserving-gifs-from-twitter-for-mobile-devices/"><u>[New] In 2024, Preserving GIFs From Twitter for Mobile Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unclog-youtube-videos-from-twitter-in-chrome/"><u>[New] Unclog YouTube Videos From Twitter in Chrome</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-pioneering-success-with-real-time-twitter-videos/"><u>[Updated] In 2024, Pioneering Success with Real-Time Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweeting-visuals-integrating-youtube-and-snapchat/"><u>[Updated] In 2024, Tweeting Visuals Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-pinnacle-platforms-alternatives-to-the-oldest-birdcalls-for-2024/"><u>[Updated] Pinnacle Platforms Alternatives to the Oldest Birdcalls for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-maximizing-video-memories-3-itunes-saving-methods/"><u>2024 Approved Maximizing Video Memories 3 iTunes Saving Methods</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-black-ops-cold-war-solved-issue-stuck-during-shader-compilation/"><u>Fixing 'Black Ops Cold War' - Solved Issue: Stuck During Shader Compilation</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-poco-m6-pro-4g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Poco M6 Pro 4G Devices</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mark-your-calendars-apple-announces-the-scheduled-date-for-its-upcoming-iphone-15-launch/"><u>Mark Your Calendars: Apple Announces the Scheduled Date for Its Upcoming iPhone 15 Launch</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solutions-for-continuous-freezing-in-call-of-duty-modern-warfare-when-playing-on-desktop-computers/"><u>Solutions for Continuous Freezing in Call of Duty: Modern Warfare When Playing on Desktop Computers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-xiaomi-redmi-12-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Xiaomi Redmi 12 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-a54-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy A54 5G Phone Network-Ready</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
