@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Tweet Time Machine  Capturing the Essence of Twitter's Videos\""
-date: 2024-09-18T00:46:42.635Z
-updated: 2024-09-20T17:55:14.254Z
+date: 2024-09-24T22:10:51.672Z
+updated: 2024-09-27T09:17:49.665Z
 tags:
   - ai video
   - ai twitter
@@ -95,13 +95,6 @@ Make sure you’re relatable to the type of audience who’s most likely to watc
 
 A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ● Use your body
 
 Eye contact is extremely important when it comes to communicating with other people, but most importantly, it's necessary for keeping your viewer focused on the screen. If you're looking at your notes or fumbling with your phone, it's likely that your viewer will start looking at something else as well. So take advantage of this fact by doing something silly or memorable while narrating your video. It makes for good entertainment and helps keep viewers engaged.
@@ -113,6 +106,13 @@ Make sure your background is clear and that your camera is placed in a location 
 ### ● Avoid background music
 
 Tip: Try not to use any type of music in the background of your video. This can distract from the main focus of the video, which is supposed to be your reaction.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ● Use effects
 
@@ -143,6 +143,13 @@ The original tweet is embedded in the reaction video or picture.
 To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote Tweet with reaction.” It’ll let you create Tweet Take, which is essentially a video or picture with the Tweet embedded.
 
 ![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Make A Good Reaction Video for Twitter?
 
@@ -194,22 +201,16 @@ People like watching other people get excited because it reminds them of how muc
 
 Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ● Keep things fun
 
 A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ● Use your body
 
@@ -254,10 +255,10 @@ To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote
 ![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Make A Good Reaction Video for Twitter?
@@ -284,6 +285,13 @@ Import the Tweet (take a screenshot of the Tweet if it’s an image or text) int
 
 ![Import your media files to Filmora](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **● Step 2: Place files on the video track**
 
 Now, record your reaction video and import it to the editor as well. You need to place the Tweet video or image on the video track and then place your reaction video directly above it. The top video should be in a larger size so make sure to adjust its size by clicking on the video and opening it in the preview. Now, drag the handles inward or outward to position the video.
@@ -295,10 +303,10 @@ There are over 60 motion effects, numerous transitions, and visual effects to ad
 ![choose from a wide selection of editing tools](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can use its blending modes to control the opacity of the Tweet image or video you’re reacting to.
@@ -363,6 +371,13 @@ To make a Twitter reaction, you need to tap the Retweet icon and choose “Quote
 
 ![Twitter new quote tweet with reaction feature](https://images.wondershare.com/filmora/article-images/2022/02/twitter-reaction-videos-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Make A Good Reaction Video for Twitter?
 
 The next time you see an interesting Tweet, you might be tempted to use the “quote tweet with reaction” feature. Sharing your reaction on any Tweet is more than just posting a picture or video of your facial expressions.
@@ -413,13 +428,6 @@ People like watching other people get excited because it reminds them of how muc
 
 Make sure you’re relatable to the type of audience who’s most likely to watch the video. For example, if you want to appeal to a younger demographic, then you should use more current slang in your videos. Similarly, if the audience is likely to be grown-up adults, then talk accordingly so your reaction video is relatable and appealing to them.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### ● Keep things fun
 
 A common mistake people make when recording videos is taking themselves too seriously. By using jokes and humor, not only will viewers be entertained by the video itself, but they may also be more inclined to share it with their friends and family!
@@ -431,6 +439,13 @@ Eye contact is extremely important when it comes to communicating with other peo
 ### ● Shoot with clear background
 
 Make sure your background is clear and that your camera is placed in a location where there will be minimal disruptions. The last thing you want is for someone else to sneak into your frame and ruin the quality of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### ● Avoid background music
 
@@ -469,5 +484,20 @@ For certain occasions, these videos are the perfect outlet to express your emoti
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pioneering-successful-twitter-promotions/"><u>[New] 2024 Approved Pioneering Successful Twitter Promotions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unlocking-the-value-in-twitters-archives/"><u>[New] 2024 Approved Unlocking the Value in Twitters Archives</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-meme-marchers-the-path-to-viral-twitcinema/"><u>[New] In 2024, Meme Marchers The Path to Viral TwitCinema</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-ensure-video-success-on-twitter-understand-the-aspect-ratio/"><u>[Updated] Ensure Video Success on Twitter Understand the Aspect Ratio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-video-legends-youtubed-for-millions/"><u>[Updated] Viral Video Legends YouTubed for Millions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-in-review-social-medias-viral-videos-on-twitter-for-2024/"><u>2023 in Review Social Media's Viral Videos on Twitter for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-navigating-vertical-vs-horizontal-on-facebook-videos/"><u>2024 Approved Navigating Vertical vs Horizontal on Facebook Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-companions-choosing-blu-ray-software-freepaid-on-pcsmacs/"><u>In 2024, Best Companions Choosing Blu-Ray Software (Free/Paid) on PCs/Macs</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/reconciled-error-code-22-in-graphics-driver/"><u>Reconciled Error Code 22 in Graphics Driver</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-on-demand-picks-of-6-top-ranked-free-android-apps-for-youtube/"><u>Tunes on Demand Picks of 6 Top-Ranked Free Android Apps for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-youtube-success-top-video-strategies-to-explode-views-for-2024/"><u>Unlocking YouTube Success Top Video Strategies to Explode Views for 2024</u></a></li>
+</ul></div>
 

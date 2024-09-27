@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-09-16T16:22:44.262Z
-updated: 2024-09-20T22:26:32.517Z
+date: 2024-09-23T09:48:58.057Z
+updated: 2024-09-26T23:28:52.278Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -40,6 +40,13 @@ Lifewire / Emily Isaacs
 [View On Amazon $78](https://www.amazon.com/Fellowes-Microban-Split-Design-Keyboard/dp/B0002CE0XO?tag=lifewire-onsite-prod-20&ascsubtag=4780294%7Cn668ce44e90054ecb91b1dbd3aca2275805%7CB0002CE0XO) [View On Walmart $78](https://www.walmart.com/ip/Fellowes-FEL98915-Split-Design-Ergonomic-Keyboard-with-Microban-1-Black/10363789) [View On Staples](https://www.staples.com/Fellowes-98915-Microban-Split-Design-Corded-Keyboard/product%5F806284)
 
 4.2
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
@@ -82,13 +89,6 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -96,6 +96,13 @@ Lifewire / Emily Isaacs
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Multimedia hotkeys for ease of use**
 
@@ -108,10 +115,10 @@ Lifewire / Emily Isaacs
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: A budget-friendly ergonomic keyboard**
@@ -125,6 +132,13 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -141,13 +155,6 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,5 +181,18 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-avoiding-camera-induced-image-disruption-for-2024/"><u>[New] Avoiding Camera-Induced Image Disruption for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-connecting-twitters-vids-with-fb-audience/"><u>[New] Connecting Twitter's Vids with FB Audience</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-metaverse-chronicles-a-list-of-the-most-unforgettable-sci-fi-adventures-on-screen/"><u>[New] Metaverse Chronicles A List of the Most Unforgettable Sci-Fi Adventures on Screen</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-direct-upload-from-twitter-to-tumblr-for-2024/"><u>[Updated] Direct Upload From Twitter to Tumblr for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-sensational-jokes-ranking-the-viral-ones/"><u>[Updated] In 2024, Sensational Jokes Ranking the Viral Ones</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-election-enthusiasts-essentials-quintessential-voting-games/"><u>2024 Approved Election Enthusiasts' Essentials Quintessential Voting Games</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-sound-solution-for-twitters-video-content/"><u>2024 Approved The Sound Solution for Twitter's Video Content</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/conversa-gratuitamente-archivos-de-audio-opus-a-linea-con-movavi-la-mejor-herramienta-sin-coste/"><u>Conversa Gratuitamente Archivos De Audio OPUS a Línea Con Movavi: La Mejor Herramienta Sin Coste</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-6s-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone 6s Safe and Legal</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>In 2024, Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/subtle-reduction-of-volume-in-fl-studio/"><u>Subtle Reduction of Volume in FL Studio</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-09-16T06:56:18.557Z
-updated: 2024-09-20T16:22:12.690Z
+date: 2024-09-26T09:31:55.962Z
+updated: 2024-09-27T03:17:11.481Z
 tags:
   - chatgpt
   - open-ai
@@ -35,6 +35,19 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which Is the Easiest Large Language Model to Use?
 
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
@@ -55,16 +68,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which LLM Has the Best General Knowledge?
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In order to test which LLM has the best general knowledge, we asked three questions.
 
@@ -79,10 +92,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  All three chatbots correctly identified Franco Malerba as an Italian astronaut and member of the European Parliament, with Bard giving an answer worded identically to a section of Malerba's Wikipedia entry.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which LLM Is Good for Technical Instructions?
@@ -102,10 +115,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which LLM Is Good for Writing Code?
@@ -153,5 +166,26 @@ You read it here first, folks.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-ultimate-checklist-to-increase-likes-on-your-tiktok-videos/"><u>[New] 2024 Approved The Ultimate Checklist to Increase Likes on Your TikTok Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tiktok-and-twittersphere-crossover-the-viral-vids/"><u>[New] 2024 Approved TikTok and Twittersphere Crossover The Viral Vids</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-crafting-compelling-podcast-names-a-detailed-guide-with-idea-examples/"><u>[New] Crafting Compelling Podcast Names A Detailed Guide with Idea Examples</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-fix-quiet-tweets-with-youtube-links-for-2024/"><u>[New] Fix Quiet Tweets with YouTube Links for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-pick-the-best-days-to-post-on-youtube/"><u>[New] In 2024, Pick the Best Days to Post on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-preventing-unseen-frames-in-video-captures/"><u>[New] In 2024, Preventing Unseen Frames in Video Captures</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unleash-the-power-of-memes-with-twitter-video-to-gif-transformation/"><u>[New] In 2024, Unleash the Power of Memes with Twitter Video-to-GIF Transformation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-tweeted-videos-on-facebooks-networks-for-2024/"><u>[Updated] Mastering Tweeted Videos on Facebooks Networks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-sociostreamer-convert-to-webmmp4-for-2024/"><u>[Updated] SocioStreamer Convert to WebM/MP4 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-complete-blueprint-for-iphone-photo-arrangement-in-ordered-algebras-and-icloud/"><u>[Updated] The Complete Blueprint for iPhone Photo Arrangement in Ordered Algebras and iCloud</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-compre-cooked-tweets-the-complete-tweet-vids-guide/"><u>2024 Approved Compre Cooked Tweets The Complete Tweet Vids Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-master-screen-recording-capturing-and-preserving-snaps-efficiently/"><u>2024 Approved Master Screen Recording Capturing and Preserving Snaps Efficiently</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-titling-techniques-an-after-effects-perspective/"><u>2024 Approved Titling Techniques An After Effects Perspective</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unleashing-full-hd-clarity-on-every-tweet-scroll/"><u>2024 Approved Unleashing Full HD Clarity on Every Tweet Scroll</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-honor-magic-5-pro-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Honor Magic 5 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-on-your-iphone-13-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock on your iPhone 13 Pro and iPad</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-laugh-ledger-comedy-chronicles-from-twitters-best-videos/"><u>In 2024, Laugh Ledger Comedy Chronicles From Twitter's Best Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-twitters-promotional-features-for-2024/"><u>Navigating Twitter's Promotional Features for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-itel-p40-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Itel P40</u></a></li>
+</ul></div>
 
