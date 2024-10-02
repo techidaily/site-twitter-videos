@@ -1,7 +1,7 @@
 ---
 title: "\"Shared Humor  Top 20 Memes Across Social Networks for 2024\""
-date: 2024-09-20T08:19:07.225Z
-updated: 2024-09-26T17:20:11.511Z
+date: 2024-09-30T17:30:36.156Z
+updated: 2024-10-02T16:19:45.815Z
 tags:
   - ai video
   - ai twitter
@@ -34,11 +34,31 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 
 ## Part 1: The Most Popular Memes on Reddit
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Manning Face
 
 This is a meme featuring Peyton Manning wearing a black hood and kneeling on a football field during practice. It is usually used as what is called a “bait and switch” meme. People will click on a link and expect it to be something interesting or important, and it just ends up being Manning Face.
 
 ![Manning Face](https://images.wondershare.com/filmora/article-images/Manning-Face-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. That's The Joke
 
@@ -58,25 +78,18 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. This is Fine
 
 4his is Fine” is based on a cartoon where a dog is sitting in a chair, drinking out of a coffee mug and stating “This is Fine” while the entire house is burning down around him. This is usually posted as a response to a news story or information where something chaotic is happening and no one seems to be reacting as they should be.
 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Smug Frog
 
@@ -108,13 +121,6 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: The Most Popular Memes on Twitter
 
 ### 1\. Arthur’s Fist
@@ -123,17 +129,45 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Evil Kermit
 
 Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the frog from one of the Muppet films). This picture is usually accompanied by a conversation between the user and their “evil self” about a decision that they’re trying to make.
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Nut Button
 
 Nut Button started as a sexual meme, but it’s commonly used as a picture of someone hitting a blue or red button with a word on it. It’s accompanied by text explaining why you would want to hit that button in that context.
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Spongebob Mock
 
@@ -147,20 +181,6 @@ These images vary, but they’re usually a person with a specific expression on 
 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Expanding Brain
 
 Expanding Brain is a picture with three images of the brain; one ordinary, one slightly lit up, and then one that appears to be exploding in light. On the right hand side of the image, it’s usually something about the user’s evolving thoughts or ideas relating to a topic or how they do things.
@@ -173,24 +193,18 @@ These posters, at first glance, look like motivational posters, with images of n
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
-
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Conceited Reaction
 
@@ -204,19 +218,6 @@ Usually represented by a stick figure, it’s someone looking at a computer with
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 There are so many different types of memes out there, and it’s really interesting to see all of the ones that have gotten a lot of traction and that will make a difference in our world as well. Are any memes missing from this list? Do you think there will be other popular memes if they were to do this 5 or 10 years from now?
@@ -224,19 +225,6 @@ There are so many different types of memes out there, and it’s really interest
 If you want to make memes right now, Filmora meme maker can help you easily create memes quickly. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to find more.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -253,24 +241,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-essential-aspect-ratio-info-for-effective-twitter-videos/"><u>[New] 2024 Approved Essential Aspect Ratio Info for Effective Twitter Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unlock-content-creation-uploading-videos/"><u>[New] In 2024, Unlock Content Creation Uploading Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-elevate-engagement-posting-video-content-from-twitter-on-snapchat/"><u>[Updated] 2024 Approved Elevate Engagement Posting Video Content From Twitter on Snapchat</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-captivating-audiences-adopting-youtube-vlogger-charisma/"><u>[Updated] Captivating Audiences Adopting YouTube Vlogger Charisma</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twittervidstowebm-direct-media-conversion/"><u>[Updated] In 2024, TwitterVidsToWebM Direct Media Conversion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-preferred-choices-affordable-channels-for-newbie-monetizers/"><u>[Updated] Preferred Choices Affordable Channels for Newbie Monetizers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-thriving-in-twitter-live-tv-mode/"><u>[Updated] Thriving in Twitter Live TV Mode</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-troubleshoot-tweets-on-chrome-not-loading/"><u>[Updated] Troubleshoot Tweets on Chrome Not Loading</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-expressive-sketches-for-fortnite-icons/"><u>2024 Approved Expressive Sketches for Fortnite Icons</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-posting-videos-on-twitter-step-by-step/"><u>2024 Approved Posting Videos on Twitter Step-by-Step</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-vimeoifytweets-video-to-mp3-and-mp4/"><u>2024 Approved VimeoifyTweets Video-to-MP3 & MP4</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/education-evolution-mondlys-global-stride/"><u>Education Evolution: Mondly's Global Stride</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-chuckle-champions-humor-hunt-on-twitter/"><u>In 2024, Chuckle-Champions Humor Hunt on Twitter</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/navigate-through-group-sharing-options-on-messenger/"><u>Navigate Through Group Sharing Options on Messenger</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/obs-versus-streamlabs-the-live-stream-software-duel/"><u>OBS Versus Streamlabs – The Live Stream Software Duel</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/the-ultimate-instagram-ringtone-making-manual/"><u>The Ultimate Instagram Ringtone Making Manual</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-5-friend-making-mobile-apps-connect-and-socialize-easily/"><u>Top 5 Friend-Making Mobile Apps: Connect & Socialize Easily</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweets-unfolded-yearly-guide-to-social-reactions/"><u>[New] In 2024, Tweets Unfolded Yearly Guide to Social Reactions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-addressing-the-myself-glitch-on-social-media-platforms/"><u>[Updated] Addressing the 'Myself' Glitch on Social Media Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-giggle-galore-twitters-top-10-joke-threads/"><u>[Updated] Giggle Galore Twitter's Top 10 Joke Threads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-maintaining-the-right-video-aspect-on-twitters/"><u>[Updated] In 2024, Maintaining the Right Video Aspect on Twitters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-stream-smart-10-must-know-rules-for-regular-vlogging/"><u>[Updated] Stream Smart 10 Must-Know Rules for Regular Vlogging</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamlining-your-tweets-with-video-upload-rules-for-2024/"><u>[Updated] Streamlining Your Tweets with Video Upload Rules for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-quick-guide-to-capturing-and-storing-twitter-animated-content-for-2024/"><u>[Updated] The Quick Guide to Capturing and Storing Twitter Animated Content for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-full-capabilities-of-zoom-on-windows-10-pcs/"><u>[Updated] Unlocking The Full Capabilities of Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-brand-visibility-boosted-by-instagram-photowatermarking/"><u>2024 Approved Brand Visibility Boosted by Instagram Photowatermarking</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-resolve-no-sound-devices-found-for-your-headphones-on-windows-10/"><u>How to Resolve 'No Sound Devices Found' For Your Headphones on Windows 10</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-full-guide-to-iphone-se-2022-icloud-bypass-by-drfone-ios/"><u>In 2024, Full guide to iPhone SE (2022) iCloud Bypass</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-twittersphere-treasure-trove/"><u>In 2024, The Twittersphere Treasure Trove</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/screencapture-2023-top-techs-recommendations-for-2024/"><u>ScreenCapture 2023 Top Tech's Recommendations for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-videopad-video-editor-review-features-pricing-and-more/"><u>The Ultimate Videopad Video Editor Review Features, Pricing, and More</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-redmi-note-13-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Redmi Note 13 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweeted-cinematics-from-video-to-wavmp3-for-2024/"><u>Tweeted Cinematics From Video to WAV/MP3 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweettub-ios-app-for-fetching-twitter-vids-for-2024/"><u>TweetTub IOS App for Fetching Twitter Vids for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-09-24T07:18:33.115Z
-updated: 2024-09-27T04:42:09.697Z
+date: 2024-09-25T17:18:53.755Z
+updated: 2024-10-02T16:11:58.286Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -39,9 +39,23 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -78,13 +92,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -94,16 +101,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -116,19 +117,6 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
@@ -138,6 +126,13 @@ Lifewire / Tony Mitera
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -156,13 +151,6 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -194,22 +182,22 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastery-in-maintaining-a-clean-feed-best-twitter-tools/"><u>[New] 2024 Approved Mastery in Maintaining a Clean Feed Best Twitter Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-overcoming-the-noise-barrier-twitter-vids-without-sounds-for-2024/"><u>[New] Overcoming the Noise Barrier Twitter Vids Without Sounds for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-selective-sights-best-macos-sierra-video-editors/"><u>[New] Selective Sights Best macOS Sierra Video Editors</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-guide-to-download-and-store-twitter-videos-on-phone/"><u>[New] Step-by-Step Guide to Download and Store Twitter Videos on Phone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-driving-revenue-with-well-crafted-youtube-channel-trailers/"><u>[Updated] In 2024, Driving Revenue with Well-Crafted YouTube Channel Trailers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-vlog-voyage-through-twitters-live-videos/"><u>[Updated] The Vlog Voyage Through Twitter's Live Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeting-and-tumbling-sharing-videos-seamlessly-for-2024/"><u>[Updated] Tweeting & Tumbling Sharing Videos Seamlessly for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-update-short-twitter-video-coverage/"><u>[Updated] Update Short Twitter Video Coverage</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitdance-choreographed-videos-go-viral-online/"><u>2024 Approved TwitDance Choreographed Videos Go Viral Online</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/editing-techniques-for-enhancing-instagram-content/"><u>Editing Techniques for Enhancing Instagram Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/framefinder-pro-a-treasure-trove-for-every-twitterscape-enthusiast-for-2024/"><u>FrameFinder Pro A Treasure Trove for Every Twitterscape Enthusiast for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-iphone-xs-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Lenovo ThinkPhone | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/professionals-guide-to-photo-watermarking-solutions/"><u>Professional's Guide to Photo Watermarking Solutions</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/resolving-chatgpt-full-capacity-error-in-windows-os/"><u>Resolving ChatGPT Full Capacity Error in Windows OS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/strategies-for-overcoming-8-typical-newbie-youtube-errors-for-2024/"><u>Strategies for Overcoming 8 Typical Newbie YouTube Errors for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-ultimate-bokeh-experience-top-apps-for-iphone-and-android-users/"><u>Updated 2024 Approved The Ultimate Bokeh Experience Top Apps for iPhone and Android Users</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-beam-into-collaborative-spaces-within-tiktok-for-2024/"><u>[New] Beam Into Collaborative Spaces Within TikTok for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-upload-guide-twitter-video-aspect-ratio-mandated/"><u>[New] In 2024, Upload Guide Twitter Video Aspect Ratio Mandated</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-precision-no-download-leading-websites-turning-gif-into-video/"><u>[New] Precision No-Download Leading Websites Turning GIF Into Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-quicktakes-why-videos-thrive-on-twitter-writes-for-2024/"><u>[New] QuickTakes Why Videos Thrive on Twitter' Writes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-digital-dynamo-unleashing-videoviral-impact/"><u>[Updated] 2024 Approved Digital Dynamo Unleashing #VideoViral Impact</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-keeping-secrets-on-screen-tips-for-private-content-reduction/"><u>[Updated] 2024 Approved Keeping Secrets on Screen Tips for Private Content Reduction</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitters-guide-to-downloading-gifs-a-step-by-step-approach/"><u>[Updated] 2024 Approved Twitter's Guide to Downloading GIFs A Step-by-Step Approach</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr-for-2024/"><u>[Updated] Bridging the Media Gap Coordinating Vids on Twitter & Tumblr for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-navigate-to-top-compre-written-in-english-please-here-is-a-list-of-30-alternative-titles-that-convey-similar-meanings-to-track-your-videos-with-thes/"><u>[Updated] Navigate to Top Compre Written in English, Please. Here Is a List of 30 Alternative Titles that Convey Similar Meanings to Track Your Videos With These Top 8 YouTube Rank Trackers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-30-camcorders-directly-at-your-eyes-for-2024/"><u>[Updated] Top 30 Camcorders Directly At Your Eyes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essential-aspect-ratio-info-for-effective-twitter-videos/"><u>Essential Aspect Ratio Info for Effective Twitter Videos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-access-archived-messages-and-notifications-on-an-iphone/"><u>How to Access Archived Messages and Notifications on an iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-keep-the-momentum-ios-and-android-gif-savings/"><u>How to Keep the Momentum IOS & Android GIF Savings</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-relaxation-playlist-20-sweetest-country-tunes-on-tiktok/"><u>In 2024, Relaxation Playlist 20 Sweetest Country Tunes on TikTok</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>In 2024, Social Snapshot An All-Encompassing 2023 Vlog Collection</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-techno-gamers-channel-income-guide/"><u>In 2024, Techno-Gamers' Channel Income Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/quick-solutions-for-resolving-sluggish-computer-initialization-issues/"><u>Quick Solutions for Resolving Sluggish Computer Initialization Issues</u></a></li>
 </ul></div>
 
