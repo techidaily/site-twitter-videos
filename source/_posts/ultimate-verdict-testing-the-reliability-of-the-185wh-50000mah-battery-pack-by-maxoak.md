@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-09-25T17:18:53.755Z
-updated: 2024-10-02T16:11:58.286Z
+date: 2024-10-04T20:09:31.413Z
+updated: 2024-10-07T19:46:38.592Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -40,10 +40,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
@@ -51,10 +51,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -101,10 +101,16 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -127,13 +133,6 @@ Lifewire / Tony Mitera
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Competition: A good showing against close competition**
 
 **_DBPOWER 600A Peak 18000mAh Portable Car Jump Starter_ :** Despite the high quality of the DBPOWER, the M MOOCK 1000A Peak 18000mAh Car Jump Starter is still a better choice. It provides slightly better output current, which is important for reliable jump starts, and yet it's also slightly less expensive. You can’t go wrong either way, but the MOOCK unit has just the slightest edge.
@@ -151,6 +150,13 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,22 +188,16 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-beam-into-collaborative-spaces-within-tiktok-for-2024/"><u>[New] Beam Into Collaborative Spaces Within TikTok for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-upload-guide-twitter-video-aspect-ratio-mandated/"><u>[New] In 2024, Upload Guide Twitter Video Aspect Ratio Mandated</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-precision-no-download-leading-websites-turning-gif-into-video/"><u>[New] Precision No-Download Leading Websites Turning GIF Into Video</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-quicktakes-why-videos-thrive-on-twitter-writes-for-2024/"><u>[New] QuickTakes Why Videos Thrive on Twitter' Writes for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-digital-dynamo-unleashing-videoviral-impact/"><u>[Updated] 2024 Approved Digital Dynamo Unleashing #VideoViral Impact</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-keeping-secrets-on-screen-tips-for-private-content-reduction/"><u>[Updated] 2024 Approved Keeping Secrets on Screen Tips for Private Content Reduction</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitters-guide-to-downloading-gifs-a-step-by-step-approach/"><u>[Updated] 2024 Approved Twitter's Guide to Downloading GIFs A Step-by-Step Approach</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr-for-2024/"><u>[Updated] Bridging the Media Gap Coordinating Vids on Twitter & Tumblr for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-navigate-to-top-compre-written-in-english-please-here-is-a-list-of-30-alternative-titles-that-convey-similar-meanings-to-track-your-videos-with-thes/"><u>[Updated] Navigate to Top Compre Written in English, Please. Here Is a List of 30 Alternative Titles that Convey Similar Meanings to Track Your Videos With These Top 8 YouTube Rank Trackers for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-top-30-camcorders-directly-at-your-eyes-for-2024/"><u>[Updated] Top 30 Camcorders Directly At Your Eyes for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/essential-aspect-ratio-info-for-effective-twitter-videos/"><u>Essential Aspect Ratio Info for Effective Twitter Videos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-access-archived-messages-and-notifications-on-an-iphone/"><u>How to Access Archived Messages and Notifications on an iPhone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-keep-the-momentum-ios-and-android-gif-savings/"><u>How to Keep the Momentum IOS & Android GIF Savings</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-relaxation-playlist-20-sweetest-country-tunes-on-tiktok/"><u>In 2024, Relaxation Playlist 20 Sweetest Country Tunes on TikTok</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>In 2024, Social Snapshot An All-Encompassing 2023 Vlog Collection</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-techno-gamers-channel-income-guide/"><u>In 2024, Techno-Gamers' Channel Income Guide</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-solutions-for-resolving-sluggish-computer-initialization-issues/"><u>Quick Solutions for Resolving Sluggish Computer Initialization Issues</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-efficiently-extracting-twitters-visual-jokes-gifs/"><u>[New] 2024 Approved Efficiently Extracting Twitter's Visual Jokes (GIFs)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-animations-and-crafting-custom-visual-impact/"><u>[New] 2024 Approved Mastering Animations & Crafting Custom Visual Impact</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-guide-to-compliant-twitter-media-posts-for-2024/"><u>[New] Step-by-Step Guide to Compliant Twitter Media Posts for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeting-visuals-integrating-youtube-and-snapchat/"><u>[Updated] 2024 Approved Tweeting Visuals Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-expanding-viewership-tweeting-to-fb-effectively-for-2024/"><u>[Updated] Expanding Viewership Tweeting to FB Effectively for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-funimate-login-and-sign-up-guide-for-2024/"><u>[Updated] Funimate Login and Sign Up Guide for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-tecno-spark-20c-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Tecno Spark 20C Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-plus-to-other-iphone-15-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 Plus To Other iPhone 15 devices? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/launchpad-for-twitter-beginners/"><u>Launchpad for Twitter Beginners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-superior-sound-recordings-minus-the-mic-for-2024/"><u>Unlocking Superior Sound Recordings Minus the Mic for 2024</u></a></li>
 </ul></div>
 

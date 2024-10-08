@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-09-25T16:16:57.285Z
-updated: 2024-10-02T16:16:43.210Z
+date: 2024-09-30T19:29:44.070Z
+updated: 2024-10-07T17:27:53.229Z
 tags:
   - chatgpt
   - open-ai
@@ -42,10 +42,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  However, to run LLaMa locally, you will need to have some specialized knowledge or the ability to follow a tutorial. You'll also need a significant amount of storage space.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Is the Most Private Large Language Model?
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which LLM Has the Best General Knowledge?
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In order to test which LLM has the best general knowledge, we asked three questions.
 
@@ -98,13 +105,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Python is a useful programming language](https://www.makeuseof.com/what-is-python-used-for/) that runs on most modern platforms. We instructed our models to use Python and "Build a basic calculator program that can perform arithmetic operations like addition, subtraction, multiplication, and division. It should take user input and display the result." This is one of the[best programming projects for beginners](https://www.makeuseof.com/tag/beginner-programming-projects/) .
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
@@ -114,10 +114,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
@@ -133,10 +139,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 You read it here first, folks.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
@@ -162,14 +168,17 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweetvid-puller-iphone-app-for-easy-video-extraction/"><u>[New] 2024 Approved TweetVid Puller IPhone App for Easy Video Extraction</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-connecting-through-ig-a-guide-for-hyperlink-posts/"><u>[New] In 2024, Connecting Through IG A Guide for Hyperlink Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-digital-diary-a-complete-2023-collection-of-twit-threads/"><u>[New] In 2024, Digital Diary A Complete 2023 Collection of Twit-Threads</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-gif-revolution-free-transformation-of-tweets-to-gifs/"><u>[Updated] In 2024, Gif Revolution Free Transformation of Tweets to GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-how-to-stream-videos-on-twitter-using-your-smartphone/"><u>2024 Approved How To Stream Videos on Twitter Using Your Smartphone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-investigating-ffmpeg-for-intact-audio-preservation/"><u>2024 Approved Investigating FFmpeg for Intact Audio Preservation</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/boosting-your-ps5s-performance-tips-for-consistently-hitting-120-frames-per-second-in-games/"><u>Boosting Your PS5's Performance: Tips for Consistently Hitting 120 Frames Per Second in Games</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oppo-find-n3-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Oppo Find N3 Quickly | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-x-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From iPhone X?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-science-of-audience-retention-on-tweets/"><u>[New] 2024 Approved The Science of Audience Retention on Tweets</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-the-ultimate-handbook-to-zooms-online-presentation-features/"><u>[New] The Ultimate Handbook to Zoom's Online Presentation Features</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-exploring-why-your-social-media-doesnt-suggest-videos/"><u>[Updated] Exploring Why Your Social Media Doesn’t Suggest Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-digging-into-the-data-top-10-twitvideos/"><u>[Updated] In 2024, Digging Into the Data Top 10 TwitVideos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-enrich-your-tweeting-experience-the-ultimate-toolkit-review/"><u>[Updated] In 2024, Enrich Your Tweeting Experience The Ultimate Toolkit Review</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>2024 Approved Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-non-retweet-strategies-for-mobile-video-shares/"><u>In 2024, Non-Retweet Strategies for Mobile Video Shares</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-unveiling-google-meets-screen-alteration-techniques/"><u>In 2024, Unveiling Google Meet's Screen Alteration Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/innovating-tiktok-posts-for-twitters-platform/"><u>Innovating TikTok Posts for Twitter's Platform</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/iphone-transfer-transfer-contact-from-apple-iphone-12-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>iPhone Transfer Transfer Contact from Apple iPhone 12 to iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revive-your-macbook-pro-the-ultimate-guide-to-fresh-start/"><u>Revive Your MacBook Pro: The Ultimate Guide to Fresh Start</u></a></li>
 </ul></div>
 

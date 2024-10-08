@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-09-27T16:01:07.946Z
-updated: 2024-10-02T16:49:22.910Z
+date: 2024-10-05T19:39:09.915Z
+updated: 2024-10-07T20:37:43.220Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -36,9 +36,23 @@ Lifewire / Todd Braylor
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/P9a50_oB4MstZx5zB9lbu2dMq68=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -67,20 +81,13 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Low-profile, comfortable, and intuitive**
 
@@ -97,10 +104,10 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
@@ -112,10 +119,10 @@ Lifewire / Todd Braylor
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
@@ -147,13 +154,6 @@ Lifewire / Todd Braylor
  Fitbit claims the Inspire HR battery will last up to five days with a full charge. We found this to be true—the unit we tested lasted a little over five full days before draining down to zero. Charging the Inspire HR took only about two hours before it was back at 100% again.
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software Features: Limited to the Fitbit wellness model**
 
@@ -216,22 +216,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-behind-the-scenes-navigating-multiple-viewpoints-on-facebook-live/"><u>[New] 2024 Approved Behind the Scenes Navigating Multiple Viewpoints on Facebook Live</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-clearer-horizons-the-ultimate-tweet-video-viewing-guide/"><u>[Updated] 2024 Approved Clearer Horizons The Ultimate Tweet Video Viewing Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-amazon-prime-fan-favorites-highest-likes-and-view-counts-for-2024/"><u>[Updated] Amazon Prime Fan Favorites Highest Likes & View Counts for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-social-media-tweeting-videos-to-facebook-for-2024/"><u>[Updated] Mastering Social Media Tweeting Videos to Facebook for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-impact-of-authenticity-in-insta-self-portraits/"><u>[Updated] The Impact of Authenticity in Insta Self-Portraits</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tiktoks-viral-video-wave-twitters-top-10-rankings/"><u>[Updated] TikTok's Viral Video Wave Twitter's Top 10 Rankings</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-can-adobe-shake-control-enhance-creative-process-in-photoshop/"><u>2024 Approved Can Adobe Shake Control Enhance Creative Process in Photoshop?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-lgs-cinematic-revolution-the-31mu97-b-monitor-breakdown-review/"><u>2024 Approved LG’s Cinematic Revolution The 31MU97-B Monitor Breakdown Review</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-reigning-tiktoks-on-twitter-a-viral-analysis/"><u>2024 Approved Reigning TikToks on Twitter A Viral Analysis</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/discover-these-eight-handy-apps-to-upload-reels-on-instagram-for-2024/"><u>Discover These Eight Handy Apps to Upload Reels on Instagram for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/efficiently-extracting-twitters-visual-jokes-gifs-for-2024/"><u>Efficiently Extracting Twitter's Visual Jokes (GIFs) for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tap-into-the-latest-gaming-and-app-splash-of-win11/"><u>Tap Into the Latest Gaming and App Splash of Win11</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-to-asus-mg28uqs-crystal-clear-display/"><u>The Ultimate Guide to ASUS MG28UQ's Crystal Clear Display</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweets-unfolded-yearly-guide-to-social-reactions/"><u>Tweets Unfolded Yearly Guide to Social Reactions</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitch-your-way-mastering-twitter-video-livestreaming/"><u>Twitch Your Way Mastering Twitter Video Livestreaming</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-your-phone-without-fbs-app-browser/"><u>Unlocking Your Phone Without FB's App Browser</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-redefining-visual-storytelling-adding-and-altering-twitter-video-thumbnails/"><u>[New] Redefining Visual Storytelling Adding and Altering Twitter Video Thumbnails</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-archive-mastery-tips-and-tricks-for-2024/"><u>[New] Twitter Archive Mastery Tips & Tricks for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-top-tech-to-document-your-google-meet-participation/"><u>[Updated] 2024 Approved Top Tech to Document Your Google Meet Participation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-filming-for-tweet-sharing-content-without-retweeting-for-2024/"><u>[Updated] Filming for Tweet Sharing Content without Retweeting for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-meme-marchers-the-path-to-viral-twitcinema/"><u>[Updated] Meme Marchers The Path to Viral TwitCinema</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1726225764871-tiff-movavi/"><u>電子化節省成本：線上無償TIFF換算 – Movavi試用版</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-asus-rog-phone-7-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Asus ROG Phone 7? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-cross-play-away-in-apex-legends-optimal-platform-selection-and-disabling/"><u>In 2024, Cross-Play Away in Apex Legends Optimal Platform Selection & Disabling</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-techniques-for-increasing-youtube-video-size/"><u>In 2024, Techniques for Increasing YouTube Video Size</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/save-money-stay-legal-free-filmora-options-you-can-trust-for-2024/"><u>Save Money, Stay Legal Free Filmora Options You Can Trust for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-for-tiktok-content-sharing-strategies/"><u>Twitter for TikTok Content Sharing Strategies</u></a></li>
 </ul></div>
 

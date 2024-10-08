@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Direct Link  Sharing Twitter' Writes on WhatsApp\""
-date: 2024-09-26T16:39:25.313Z
-updated: 2024-10-02T16:46:46.377Z
+date: 2024-10-04T16:49:04.723Z
+updated: 2024-10-07T21:54:49.175Z
 tags:
   - ai video
   - ai twitter
@@ -53,13 +53,6 @@ Tap the share icon right below the video.
 
 ![Tap Share](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step 3: Select WhatsApp from the pop-up menu
 
 Tapping the share icon will open a dialogue box that will show you a few options for sharing the Twitter video. All you have to do is select WhatsApp as the medium of sharing the video you selected.
@@ -76,16 +69,16 @@ Doing this will send the video to the desired person with a link.
 
 ![Video is Shared](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The person or even you now only have to tap the link, and it will directly open Twitter and take you to the exact tweet of that video.
 
 ![Click on link to open video](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Share Twitter Videos to WhatsApp without Link
 
@@ -101,13 +94,6 @@ Log in to your Twitter using your credentials.
 
 ![Log in to Twitter](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Step 2: Find the Video and Tap Share
 
 Scroll through your Twitter feed and locate the video you want to share with your friends. Once you have finalized the video that you wish to share, tap the share icon right below the video.
@@ -120,25 +106,18 @@ Tapping the share icon will open a dialogue box that will show you a few options
 
 ![Copy link](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Step 4: Open pastedownload.com
 
 Head to your internet browser and type in ‘pastedownload.com.' It is an online tool that helps you save videos offline using their link only. You can easily share the videos.
 
 ![Open the website](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Step 2: Paste the Link
 
@@ -172,13 +151,6 @@ With the increasing popularity of the already popular messaging app 'WhatsApp,' 
 
 In this article, you will learn how to share Twitter videos via WhatsApp the way you wish, i.e., with or without the link.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Send a Twitter Video to WhatsApp with Link
 
 Most people who use Twitter do not tend to open their Direct Messages often because there are not many features in the Twitter application related to messages. Well, it is more of a public app meant for sharing Tweets and not messages.
@@ -187,18 +159,18 @@ Suppose you need to share something with your friends or anyone else. In that ca
 
 Below are the steps you can follow if you want to send a Twitter video via WhatsApp using the link.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Step 1: Log in to Twitter
 
 Log in to your Twitter account using your credentials if you are not already logged in.
 
 ![Log in to Twitter](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Step 2: Find the video and tap share
 
@@ -214,18 +186,18 @@ Tapping the share icon will open a dialogue box that will show you a few options
 
 ![Select Whatsapp](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Step 4: Select the Contact
 
 Tapping on WhatsApp will close Twitter and take you to WhatsApp with a list of all your contacts. Select the contact you want to share the Twitter video with, and press send from that list.
 
 ![Select the Contact](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Doing this will send the video to the desired person with a link.
 
@@ -260,6 +232,13 @@ Scroll through your Twitter feed and locate the video you want to share with you
 Tapping the share icon will open a dialogue box that will show you a few options for sharing the Twitter video. Select the 'Copy Link' option, and the video link will be copied to your device's clipboard.
 
 ![Copy link](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Step 4: Open pastedownload.com
 
@@ -427,11 +406,38 @@ Tap the share icon right below the video.
 
 ![Tap Share](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Step 3: Select WhatsApp from the pop-up menu
 
 Tapping the share icon will open a dialogue box that will show you a few options for sharing the Twitter video. All you have to do is select WhatsApp as the medium of sharing the video you selected.
 
 ![Select Whatsapp](https://images.wondershare.com/filmora/article-images/2022/02/share-twitter-videos-whatsapp-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Step 4: Select the Contact
 
@@ -526,21 +532,21 @@ Now that you know both methods of sharing Twitter Videos on WhatsApp, with or wi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-stream.techidaily.com/new-sony-vegas-for-the-aspiring-youtube-editor-a-comprehensive-overview/"><u>[New] Sony Vegas for the Aspiring YouTube Editor A Comprehensive Overview</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-strategic-use-of-twitters-wayback-machine-features/"><u>[New] Strategic Use of Twitter's Wayback Machine Features</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-capture-clarity-high-end-gyroscopic-tripod-gear-for-2024/"><u>[Updated] Capture Clarity High-End Gyroscopic Tripod Gear for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-explore-interaction-tips-for-uploading-videos-from-twitter-snapchat/"><u>[Updated] In 2024, Explore Interaction Tips for Uploading Videos From Twitter (Snapchat)</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-mastering-low-volume-transitions-within-fl-studio/"><u>[Updated] Mastering Low-Volume Transitions Within FL Studio</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-essence-extractor-capturing-and-saving-the-soul-of-twitter-gifs/"><u>2024 Approved Essence Extractor Capturing & Saving the Soul of Twitter GIFs</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-loop-lovers-guide-instagrams-best-for-repeat-viewers/"><u>2024 Approved Loop Lovers Guide Instagram's Best for Repeat Viewers</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-the-art-of-youtube-to-facebook-shares/"><u>2024 Approved Mastering the Art of YouTube to Facebook Shares</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-superior-5-social-sites-redefining-connectivity/"><u>2024 Approved Superior 5 Social Sites, Redefining Connectivity</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-building-engaging-learning-experiences-youtube-as-your-classroom-screen/"><u>In 2024, Building Engaging Learning Experiences YouTube as Your Classroom Screen</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Realme C51? | Dr.fone</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/printer-connected-problems-resolved-quickly/"><u>Printer Connected, Problems Resolved Quickly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/quick-guide-to-video-cross-upload-twitter-and-tumblr/"><u>Quick Guide to Video Cross-Upload Twitter & Tumblr</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/re-establish-audible-vids-on-social-sound/"><u>Re-Establish Audible Vids on Social Sound</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/simplify-your-pets-diet-using-the-arf-automatic-pet-nourisher/"><u>Simplify Your Pet's Diet Using the Arf Automatic Pet Nourisher</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unlocking-the-potential-twitter-to-snapchat-video-exchange-for-2024/"><u>Unlocking the Potential Twitter to Snapchat Video Exchange for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-watching-wonders-amazon-primes-top-series-on-twitter/"><u>[New] 2024 Approved Watching Wonders Amazon Prime's Top Series on Twitter</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-your-content-strategies-to-climb-youtube-ranks/"><u>[New] In 2024, Elevate Your Content Strategies to Climb YouTube Ranks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-dark-moments-bright-shots-a-photographers-nighttime-guide/"><u>[Updated] 2024 Approved Dark Moments, Bright Shots A Photographer’s Nighttime Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-enhance-engagement-personalize-twitter-videos-with-new-thumbnails/"><u>[Updated] 2024 Approved Enhance Engagement Personalize Twitter Videos with New Thumbnails</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-quick-solution-capturing-downloading-and-keeping-tweets-visuals/"><u>[Updated] 2024 Approved Quick Solution Capturing, Downloading, & Keeping Tweets' Visuals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-interactive-twit-narratives-a-compendium-for-23/"><u>[Updated] Interactive Twit-Narratives - A Compendium for '23</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-how-to-watch-twitter-videos-in-full-hd-for-2024/"><u>2023 | How To Watch Twitter Videos in Full HD for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-video-upload-bridging-twitter-tumblr-guide/"><u>2024 Approved Video Upload Bridging Twitter-Tumblr Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/amplify-your-digital-presence-a-compreranautical-guide-to-instagram-stardom-with-9-steps-for-2024/"><u>Amplify Your Digital Presence A Compreranautical Guide to Instagram Stardom with 9 Steps for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/deciding-between-them-the-benefits-of-using-chatgpt-with-browser-integration-versus-utilizing-chatgpt-extensions/"><u>Deciding Between Them: The Benefits of Using ChatGPT with Browser Integration versus Utilizing ChatGPT Extensions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/deep-dive-into-lg-bp350-display-technology/"><u>Deep Dive Into LG BP350 Display Technology</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/secure-your-conversations-with-duckduckgos-privacy-focused-ai-chat-experience-gpt-and-friends/"><u>Secure Your Conversations with DuckDuckGo's Privacy-Focused AI Chat - Experience GPT & Friends!</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tweak-enhance-f-keys-performance-in-windows-11/"><u>Tweak: Enhance F-Keys' Performance in Windows 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/understanding-your-twitter-archives-potential-for-2024/"><u>Understanding Your Twitter Archive's Potential for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-top-6-video-voiceover-tools-for-windows-download-now/"><u>Updated In 2024, Top 6 Video Voiceover Tools for Windows - Download Now</u></a></li>
 </ul></div>
 
