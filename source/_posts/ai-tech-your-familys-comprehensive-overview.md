@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-09-30T19:29:44.070Z
-updated: 2024-10-07T17:27:53.229Z
+date: 2024-10-12T17:04:53.863Z
+updated: 2024-10-13T16:27:06.125Z
 tags:
   - chatgpt
   - open-ai
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which Is the Easiest Large Language Model to Use?
 
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
@@ -42,10 +49,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  However, to run LLaMa locally, you will need to have some specialized knowledge or the ability to follow a tutorial. You'll also need a significant amount of storage space.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Is the Most Private Large Language Model?
@@ -62,15 +69,22 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which LLM Has the Best General Knowledge?
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In order to test which LLM has the best general knowledge, we asked three questions.
@@ -113,19 +127,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
  Fortunately for comedians everywhere and the human race at large, none of the models were capable of generating an original joke.
@@ -137,13 +138,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -168,17 +162,21 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-science-of-audience-retention-on-tweets/"><u>[New] 2024 Approved The Science of Audience Retention on Tweets</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-ultimate-handbook-to-zooms-online-presentation-features/"><u>[New] The Ultimate Handbook to Zoom's Online Presentation Features</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-exploring-why-your-social-media-doesnt-suggest-videos/"><u>[Updated] Exploring Why Your Social Media Doesn’t Suggest Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-digging-into-the-data-top-10-twitvideos/"><u>[Updated] In 2024, Digging Into the Data Top 10 TwitVideos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-enrich-your-tweeting-experience-the-ultimate-toolkit-review/"><u>[Updated] In 2024, Enrich Your Tweeting Experience The Ultimate Toolkit Review</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>2024 Approved Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nubia Red Magic 8S Pro+? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-non-retweet-strategies-for-mobile-video-shares/"><u>In 2024, Non-Retweet Strategies for Mobile Video Shares</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-unveiling-google-meets-screen-alteration-techniques/"><u>In 2024, Unveiling Google Meet's Screen Alteration Techniques</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/innovating-tiktok-posts-for-twitters-platform/"><u>Innovating TikTok Posts for Twitter's Platform</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/iphone-transfer-transfer-contact-from-apple-iphone-12-to-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>iPhone Transfer Transfer Contact from Apple iPhone 12 to iPhone without iCloud | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/revive-your-macbook-pro-the-ultimate-guide-to-fresh-start/"><u>Revive Your MacBook Pro: The Ultimate Guide to Fresh Start</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-20-funny-tiktok-jokes-and-riddles-to-make-you-laugh-out-for-2024/"><u>[New] 20 Funny TikTok Jokes and Riddles to Make You Laugh Out for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-directly-delivering-tiktok-videos-to-twitters-feed/"><u>[New] 2024 Approved Directly Delivering TikTok Videos to Twitter's Feed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-filming-for-tweet-sharing-content-without-retweeting/"><u>[New] 2024 Approved Filming for Tweet Sharing Content without Retweeting</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-complete-walkthrough-for-android-audio-personalization/"><u>[New] In 2024, The Complete Walkthrough for Android Audio Personalization</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-direct-transfer-of-tweets-video-features-onto-snapchat/"><u>[Updated] In 2024, Direct Transfer of Tweets' Video Features Onto Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-modify-twitter-video-capture-image-for-2024/"><u>[Updated] Modify Twitter Video Capture Image for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-detailed-survey-gecatas-game-capture-utility/"><u>2024 Approved Detailed Survey Gecata's Game Capture Utility</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-media-showdown-twitters-toptiktok-selection/"><u>2024 Approved Social Media Showdown Twitter's #TopTikTok Selection</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-your-pathway-to-mastery-in-youtube-vids-on-twitter/"><u>2024 Approved Your Pathway to Mastery in YouTube Vids on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>Animation Amalgamator A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-oppo-find-x7-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Oppo Find X7.</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-xiaomi-redmi-note-12t-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Xiaomi Redmi Note 12T Pro Devices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-top-10-facebook-video-downloader-for-android-updated/"><u>In 2024, Top 10 Facebook Video Downloader for Android - Updated</u></a></li>
+<li><a href="https://games-able.techidaily.com/sonys-new-beast-revealed-discover-the-top-attributes-of-the-powerful-ps5-pro-its-cost-launch-timeline-and-more-insights-detailed-analysis-by-techzoo/"><u>Sony's New Beast Revealed: Discover the Top Attributes of the Powerful PS5 Pro, Its Cost, Launch Timeline, and More Insights - Detailed Analysis by TechZoo</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tune-up-footage-integrating-music-into-windows-media-files/"><u>Tune Up Footage Integrating Music Into Windows Media Files</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unpacking-the-wirecast-experience-and-its-rivals-for-2024/"><u>Unpacking the WireCast Experience & Its Rivals for 2024</u></a></li>
 </ul></div>
 

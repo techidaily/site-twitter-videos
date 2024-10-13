@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capture Twitter Gifs on Your Computer Quickly"
-date: 2024-10-01T23:35:56.899Z
-updated: 2024-10-07T17:50:32.458Z
+date: 2024-10-09T17:25:35.410Z
+updated: 2024-10-13T16:40:48.517Z
 tags:
   - ai video
   - ai twitter
@@ -57,6 +57,13 @@ EZgif is an amazing online tool for gif creation and editing. A user can easily 
 
 ![open gif optimizer](https://images.wondershare.com/filmora/article-images/open-gif-optimizer2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:**Now, you will see the GIF on the screen and you can edit the image as you want.
 
 **Step 5:** Move the cursor down and click on **Convert to GIF**.
@@ -64,10 +71,10 @@ EZgif is an amazing online tool for gif creation and editing. A user can easily 
 ![convert to gif](https://images.wondershare.com/filmora/article-images/convert-to-gif3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 6:** Now, you will see another box that says Save located on the right of your screen. Click on that and save your GIF file on your computer.
@@ -75,10 +82,10 @@ EZgif is an amazing online tool for gif creation and editing. A user can easily 
 ![save twitter gif](https://images.wondershare.com/filmora/article-images/save-twitter-gif4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Download GIF from Twitter Using Chrome Store Extension
@@ -100,40 +107,25 @@ Twitter doesn’t have a save button for photos and images however there is a fr
 ![twitter media assist](https://images.wondershare.com/filmora/article-images/twitter-media-assist5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Access your Twitter post with Chrome, and you will find there is a download button under the tweet gif after you add the Twitter Media Assist extension.
 
 ![download twitter gif](https://images.wondershare.com/filmora/article-images/download-twitter-gif6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Click on the download button and you will get the save option to save the file on your computer.
 
 ![find downloaded gif](https://images.wondershare.com/filmora/article-images/find-downloaded-gif7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Method 3: Download GIF from Twitter Using Video Converter
 
@@ -162,6 +154,13 @@ Steps to download gifs for twitter using Wondershare Uniconverter (**this may ne
 
 ![click downloader option](https://images.wondershare.com/filmora/article-images/click-downloader-option1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3:** Then start to download the file. Wondershare Uniconverter will save the gif as mp4 as default.
 
 ![download gif video](https://images.wondershare.com/filmora/article-images/download-gif-video2.jpg)
@@ -173,6 +172,13 @@ Steps to download gifs for twitter using Wondershare Uniconverter (**this may ne
 **Step 5:** Then import the previous mp4 video to the GIF Maker tool, and convert it to GIF.
 
 ![create gif](https://images.wondershare.com/filmora/article-images/create-gif4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -195,20 +201,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-elite-sound-collection-top-10-for-spotify-audiophiles/"><u>[New] 2024 Approved Elite Sound Collection Top 10 for Spotify Audiophiles</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-uncomplicated-steps-for-archiving-gotomeeting-dialogues/"><u>[New] In 2024, Uncomplicated Steps for Archiving GoToMeeting Dialogues</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-inshot-pro-advanced-features-showcase/"><u>[New] InShot Pro Advanced Features Showcase</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-treatment-creating-gifs-without-spending-a-dime-for-2024/"><u>[New] Twitter Treatment Creating GIFs Without Spending a Dime for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-understanding-the-dynamics-of-ig-reels-vs-ig-stories-for-2024/"><u>[New] Understanding the Dynamics of IG Reels Vs IG Stories for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-update-twitter-video-box-picture/"><u>[Updated] 2024 Approved Update Twitter Video Box Picture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-videotweeteraudio-quick-audio-extractor/"><u>[Updated] 2024 Approved VideoTweeterAudio Quick Audio Extractor</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-configure-youtube-pip-on-iphone-quickly-for-2024/"><u>[Updated] Configure YouTube PIP on iPhone Quickly for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-digital-collection-mastery-extracting-twitters-animated-tweets-for-2024/"><u>[Updated] Digital Collection Mastery Extracting Twitter's Animated Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-media-tip-post-youtube-content-dont-twit/"><u>[Updated] In 2024, Social Media Tip Post YouTube Content, Don't Twit</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-resolving-silence-in-tweeted-video-playbacks/"><u>[Updated] Resolving Silence in Tweeted Video Playbacks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-media-spotlight-top-twitters/"><u>2024 Approved Social Media Spotlight Top Twitters</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-download-steelseries-keyboard-drivers-and-firmware/"><u>Free Download: SteelSeries Keyboard Drivers & Firmware</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-video-closings-exclusive-end-screen-templates-for-2024/"><u>Revolutionize Video Closings - Exclusive End Screen Templates for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tailored-thumbnail-for-social-media-vids/"><u>[New] 2024 Approved Tailored Thumbnail for Social Media Vids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-chilly-cinematography-comprehensive-ice-cream-monitoring-tutorial/"><u>[New] Chilly Cinematography Comprehensive Ice Cream Monitoring Tutorial</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ideal-cloud-services-with-infinite-capacity/"><u>[New] Ideal Cloud Services with Infinite Capacity</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-insider-secrets-smooth-videophoto-transfer-to-windows-11/"><u>[New] Insider Secrets Smooth Video/Photo Transfer to Windows 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-synchronizing-tweeted-videos-on-social-media-hub-fb/"><u>[New] Synchronizing Tweeted Videos on Social Media Hub FB</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-dual-platform-dance-posting-vids-with-twitter-and-tumblr-for-2024/"><u>[New] The Dual-Platform Dance Posting Vids with Twitter & Tumblr for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-whatsapp-video-transfers-from-tweeted-content-for-2024/"><u>[Updated] WhatsApp Video Transfers From Tweeted Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mp4-and-webm-creation-from-social-media-videos/"><u>2024 Approved MP4 and WebM Creation From Social Media Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/commanding-originality-in-ai-graphics-with-microsofts-copilot-edge/"><u>Commanding Originality in AI Graphics with Microsoft's Copilot Edge</u></a></li>
+<li><a href="https://win-updates.techidaily.com/complete-guide-how-to-eliminate-and-prevent-pop-up-ads-in-firefox-top-4-methods/"><u>Complete Guide: How to Eliminate and Prevent Pop-Up Ads in Firefox - Top 4 Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/conquering-screen-display-challenges-with-google-meet-for-2024/"><u>Conquering Screen Display Challenges with Google Meet for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-infinix-smart-8-plus-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Infinix Smart 8 Plus</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/secure-method-storing-tweet-imagesvideos-on-your-mobile/"><u>Secure Method Storing Tweet Images/Videos on Your Mobile</u></a></li>
 </ul></div>
 

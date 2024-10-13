@@ -1,7 +1,7 @@
 ---
 title: How to Calibrate an iPhone's Battery in 6 Easy Steps
-date: 2024-10-01T23:55:28.560Z
-updated: 2024-10-07T17:26:15.203Z
+date: 2024-10-11T17:14:48.904Z
+updated: 2024-10-13T17:44:36.224Z
 tags:
   - iphone
   - apple
@@ -36,19 +36,6 @@ thumbnail: https://thmb.techidaily.com/72d9cc19f5dd74f14cb9e7915834c6357e497aa75
 
  This will help lead to an accurate reading later in the process. After you've reset the battery, you can re-enable all of these options. It's also worth ensuring you haven't accidentally enabled Low Power Mode by going to**Settings > Battery** .
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Disable Location Services
 
 To disable location services on your iPhone, follow these steps:
@@ -64,22 +51,15 @@ To disable location services on your iPhone, follow these steps:
 
 ![location services on off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/location-services-on-off.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
  Remember, you can [use Location Services to track a lost iPhone](https://www.makeuseof.com/tag/how-to-trace-a-mobile-phone-location-with-google-latitude/) , so make sure you don't forget to re-enable this after you're done calibrating.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Disable Background Refresh
@@ -92,6 +72,13 @@ Close
 4. Select the**Off** option.
 
 ![ios app refresh menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-app-refresh-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![ios app refresh settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-app-refresh-1.png)
 
@@ -107,16 +94,29 @@ Here's how to lower the screen brightness on an iPhone:
 
 ![ios brightness menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![ios brightness slider](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Turn Off Automatic App Updates
 
@@ -132,13 +132,6 @@ Finally, to turn off automatic updates, follow these three steps:
 
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Calibrate Your iPhone's Battery
 
  Now, you're ready to calibrate the battery on your iPhone. Be warned that it takes quite a bit of patience; you'll need to wait around for a couple of complete charge and drain cycles to finish.
@@ -148,6 +141,13 @@ Close
 ### Step 1: Drain Your iPhone's Battery
 
  The first step is to completely drain your iPhone's battery. You can do so during normal usage. If you want to speed up the process, you can play a long video on YouTube with the volume turned up to the maximum level.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 2: Wait Three Hours
 
@@ -167,22 +167,15 @@ Close
 
  Now, you need to repeat the whole process a second time. It's the same drill as before: completely drain the power out of your device. Either use it as you normally would or play videos on loop to move it along faster.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 5: Wait Another Three Hours
 
  It's getting repetitive by now but stick with it. Once again, you need to ensure you drain that last bit of battery power from your iPhone. Like before, the longer you can leave it, the better.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 6: Charge Your iPhone Again
@@ -193,6 +186,13 @@ Close
 
 And that's it. Now, your iPhone's battery has been recalibrated.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Enable Optimized Battery Charging After Calibration
 
  Once your iPhone or iPad is successfully calibrated, it's time to ensure your battery won't need another calibration, at least for a long time.
@@ -201,14 +201,14 @@ And that's it. Now, your iPhone's battery has been recalibrated.
 
 ![battery settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-settings-iphone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![battery health settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-health-settings-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![optimized battery charging iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/optimized-battery-charging-iphone.jpg)
 
@@ -237,24 +237,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-youtube-video-reaction-ideas/"><u>[New] 2024 Approved Best YouTube Video Reaction Ideas</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-video-tweet-sharing-content-without-including-others-tweets/"><u>[New] 2024 Approved Direct Video Tweet Sharing Content Without Including Others' Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweetaudioextractor-quick-sound-maker/"><u>[New] 2024 Approved TweetAudioExtractor Quick Sound Maker</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-amazons-favorite-originals-twitter-top-picks/"><u>[New] In 2024, Amazon's Favorite Originals - Twitter Top Picks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-strategic-sharing-of-tiktok-content-on-twitter/"><u>[New] In 2024, Strategic Sharing of TikTok Content on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-maximizing-twitter-budget-efficiency-in-ad-spends/"><u>[New] Maximizing Twitter Budget Efficiency in Ad Spends</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-premium-window-calls-top-8-standout-titles/"><u>[New] Premium Window Calls Top 8 Standout Titles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-aural-elegance-selecting-high-quality-ringtones-online/"><u>[Updated] 2024 Approved Aural Elegance Selecting High-Quality Ringtones Online</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-essential-2023-social-media-video-exploration/"><u>[Updated] 2024 Approved The Essential 2023 Social Media Video Exploration</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-web-wonders-weekly-review/"><u>[Updated] 2024 Approved Web Wonders Weekly Review</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-effective-strategy-immediate-clearance-of-unwanted-youtube-comments/"><u>[Updated] In 2024, Easy, Effective Strategy Immediate Clearance of Unwanted YouTube Comments</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-essential-blueprint-for-using-adobe-cloud-and-identifying-suitable-alternatives/"><u>[Updated] In 2024, Essential Blueprint for Using Adobe Cloud & Identifying Suitable Alternatives</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-uniting-brands-and-youtube-for-maximum-impact/"><u>[Updated] In 2024, Uniting Brands & YouTube for Maximum Impact</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-direct-youtube-share-on-snapchat-tips/"><u>2024 Approved Direct YouTube, Share on Snapchat Tips</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/expert-analysis-on-pcs-laptops-and-devices-by-toms-technology-hub/"><u>Expert Analysis on PCs, Laptops & Devices by Tom's Technology Hub</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-huawei-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Huawei Bootloader Easily</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-videotwit-hatcher-harvest-tweets-visuals-for-ios-devices/"><u>In 2024, VideoTwit Hatcher Harvest Tweets' Visuals for iOS Devices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/journeying-together-on-the-big-screen-top-10-family-movies-for-2024/"><u>Journeying Together on the Big Screen Top 10 Family Movies for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-from-still-to-stunning-how-to-use-ken-burns-effect-in-final-cut-pro-for-maximum-impact/"><u>Updated In 2024, From Still to Stunning How to Use Ken Burns Effect in Final Cut Pro for Maximum Impact</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-direct-link-between-twitter-and-tumblr-videos-for-2024/"><u>[New] Direct Link Between Twitter and Tumblr Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-twitter-archives-for-analysis/"><u>[New] In 2024, Mastering Twitter Archives for Analysis</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ptimize-for-popularity-top-youtube-seo-devices-unveiled/"><u>[New] Optimize for Popularity Top YouTube SEO Devices Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-streamline-and-stand-out-twitters-video-directive/"><u>[Updated] 2024 Approved Streamline and Stand Out Twitter's Video Directive</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-elevate-visual-appeal-incorporating-black-bar-and-box-in-social-feeds/"><u>[Updated] In 2024, Elevate Visual Appeal Incorporating Black Bar & Box in Social Feeds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-blueprint-for-flawless-srt-construction/"><u>2024 Approved The Ultimate Blueprint for Flawless SRT Construction</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-sony-xperia-5-v-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Sony Xperia 5 V</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-superior-websites-to-ditch-twitter-completely/"><u>In 2024, Superior Websites to Ditch Twitter Completely</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tweeted-timelines-a-complete-guide-to-video-backups/"><u>In 2024, Tweeted Timelines A Complete Guide to Video Backups</u></a></li>
+<li><a href="https://win-online.techidaily.com/samsung-m2-ssdos-windows-111087/"><u>Samsung M.2 SSDの複製に自由で便利なソフトウェア【対話型OS Windows 11、10、8、7向け】</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/selecting-optimal-frame-rate-30fps-vs-60fps-for-quality-recording-for-2024/"><u>Selecting Optimal Frame Rate 30Fps Vs. 60Fps for Quality Recording for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/step-into-a-multilingual-universe-with-mondlys-cutting-edge-vr-app/"><u>Step Into a Multilingual Universe with Mondly's Cutting-Edge VR App</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-xiaomi-civi-3-disney-100th-anniversary-edition-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
 </ul></div>
 

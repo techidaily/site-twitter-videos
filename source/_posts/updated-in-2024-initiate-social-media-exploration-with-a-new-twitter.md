@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Initiate Social Media Exploration with a New Twitter"
-date: 2024-07-27T16:46:53.473Z
-updated: 2024-07-28T16:46:53.473Z
+date: 2024-10-10T17:33:12.924Z
+updated: 2024-10-13T16:51:32.816Z
 tags:
   - ai video
   - ai twitter
@@ -34,19 +34,12 @@ thumbnail: https://thmb.techidaily.com/253a511a8eebe03ad95bca3519e71144f55137cbd
 
  Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## How to Create a Twitter account on the Web
 
 #### Step 1
 
  Navigate to Twitter's home page, using a web browser on your computer, and click on the **Sign Up** option. You will be asked to insert your **full name, phone number, email address and a password.**
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/create-twitter-account-1.jpg)
 
 #### Step 2
@@ -54,6 +47,179 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
  You will have to pick a username that has no more than 15 characters. The platform will inform you if the username you've chosen is already taken or if it's too long. Select a name that can be easily associated with you or the brand the Twitter account should be representing, to ensure that your followers know to whom the account belongs.
 
 ![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
+
+#### Step 3
+
+ Check the **Keep me signed in on this computer** checkbox if you are creating an account from a private computer. You can also allow the platform to customize your account based on your recent online activity by clicking on the **Tailor Twitter based on my recent website visits** checkbox. After you've entered your information, you'll have to accept the terms and conditions and then click on the **Create My Account** button at the bottom of the screen.
+
+#### Step 4
+
+ A verification email will be sent to the email address you entered. Go to your email account, and click on the link in the message you received from Twitter, in order to verify the account you just created. Congratulations, you have successfully opened a new Twitter account.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## How to Create a Twitter account through a Smartphone App
+
+ Android and iPhone users can use their devices to set up a new account on Twitter. Head over to Google Play or the App Store using your Smartphone and find the Twitter application. Once it appears in the search results, click on it to initiate the download and the installation process. After the Twitter app is successfully installed on your device, tap on it to start setting up your new account.
+
+ The process of creating a new account through a Smartphone app is the same as the one we described above. So, just insert your real name, username, email address and password and then tap on the SignUp button.
+
+## How to Create Multiple Twitter Accounts With the Same Email Address
+
+ Using the same email address for two Twitter accounts isn't possible, because the platform will inform you that the email is already registered and that you have to enter a different email address. However, you can insert "+something" between your username and the @gmail extension to create email aliases which Gmail just regards the them as the same address and delivers the email directly to your nomal Gmail account. All emails from your new Twitter account will be sent to your original email address, even though you added the "+something" to it. This simple hack will allow you to manage multiple accounts from the same email address.
+
+## Can you log in to more than one Twitter Account at a time via the web?
+
+ Accessing a few different Twitter accounts from the same web browser isn't an option since you first have to log out from one account in order to be able to log in to another one within the same web browser. Logging to multiple Twitter accounts simultaneously is only possible if you access the platform from different web browsers or if you are using [TweetDeck](https://tweetdeck.twitter.com/) feature that allows its users to manage two or more Twitter accounts from the same browser.
+
+ Was this article helpful? Did you experience any difficulties while setting up your Twitter account? Let us know in the comments section, and remember to hit share and help your friends open their first Twitter account.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Almost everyone has an account on at least one social media network. In the last ten years Facebook, Instagram or Twitter have become so popular that movies were made about them and they are constantly being referenced in popular culture. If somehow you managed to make it into 2018 without a Twitter account, you've come to the right place, because in this article we are going to take you through each step of the Twitter account setup process and provide you with the information necessary to share your first tweet.
+
+* [Part 1: How to Create a Twitter Account](#part1)
+* [Part 2: How to Create Multiple Twitter Accounts With the Same Email Address](#part2)
+
+## How to Create a Twitter Account
+
+ Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
+
+## How to Create a Twitter account on the Web
+
+#### Step 1
+
+ Navigate to Twitter's home page, using a web browser on your computer, and click on the **Sign Up** option. You will be asked to insert your **full name, phone number, email address and a password.**
+
+![](https://images.wondershare.com/filmora/article-images/create-twitter-account-1.jpg)
+
+#### Step 2
+
+ You will have to pick a username that has no more than 15 characters. The platform will inform you if the username you've chosen is already taken or if it's too long. Select a name that can be easily associated with you or the brand the Twitter account should be representing, to ensure that your followers know to whom the account belongs.
+
+![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
+
+#### Step 3
+
+ Check the **Keep me signed in on this computer** checkbox if you are creating an account from a private computer. You can also allow the platform to customize your account based on your recent online activity by clicking on the **Tailor Twitter based on my recent website visits** checkbox. After you've entered your information, you'll have to accept the terms and conditions and then click on the **Create My Account** button at the bottom of the screen.
+
+#### Step 4
+
+ A verification email will be sent to the email address you entered. Go to your email account, and click on the link in the message you received from Twitter, in order to verify the account you just created. Congratulations, you have successfully opened a new Twitter account.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## How to Create a Twitter account through a Smartphone App
+
+ Android and iPhone users can use their devices to set up a new account on Twitter. Head over to Google Play or the App Store using your Smartphone and find the Twitter application. Once it appears in the search results, click on it to initiate the download and the installation process. After the Twitter app is successfully installed on your device, tap on it to start setting up your new account.
+
+ The process of creating a new account through a Smartphone app is the same as the one we described above. So, just insert your real name, username, email address and password and then tap on the SignUp button.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## How to Create Multiple Twitter Accounts With the Same Email Address
+
+ Using the same email address for two Twitter accounts isn't possible, because the platform will inform you that the email is already registered and that you have to enter a different email address. However, you can insert "+something" between your username and the @gmail extension to create email aliases which Gmail just regards the them as the same address and delivers the email directly to your nomal Gmail account. All emails from your new Twitter account will be sent to your original email address, even though you added the "+something" to it. This simple hack will allow you to manage multiple accounts from the same email address.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Can you log in to more than one Twitter Account at a time via the web?
+
+ Accessing a few different Twitter accounts from the same web browser isn't an option since you first have to log out from one account in order to be able to log in to another one within the same web browser. Logging to multiple Twitter accounts simultaneously is only possible if you access the platform from different web browsers or if you are using [TweetDeck](https://tweetdeck.twitter.com/) feature that allows its users to manage two or more Twitter accounts from the same browser.
+
+ Was this article helpful? Did you experience any difficulties while setting up your Twitter account? Let us know in the comments section, and remember to hit share and help your friends open their first Twitter account.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Almost everyone has an account on at least one social media network. In the last ten years Facebook, Instagram or Twitter have become so popular that movies were made about them and they are constantly being referenced in popular culture. If somehow you managed to make it into 2018 without a Twitter account, you've come to the right place, because in this article we are going to take you through each step of the Twitter account setup process and provide you with the information necessary to share your first tweet.
+
+* [Part 1: How to Create a Twitter Account](#part1)
+* [Part 2: How to Create Multiple Twitter Accounts With the Same Email Address](#part2)
+
+## How to Create a Twitter Account
+
+ Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## How to Create a Twitter account on the Web
+
+#### Step 1
+
+ Navigate to Twitter's home page, using a web browser on your computer, and click on the **Sign Up** option. You will be asked to insert your **full name, phone number, email address and a password.**
+
+![](https://images.wondershare.com/filmora/article-images/create-twitter-account-1.jpg)
+
+#### Step 2
+
+ You will have to pick a username that has no more than 15 characters. The platform will inform you if the username you've chosen is already taken or if it's too long. Select a name that can be easily associated with you or the brand the Twitter account should be representing, to ensure that your followers know to whom the account belongs.
+
+![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3
 
@@ -96,22 +262,10 @@ Follow @Ollie Mattison
 * [Part 1: How to Create a Twitter Account](#part1)
 * [Part 2: How to Create Multiple Twitter Accounts With the Same Email Address](#part2)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create a Twitter Account
 
  Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ## How to Create a Twitter account on the Web
 
 #### Step 1
@@ -126,74 +280,12 @@ Follow @Ollie Mattison
 
 ![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
 
-#### Step 3
-
- Check the **Keep me signed in on this computer** checkbox if you are creating an account from a private computer. You can also allow the platform to customize your account based on your recent online activity by clicking on the **Tailor Twitter based on my recent website visits** checkbox. After you've entered your information, you'll have to accept the terms and conditions and then click on the **Create My Account** button at the bottom of the screen.
-
-#### Step 4
-
- A verification email will be sent to the email address you entered. Go to your email account, and click on the link in the message you received from Twitter, in order to verify the account you just created. Congratulations, you have successfully opened a new Twitter account.
-
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-## How to Create a Twitter account through a Smartphone App
-
- Android and iPhone users can use their devices to set up a new account on Twitter. Head over to Google Play or the App Store using your Smartphone and find the Twitter application. Once it appears in the search results, click on it to initiate the download and the installation process. After the Twitter app is successfully installed on your device, tap on it to start setting up your new account.
-
- The process of creating a new account through a Smartphone app is the same as the one we described above. So, just insert your real name, username, email address and password and then tap on the SignUp button.
-
-## How to Create Multiple Twitter Accounts With the Same Email Address
-
- Using the same email address for two Twitter accounts isn't possible, because the platform will inform you that the email is already registered and that you have to enter a different email address. However, you can insert "+something" between your username and the @gmail extension to create email aliases which Gmail just regards the them as the same address and delivers the email directly to your nomal Gmail account. All emails from your new Twitter account will be sent to your original email address, even though you added the "+something" to it. This simple hack will allow you to manage multiple accounts from the same email address.
-
-## Can you log in to more than one Twitter Account at a time via the web?
-
- Accessing a few different Twitter accounts from the same web browser isn't an option since you first have to log out from one account in order to be able to log in to another one within the same web browser. Logging to multiple Twitter accounts simultaneously is only possible if you access the platform from different web browsers or if you are using [TweetDeck](https://tweetdeck.twitter.com/) feature that allows its users to manage two or more Twitter accounts from the same browser.
-
- Was this article helpful? Did you experience any difficulties while setting up your Twitter account? Let us know in the comments section, and remember to hit share and help your friends open their first Twitter account.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Almost everyone has an account on at least one social media network. In the last ten years Facebook, Instagram or Twitter have become so popular that movies were made about them and they are constantly being referenced in popular culture. If somehow you managed to make it into 2018 without a Twitter account, you've come to the right place, because in this article we are going to take you through each step of the Twitter account setup process and provide you with the information necessary to share your first tweet.
-
-* [Part 1: How to Create a Twitter Account](#part1)
-* [Part 2: How to Create Multiple Twitter Accounts With the Same Email Address](#part2)
-
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Create a Twitter Account
-
- Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
-
-## How to Create a Twitter account on the Web
-
-#### Step 1
-
- Navigate to Twitter's home page, using a web browser on your computer, and click on the **Sign Up** option. You will be asked to insert your **full name, phone number, email address and a password.**
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://images.wondershare.com/filmora/article-images/create-twitter-account-1.jpg)
-
-#### Step 2
-
- You will have to pick a username that has no more than 15 characters. The platform will inform you if the username you've chosen is already taken or if it's too long. Select a name that can be easily associated with you or the brand the Twitter account should be representing, to ensure that your followers know to whom the account belongs.
-
-![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
 
 #### Step 3
 
@@ -209,94 +301,10 @@ Follow @Ollie Mattison
 
  The process of creating a new account through a Smartphone app is the same as the one we described above. So, just insert your real name, username, email address and password and then tap on the SignUp button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## How to Create Multiple Twitter Accounts With the Same Email Address
 
  Using the same email address for two Twitter accounts isn't possible, because the platform will inform you that the email is already registered and that you have to enter a different email address. However, you can insert "+something" between your username and the @gmail extension to create email aliases which Gmail just regards the them as the same address and delivers the email directly to your nomal Gmail account. All emails from your new Twitter account will be sent to your original email address, even though you added the "+something" to it. This simple hack will allow you to manage multiple accounts from the same email address.
 
-## Can you log in to more than one Twitter Account at a time via the web?
-
- Accessing a few different Twitter accounts from the same web browser isn't an option since you first have to log out from one account in order to be able to log in to another one within the same web browser. Logging to multiple Twitter accounts simultaneously is only possible if you access the platform from different web browsers or if you are using [TweetDeck](https://tweetdeck.twitter.com/) feature that allows its users to manage two or more Twitter accounts from the same browser.
-
- Was this article helpful? Did you experience any difficulties while setting up your Twitter account? Let us know in the comments section, and remember to hit share and help your friends open their first Twitter account.
-
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Almost everyone has an account on at least one social media network. In the last ten years Facebook, Instagram or Twitter have become so popular that movies were made about them and they are constantly being referenced in popular culture. If somehow you managed to make it into 2018 without a Twitter account, you've come to the right place, because in this article we are going to take you through each step of the Twitter account setup process and provide you with the information necessary to share your first tweet.
-
-* [Part 1: How to Create a Twitter Account](#part1)
-* [Part 2: How to Create Multiple Twitter Accounts With the Same Email Address](#part2)
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
-## How to Create a Twitter Account
-
- Like all social media networks, Twitter can be used for a wide array of purposes, from sharing your opinions on topics you find important, to strengthening your brand's identity. So here's how you can open a new account on Twitter.
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Create a Twitter account on the Web
-
-#### Step 1
-
- Navigate to Twitter's home page, using a web browser on your computer, and click on the **Sign Up** option. You will be asked to insert your **full name, phone number, email address and a password.**
-
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://images.wondershare.com/filmora/article-images/create-twitter-account-1.jpg)
-
-#### Step 2
-
- You will have to pick a username that has no more than 15 characters. The platform will inform you if the username you've chosen is already taken or if it's too long. Select a name that can be easily associated with you or the brand the Twitter account should be representing, to ensure that your followers know to whom the account belongs.
-
-![](https://images.wondershare.com/filmora/article-images/create-twitter-account-4.jpg)
-
-#### Step 3
-
- Check the **Keep me signed in on this computer** checkbox if you are creating an account from a private computer. You can also allow the platform to customize your account based on your recent online activity by clicking on the **Tailor Twitter based on my recent website visits** checkbox. After you've entered your information, you'll have to accept the terms and conditions and then click on the **Create My Account** button at the bottom of the screen.
-
-#### Step 4
-
- A verification email will be sent to the email address you entered. Go to your email account, and click on the link in the message you received from Twitter, in order to verify the account you just created. Congratulations, you have successfully opened a new Twitter account.
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
-## How to Create a Twitter account through a Smartphone App
-
- Android and iPhone users can use their devices to set up a new account on Twitter. Head over to Google Play or the App Store using your Smartphone and find the Twitter application. Once it appears in the search results, click on it to initiate the download and the installation process. After the Twitter app is successfully installed on your device, tap on it to start setting up your new account.
-
- The process of creating a new account through a Smartphone app is the same as the one we described above. So, just insert your real name, username, email address and password and then tap on the SignUp button.
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## How to Create Multiple Twitter Accounts With the Same Email Address
-
- Using the same email address for two Twitter accounts isn't possible, because the platform will inform you that the email is already registered and that you have to enter a different email address. However, you can insert "+something" between your username and the @gmail extension to create email aliases which Gmail just regards the them as the same address and delivers the email directly to your nomal Gmail account. All emails from your new Twitter account will be sent to your original email address, even though you added the "+something" to it. This simple hack will allow you to manage multiple accounts from the same email address.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can you log in to more than one Twitter Account at a time via the web?
 
  Accessing a few different Twitter accounts from the same web browser isn't an option since you first have to log out from one account in order to be able to log in to another one within the same web browser. Logging to multiple Twitter accounts simultaneously is only possible if you access the platform from different web browsers or if you are using [TweetDeck](https://tweetdeck.twitter.com/) feature that allows its users to manage two or more Twitter accounts from the same browser.
@@ -322,8 +330,6 @@ Follow @Ollie Mattison
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -332,7 +338,22 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-capture-and-record-every-sound-on-your-pc-with-x-recorder/"><u>[New] Capture & Record Every Sound on Your PC with X-Recorder</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-earn-on-youtube-decoding-recent-policy-changes-for-2024/"><u>[New] Earn on YouTube Decoding Recent Policy Changes for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-elevate-your-tiktok-with-bigger-head-vfx-3-effective-ways/"><u>[New] In 2024, Elevate Your TikTok with Bigger-Head VFX (3 Effective Ways)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-gif-repository-capturing-the-essence-in-frames/"><u>[Updated] 2024 Approved Twitter Gif Repository Capturing the Essence in Frames</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazons-favorite-originals-twitter-top-picks/"><u>[Updated] Amazon's Favorite Originals - Twitter Top Picks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-correct-aspect-ratio-use-in-micro-video-tweets-for-2024/"><u>[Updated] Correct Aspect Ratio Use in Micro-Video Tweets for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-instant-mp3-from-your-fb-videos-online-converter-for-2024/"><u>[Updated] Instant MP3 From Your FB Videos - Online Converter for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-elevate-your-tiktok-footage-with-enhanced-heads-a-guide-3-steps/"><u>2024 Approved How To Elevate Your TikTok Footage with Enhanced Heads A Guide (3 Steps)</u></a></li>
+<li><a href="https://win-able.techidaily.com/avoid-directx-errors-in-fifa-19-with-these-easy-fixing-techniques/"><u>Avoid DirectX Errors in FIFA 19 with These Easy Fixing Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ing-the-best-of-beauty-youtubes-elite-artists-showcased/"><u>Decoding the Best of Beauty YouTube's Elite Artists Showcased</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/essential-10-techniques-every-amazon-kindle-fire-user-should-master/"><u>Essential 10 Techniques Every Amazon Kindle Fire User Should Master</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-twitter-archives-a-comprehensive-guide/"><u>In 2024, Navigating Twitter Archives A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-and-interpreting-twitter-archives/"><u>Navigating and Interpreting Twitter Archives</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-complete-guide-to-astonishing-lyric-videos-with-lyric-video-maker-for-2024/"><u>The Complete Guide to Astonishing Lyric Videos with Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/uniting-conversations-across-platforms-twitter-vids-on-whatsapp-for-2024/"><u>Uniting Conversations Across Platforms Twitter Vids on WhatsApp for 2024</u></a></li>
+</ul></div>
 
