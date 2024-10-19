@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-10-09T17:34:44.200Z
-updated: 2024-10-13T17:47:51.169Z
+date: 2024-10-18T17:14:29.913Z
+updated: 2024-10-19T17:14:36.832Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -46,10 +46,10 @@ Lifewire / Emily Isaacs
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -89,31 +89,31 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: A wired connection for reliability**
 
@@ -121,16 +121,22 @@ Lifewire / Emily Isaacs
 
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A budget-friendly ergonomic keyboard**
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
@@ -183,16 +189,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-whatsapp-video-transfers-from-tweeted-content/"><u>[Updated] 2024 Approved WhatsApp Video Transfers From Tweeted Content</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-x-audio-enhancer-for-computer-use/"><u>[Updated] 2024 Approved X-Audio Enhancer for Computer Use</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-cringe-worthy-tweets-the-collection-for-2024/"><u>[Updated] Cringe-Worthy Tweets The Collection for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-finding-equilibrium-between-professional-life-and-youtubing/"><u>[Updated] Finding Equilibrium Between Professional Life and YouTubing</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-best-of-the-brainless-top-zombie-game-sweepstakes/"><u>[Updated] In 2024, The Best of the Brainless Top Zombie Game Sweepstakes</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-securing-your-videos-on-facebook-pc-plus-android-methods-for-2024/"><u>[Updated] Securing Your Videos on Facebook PC + Android Methods for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-post-twitter-videos-on-snapchat/"><u>How to Post Twitter Videos on Snapchat?</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-nokia-c02-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Nokia C02 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/introducing-teac-pd-301-sleekness-meets-audio-quality/"><u>Introducing Teac PD-301: Sleekness Meets Audio Quality</u></a></li>
-<li><a href="https://fox-search.techidaily.com/losungsansatze-fur-das-unerwartete-schliessen-von-windows-11-auf-ihrem-pc/"><u>Lösungsansätze Für Das Unerwartete Schließen Von Windows 11 Auf Ihrem PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-tiktok-to-twitter/"><u>Navigating TikTok to Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-transforming-tweetstream-into-hd-visionary-content/"><u>[New] 2024 Approved Transforming Tweetstream Into HD Visionary Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-enrich-tweets-with-videos-your-quick-reference-for-2024/"><u>[New] Enrich Tweets with Videos Your Quick Reference for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-unlocking-desktop-recording-the-ezvide-approach/"><u>[New] In 2024, Unlocking Desktop Recording - The EZvide Approach</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-roadmap-to-thriving-in-twitter-live-broadcasts/"><u>[Updated] 2024 Approved The Roadmap to Thriving in Twitter Live Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-videos-directly-on-twitter-via-mobile-devices-only/"><u>2024 Approved Share Videos Directly on Twitter via Mobile Devices Only</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-the-demise-of-yahoo-messenger-reasons-and-consequences-for-users/"><u>Decoding the Demise of Yahoo! Messenger: Reasons and Consequences for Users</u></a></li>
+<li><a href="https://win-info.techidaily.com/easy-guide-how-to-duplicate-a-windows-server-2011-disk-on-ssd-or-hdd/"><u>Easy Guide: How to Duplicate a Windows Server 2011 Disk on SSD or HDD</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elevate-design-complimentary-cutting-edge-psd-texts/"><u>Elevate Design Complimentary, Cutting-Edge PSD Texts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-xiaomi-redmi-note-12r-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Xiaomi Redmi Note 12R Phone Network-Ready</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovators-choice-top-5-state-of-the-art-slow-cams/"><u>Innovators' Choice Top 5 State-of-the-Art Slow Cams</u></a></li>
 </ul></div>
 

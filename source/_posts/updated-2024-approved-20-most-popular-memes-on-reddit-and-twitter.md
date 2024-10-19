@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  20 Most Popular Memes on Reddit and Twitter\""
-date: 2024-10-01T18:42:01.072Z
-updated: 2024-10-08T00:26:19.395Z
+date: 2024-10-18T16:56:07.558Z
+updated: 2024-10-19T16:25:10.215Z
 tags:
   - ai video
   - ai twitter
@@ -59,17 +59,10 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. This is Fine
@@ -84,11 +77,25 @@ Smug Frog, who is usually known as Pepe the Frog, is a meme where a strange look
 
 ![Smug Frog](https://images.wondershare.com/filmora/article-images/Smug-Frog-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Roll Safe
 
 Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It’s from a scene in a movie where he played a character called “Roll Safe.”) It’s usually used to represent “that’s using your brain” or it’s meant in sarcasm to make fun of people who didn’t use common sense in a situation.
 
 ![Roll Safe](https://images.wondershare.com/filmora/article-images/roll-safe-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Rage Guy
 
@@ -97,10 +104,10 @@ Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or so
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. Make America Great Again
@@ -109,18 +116,18 @@ Used as Trump’s campaign slogan, nowadays this is used as satire when pointing
 
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. Fake CCG Cards
 
 CCG’s like Magic the Gathering are still popular, and fake CCG cards are used as image parodies for almost anything imaginable, from people, to animals, to other memes.
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: The Most Popular Memes on Twitter
 
@@ -130,11 +137,25 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Evil Kermit
 
 Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the frog from one of the Muppet films). This picture is usually accompanied by a conversation between the user and their “evil self” about a decision that they’re trying to make.
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Nut Button
 
@@ -142,25 +163,11 @@ Nut Button started as a sexual meme, but it’s commonly used as a picture of so
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Spongebob Mock
 
 Spongebob Mocking is a screen capture of Spongebob making a strange face and walking like a chicken. It is usually accompanied by a reply written like this: ExAmPlE tExT, which is mocking the person who said the same sentence.
 
 ![Spongebob Mock](https://images.wondershare.com/filmora/article-images/Spongebob-Mock-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Reaction Images
 
@@ -180,13 +187,6 @@ These posters, at first glance, look like motivational posters, with images of n
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
@@ -205,6 +205,13 @@ Usually represented by a stick figure, it’s someone looking at a computer with
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 There are so many different types of memes out there, and it’s really interesting to see all of the ones that have gotten a lot of traction and that will make a difference in our world as well. Are any memes missing from this list? Do you think there will be other popular memes if they were to do this 5 or 10 years from now?
@@ -212,19 +219,6 @@ There are so many different types of memes out there, and it’s really interest
 If you want to make memes right now, Filmora meme maker can help you easily create memes quickly. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to find more.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -241,16 +235,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-streamline-capturing-and-saving-tweets-visuals-on-android/"><u>[New] Streamline Capturing and Saving Tweets' Visuals on Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-from-shared-laughter-to-your-storage-twitters-gif-guide/"><u>[Updated] From Shared Laughter to Your Storage Twitter's GIF Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-10-most-retweeted-tiktok-sensations/"><u>[Updated] In 2024, 10 Most Retweeted TikTok Sensations</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-camera-operational-obs-challenge-won/"><u>[Updated] In 2024, Camera Operational OBS Challenge Won</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-future-of-social-media-sharing-twitter-videos-on-fb-for-2024/"><u>[Updated] The Future of Social Media Sharing Twitter Videos on FB for 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/1726027971990-bandicam/"><u>初心者でも簡単に! Bandicam ロゴ除外手順</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/can-you-optimize-my-notebook-with-a-new-cpu/"><u>Can You Optimize My Notebook with a New CPU?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-nvidia-quadro-drivers-and-software-for-windows-10-official-dch-drivers/"><u>Download NVIDIA Quadro Drivers & Software for Windows 10 - Official DCH Drivers</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-motorola-edge-40-pro-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Motorola Edge 40 Pro</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/internet-flip-chart-for-2024/"><u>Internet Flip Chart for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-gpt-decoded-essential-knowledge-for-families/"><u>The GPT Decoded: Essential Knowledge for Families</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2023-how-to-share-twitter-videos-on-facebook/"><u>[New] 2023 | How to Share Twitter Videos on Facebook?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-jokesters-journal-the-top-10-hilarious-tweet-threads/"><u>[New] 2024 Approved Jokester's Journal The Top 10 Hilarious Tweet Threads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pioneering-successful-twitter-promotions/"><u>[New] 2024 Approved Pioneering Successful Twitter Promotions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-meme-marchers-the-path-to-viral-twitcinema/"><u>[New] In 2024, Meme Marchers The Path to Viral TwitCinema</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-uniting-conversations-across-platforms-twitter-vids-on-whatsapp/"><u>[Updated] 2024 Approved Uniting Conversations Across Platforms Twitter Vids on WhatsApp</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-sonic-sculpture-how-to-mold-soundscapes-with-cost-free-effect-tools/"><u>[Updated] In 2024, Sonic Sculpture How to Mold Soundscapes with Cost-Free Effect Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-top-10-lecture-recorders-for-teachers/"><u>[Updated] In 2024, Top 10 Lecture Recorders for Teachers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-media-subtitles-transformation/"><u>[Updated] Mastering Media Subtitles Transformation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-in-review-social-medias-viral-videos-on-twitter-for-2024/"><u>2023 in Review Social Media's Viral Videos on Twitter for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-slapstick-selection-twitters-funny-threads/"><u>2024 Approved Slapstick Selection Twitter's Funny Threads</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oppo-find-x6-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Oppo Find X6 Pro to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/conquer-kinemaster-efficient-use-plus-top-online-gaming-platforms-reviewed/"><u>Conquer KineMaster Efficient Use + Top Online Gaming Platforms Reviewed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-data-retrieval-tool-restore-lost-data-from-honor-90-by-fonelab-android-recover-data/"><u>Honor Data Retrieval tool – restore lost data from Honor 90</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channeling-success-navigating-the-new-youtube-membership-model/"><u>In 2024, Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chromebook-voice-alteration-guide-essential-online-reverb-and-pitch-tools/"><u>In 2024, Chromebook Voice Alteration Guide Essential Online Reverb & Pitch Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-ultimate-tutorial-mastering-twitter-video-responses/"><u>In 2024, Ultimate Tutorial Mastering Twitter Video Responses</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-no-audio-output-device-found-problem-on-windows-11-a-comprehensive-guide/"><u>Solving 'No Audio Output Device Found' Problem on Windows 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-nas-devices-optimized-for-plex-with-advanced-4k-video-conversion/"><u>Top NAS Devices Optimized for Plex with Advanced 4K Video Conversion</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/videotwitterconverter-direct-media-conversion/"><u>VideoTwitterConverter Direct Media Conversion</u></a></li>
 </ul></div>
 

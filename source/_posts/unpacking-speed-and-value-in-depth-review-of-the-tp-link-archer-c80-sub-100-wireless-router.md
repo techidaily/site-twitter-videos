@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-10-08T17:59:55.975Z
-updated: 2024-10-13T16:46:19.998Z
+date: 2024-10-12T16:28:20.737Z
+updated: 2024-10-19T16:57:36.355Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -67,10 +67,10 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
@@ -92,10 +92,10 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
@@ -105,10 +105,16 @@ Lifewire / Todd Braylor
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
@@ -133,13 +139,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Battery: Maximum capacity designed for 24/7 wear**
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience. You can wear the Inspire HR for several days of activity on end.
@@ -148,13 +147,6 @@ Lifewire / Todd Braylor
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Software Features: Limited to the Fitbit wellness model**
 
  The Inspire HR delivers all the key features that Fitbit has built its brand name around, but beyond the exercise apps, the software capabilities of the model are limited. One of the only extra features it has is the ability to show you call and text notifications when in Bluetooth range of your smartphone.
@@ -162,6 +154,13 @@ Lifewire / Todd Braylor
  This fitness tracker is centered around displaying Fitbit's core stats and exercise apps in combination with its heart rate functions. Integration with the Fitbit app is the best way to review your metrics in expanded categories, such as how many days out of the week you have elevated your heart rate enough for the Fitbit to log an exercise session (Fitbit refers to this as “active minutes”).
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A host of insights at a good price**
 
@@ -180,6 +179,13 @@ Lifewire / Todd Braylor
  **A motivating and wallet-friendly way to achieve wellness and performance goals.**
 
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,14 +222,18 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-how-to-save-a-gif-from-twitter-on-iphone-and-android/"><u>[New] 2024 Approved How to Save a GIF From Twitter on iPhone and Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twit-favorites-of-the-year-amazon-primes-peak-series/"><u>[New] 2024 Approved Twit-Favorites of the Year Amazon Prime's Peak Series</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-fbs-flash-video-frontier/"><u>[New] FB's Flash Video Frontier</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-spreading-twitter-vid-facebook-integration-methods/"><u>[Updated] 2024 Approved Spreading Twitter Vid Facebook Integration Methods</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2023-techniques-sending-tweets-as-videos-to-whatsapp/"><u>2023 Techniques Sending Tweets as Videos to WhatsApp</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/cooler-master-ncore-100-max-tower-case-a-robust-rack-for-hefty-graphics-cards/"><u>Cooler Master Ncore 100 Max Tower Case: A Robust Rack for Hefty Graphics Cards</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-set-up-dual-monitors-on-a-mac/"><u>How to Set Up Dual Monitors on a Mac</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-motivational-melodies-select-the-best-tracks-for-an-effective-workout/"><u>In 2024, Motivational Melodies Select the Best Tracks for an Effective Workout</u></a></li>
-<li><a href="https://driver-install.techidaily.com/wacom-tablet-software-precision-control-and-free-for-win10-users/"><u>Wacom Tablet Software: Precision Control & FREE for Win10 Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-time-honored-treasures-free-of-restrictions/"><u>[New] In 2024, Time-Honored Treasures, Free of Restrictions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-blueprinting-a-buzz-creating-movie-snippet/"><u>[Updated] Blueprinting a Buzz-Creating Movie Snippet</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-bypass-software-for-youtube-downloads-for-2024/"><u>[Updated] Bypass Software for YouTube Downloads for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/advanced-hardware-analysis-and-tips-by-toms-tech-experts/"><u>Advanced Hardware Analysis and Tips by Tom's Tech Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hands-on-analysis-discovering-the-power-and-comfort-of-cycwagens-latest-e-bike-model/"><u>Hands-On Analysis: Discovering the Power and Comfort of CycWagen's Latest E-Bike Model</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-14-plus-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 14 Plus Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Fixing Foneazy MockGo Not Working On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 14 Pro Max</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-depth-analysis-and-comparison-of-gear-by-toms-hardware-experts/"><u>In-Depth Analysis and Comparison of Gear by Tom's Hardware Experts</u></a></li>
+<li><a href="https://facebook.techidaily.com/realm-rankings-deciphering-which-platform-paves-a-higher-road-meta-or-twitter/"><u>Realm Rankings: Deciphering Which Platform Paves a Higher Road – Meta or Twitter?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/revolutionary-computer-tech-built-for-ultimate-air-cooling-with-powerful-central-fan-taming-centrifugal-force/"><u>Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/toms-hardware-hub-explore-cutting-edge-tech-advice-for-every-level-of-user/"><u>Tom's Hardware Hub: Explore Cutting-Edge Tech Advice For Every Level of User</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unleashing-performance-the-msi-codex-r2-desktop-gaming-setup-reviewed-and-tested/"><u>Unleashing Performance: The MSI CODEX R2 Desktop Gaming Setup Reviewed and Tested</u></a></li>
 </ul></div>
 
