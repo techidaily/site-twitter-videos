@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capture Twitter Gifs on Your Computer Quickly"
-date: 2024-10-13T16:27:57.551Z
-updated: 2024-10-19T16:25:30.347Z
+date: 2024-10-20T01:46:10.067Z
+updated: 2024-10-25T09:27:27.434Z
 tags:
   - ai video
   - ai twitter
@@ -51,18 +51,24 @@ EZgif is an amazing online tool for gif creation and editing. A user can easily 
 
 ![get tweet url](https://images.wondershare.com/filmora/article-images/get-tweet-url1.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Access the [EZGif GIF Optimizer](https://ezgif.com/optimize) website
 
 **Step 3:**Then you can copy the post link that contains that GIF and paste it in the box under **OR paste image URL** and click **Upload**.
 
 ![open gif optimizer](https://images.wondershare.com/filmora/article-images/open-gif-optimizer2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:**Now, you will see the GIF on the screen and you can edit the image as you want.
 
@@ -70,22 +76,22 @@ EZgif is an amazing online tool for gif creation and editing. A user can easily 
 
 ![convert to gif](https://images.wondershare.com/filmora/article-images/convert-to-gif3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** Now, you will see another box that says Save located on the right of your screen. Click on that and save your GIF file on your computer.
 
 ![save twitter gif](https://images.wondershare.com/filmora/article-images/save-twitter-gif4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Download GIF from Twitter Using Chrome Store Extension
@@ -111,15 +117,28 @@ Twitter doesn’t have a save button for photos and images however there is a fr
 ![download twitter gif](https://images.wondershare.com/filmora/article-images/download-twitter-gif6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** Click on the download button and you will get the save option to save the file on your computer.
 
 ![find downloaded gif](https://images.wondershare.com/filmora/article-images/find-downloaded-gif7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Method 3: Download GIF from Twitter Using Video Converter
 
@@ -149,22 +168,15 @@ Steps to download gifs for twitter using Wondershare Uniconverter (**this may ne
 ![click downloader option](https://images.wondershare.com/filmora/article-images/click-downloader-option1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3:** Then start to download the file. Wondershare Uniconverter will save the gif as mp4 as default.
 
 ![download gif video](https://images.wondershare.com/filmora/article-images/download-gif-video2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** If you want to keep it as a gif, you need to go to the **Toolbox-GIF Maker**
 
@@ -195,24 +207,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-enhancing-outreach-sending-twitters-videos-to-facebooks/"><u>[New] 2024 Approved Enhancing Outreach Sending Twitters' Videos to Facebooks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-digging-into-the-data-top-10-twitvideos-for-2024/"><u>[New] Digging Into the Data Top 10 TwitVideos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-memorable-moments-made-easy-download-and-save-gif-from-social-media/"><u>[New] Memorable Moments Made Easy Download and Save GIF From Social Media</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mobile-media-upload-share-videos-on-twitter-without-retweeting/"><u>[New] Mobile Media Upload Share Videos on Twitter Without Retweeting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-required-video-aspect-ratios-explained/"><u>[New] Twitter's Required Video Aspect Ratios Explained</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-taking-twitters-short-form-stories-and-making-them-come-alive-as-gifs/"><u>[Updated] 2024 Approved Taking Twitter's Short Form Stories and Making Them Come Alive as GIFS</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-pioneering-usability-unearthed-strategies-for-amplified-windows-11-capabilities/"><u>[Updated] In 2024, Pioneering Usability Unearthed Strategies for Amplified Windows 11 Capabilities</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-zoom-mastery-maximizing-your-podcast-recording-quality/"><u>[Updated] In 2024, Zoom Mastery Maximizing Your Podcast Recording Quality</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-multitask-mastery-in-media-co-watching-channels-with-ease/"><u>[Updated] Multitask Mastery in Media Co-Watching Channels with Ease</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/achieving-high-quality-videos-with-your-cellphone-webcam-for-2024/"><u>Achieving High-Quality Videos with Your Cellphone Webcam for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-twitter-media-transfer-to-whatsapp-for-2024/"><u>Direct Twitter Media Transfer to WhatsApp for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-prime-binge-worthy-hits-highest-tweets-and-view-counts/"><u>In 2024, Prime Binge-Worthy Hits Highest Tweets & View Counts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-trending-tiktoks-of-tomorrow/"><u>In 2024, Trending TikToks of Tomorrow</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/les-applications-de-partage-decran-avise-le-classement-des-meilleurs-logiciels-en-2021-movavi/"><u>Les Applications De Partage D'Écran Avisé: Le Classement Des Meilleurs Logiciels En 2021 - Movavi</u></a></li>
-<li><a href="https://os-tips.techidaily.com/protect-your-communications-easy-steps-for-archiving-text-messages-on-ios-and-android-phones/"><u>Protect Your Communications: Easy Steps for Archiving Text Messages on iOS & Android Phones</u></a></li>
-<li><a href="https://fox-http.techidaily.com/sky-high-storage-cutting-edge-cloud-picks/"><u>Sky High Storage Cutting-Edge Cloud Picks</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/solving-the-mp4-compatibility-issue-with-powerpoint-easy-fixes/"><u>Solving the MP4 Compatibility Issue with PowerPoint - Easy Fixes!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-practices-for-free-clipart-use-in-projects/"><u>[New] Best Practices for Free Clipart Use in Projects</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-secrets-to-effective-targeted-tweets/"><u>[New] Secrets to Effective Targeted Tweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-new-rule-include-aspect-ratio-in-video-posts-for-2024/"><u>[New] Twitter's New Rule Include Aspect Ratio in Video Posts for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-leading-sites-that-outshine-traditional-twitter-usage/"><u>[Updated] In 2024, Leading Sites That Outshine Traditional Twitter Usage</u></a></li>
+<li><a href="https://win11.techidaily.com/enlighten-your-pc-activating-the-ultimate-control-on-windows-11/"><u>Enlighten Your PC: Activating the Ultimate Control on Windows 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-can-i-post-a-video-between-twitter-and-tumblr-for-2024/"><u>How Can I Post a Video Between Twitter and Tumblr for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-7-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone 7 Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/overcome-dvd-writing-challenges-with-these-easy-steps/"><u>Overcome DVD Writing Challenges with These Easy Steps</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/significant-concepts-in-interactive-tale-design/"><u>Significant Concepts in Interactive Tale Design</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/update-twitter-video-preview-for-2024/"><u>Update Twitter Video Preview for 2024</u></a></li>
+<li><a href="https://techidaily.com/video-fixer-software-for-all-corrupt-videos-of-razr-40-by-stellar-video-repair-mobile-video-repair/"><u>Video Fixer Software for all Corrupt Videos of Razr 40</u></a></li>
 </ul></div>
 

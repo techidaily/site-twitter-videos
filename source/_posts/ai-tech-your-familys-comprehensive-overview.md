@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-10-14T16:01:34.387Z
-updated: 2024-10-19T17:28:50.542Z
+date: 2024-10-23T04:29:37.708Z
+updated: 2024-10-25T06:07:27.242Z
 tags:
   - chatgpt
   - open-ai
@@ -35,18 +35,18 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Which Is the Easiest Large Language Model to Use?
 
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
 
  However, to run LLaMa locally, you will need to have some specialized knowledge or the ability to follow a tutorial. You'll also need a significant amount of storage space.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Which Is the Most Private Large Language Model?
 
@@ -66,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In order to test which LLM has the best general knowledge, we asked three questions.
 
  The first question, "Which national flag has five sides?" was only correctly answered by Bard, which identified the national flag of Nepal as having five sides.
@@ -82,19 +89,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![burnt socket for a  BS 1363 type plug](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/burnt-socket-for-a-bs-1363-type-plug.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When you have technical problems, you might be tempted to turn to a chatbot for help. While technology marches on, some things remain the same. The BS 1363 electrical plug has been in use in Britain, Ireland, and many other countries since 1947\. We asked the language models how to correctly wire it up.
 
  Cables attaching to the plug have a live wire (brown), an earth wire (yellow/green), and a neutral wire (blue). These must be attached to the correct terminals within the plug housing.
@@ -107,6 +101,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
@@ -115,28 +116,15 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
@@ -174,16 +162,16 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-can-a-brief-subscribe-boost-your-content-viewing-in-2024/"><u>[New] Can a Brief Subscribe Boost Your Content Viewing, In 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-scripting-the-final-push-for-your-tiktok-series/"><u>[Updated] 2024 Approved Scripting the Final Push for Your TikTok Series</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-bridging-creativity-and-engagement-anime-subscribe-buttons-with-filmora-for-2024/"><u>[Updated] Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazon-fire-or-ipad-a-comprehensive-guide-to-selecting-yours/"><u>Amazon Fire or iPad: A Comprehensive Guide to Selecting Yours</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/comprehensive-guide-to-utilizing-the-new-andes-1500-by-ampaq-for-effortless-power-anywhere/"><u>Comprehensive Guide to Utilizing the New Andes 1500 by Ampaq for Effortless Power Anywhere</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/experience-ultimate-gaming-at-169-a-month-premium-nzxt-pcs-with-rtx-4070-ti-and-intel-i7-up-for-grabs/"><u>Experience Ultimate Gaming at $169 a Month – Premium NZXT PCs with RTX 4070 Ti and Intel I7 Up for Grabs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/exploring-the-high-power-value-proposition-of-ibuypowers-bespoke-gaming-pcs-a-detailed-analysis/"><u>Exploring the High-Power, Value Proposition of iBuyPower’s Bespoke Gaming PCs – A Detailed Analysis</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-narzo-60-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Realme Narzo 60 5G Location by Number | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-x7b-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Honor X7b Phone with Broken Screen</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/stay-ahead-with-the-newest-netgear-default-password-compilation-july-2024/"><u>Stay Ahead with the Newest Netgear Default Password Compilation (July 2024)</u></a></li>
-<li><a href="https://win-blog.techidaily.com/stop-the-frustration-effective-fixes-to-stop-age-of-ashes-from-pc-crashing/"><u>Stop the Frustration: Effective Fixes to Stop 'Age of Ashes' From PC Crashing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-new-rule-include-aspect-ratio-in-video-posts/"><u>[New] In 2024, Twitter's New Rule Include Aspect Ratio in Video Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] 2024 Approved Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-saturating-screen-with-high-definition-tweets/"><u>[Updated] 2024 Approved Saturating Screen with High-Definition Tweets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-playlist-extraction-step-by-step-from-youtubes-archive/"><u>[Updated] Playlist Extraction - Step by Step From YouTube's Archive</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-sending-direct-tweets-share-photosvideos-on-twitter-without-retweeting-for-2024/"><u>[Updated] Sending Direct Tweets Share Photos/Videos on Twitter without Retweeting for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-top-10-hilarious-tiktok-skits-unveiled/"><u>2024 Approved Top 10 Hilarious TikTok Skits Unveiled</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-a38-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/budget-bounty-experience-elite-gadgets-and-apps-on-a-shoestring/"><u>Budget Bounty: Experience Elite Gadgets and Apps on a Shoestring</u></a></li>
+<li><a href="https://program-issues.techidaily.com/grand-theft-auto-v-optimization-fixes-for-performance-issues/"><u>Grand Theft Auto V Optimization - Fixes for Performance Issues</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-download-and-update-nvidia-geforce-980-ti-video-card-drivers/"><u>How to Download & Update NVIDIA GeForce 980 Ti Video Card Drivers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gliding-giants-olympic-skate-tales/"><u>In 2024, Gliding Giants Olympic Skate Tales</u></a></li>
 </ul></div>
 

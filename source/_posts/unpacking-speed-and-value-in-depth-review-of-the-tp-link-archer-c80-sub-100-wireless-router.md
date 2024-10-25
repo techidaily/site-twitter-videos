@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-10-12T16:28:20.737Z
-updated: 2024-10-19T16:57:36.355Z
+date: 2024-10-20T02:58:48.950Z
+updated: 2024-10-25T09:23:59.263Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -67,13 +67,20 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Low-profile, comfortable, and intuitive**
 
@@ -91,31 +98,11 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
 
  The Fitbit Inspire HR is simple to set up. You’ll need to connect it to the Fitbit app, which is available on both iOS and Android platforms, and the pairing process is very straightforward.
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
 
@@ -139,6 +126,13 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Maximum capacity designed for 24/7 wear**
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience. You can wear the Inspire HR for several days of activity on end.
@@ -146,6 +140,13 @@ Lifewire / Todd Braylor
  Fitbit claims the Inspire HR battery will last up to five days with a full charge. We found this to be true—the unit we tested lasted a little over five full days before draining down to zero. Charging the Inspire HR took only about two hours before it was back at 100% again.
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Software Features: Limited to the Fitbit wellness model**
 
@@ -155,16 +156,16 @@ Lifewire / Todd Braylor
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: A host of insights at a good price**
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Fitbit Inspire HR vs. Garmin vívosport**
 
@@ -179,13 +180,6 @@ Lifewire / Todd Braylor
  **A motivating and wallet-friendly way to achieve wellness and performance goals.**
 
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -222,18 +216,24 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-time-honored-treasures-free-of-restrictions/"><u>[New] In 2024, Time-Honored Treasures, Free of Restrictions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-blueprinting-a-buzz-creating-movie-snippet/"><u>[Updated] Blueprinting a Buzz-Creating Movie Snippet</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-bypass-software-for-youtube-downloads-for-2024/"><u>[Updated] Bypass Software for YouTube Downloads for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/advanced-hardware-analysis-and-tips-by-toms-tech-experts/"><u>Advanced Hardware Analysis and Tips by Tom's Tech Experts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/hands-on-analysis-discovering-the-power-and-comfort-of-cycwagens-latest-e-bike-model/"><u>Hands-On Analysis: Discovering the Power and Comfort of CycWagen's Latest E-Bike Model</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-14-plus-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 14 Plus Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Fixing Foneazy MockGo Not Working On Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 14 Pro Max</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-depth-analysis-and-comparison-of-gear-by-toms-hardware-experts/"><u>In-Depth Analysis and Comparison of Gear by Tom's Hardware Experts</u></a></li>
-<li><a href="https://facebook.techidaily.com/realm-rankings-deciphering-which-platform-paves-a-higher-road-meta-or-twitter/"><u>Realm Rankings: Deciphering Which Platform Paves a Higher Road – Meta or Twitter?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/revolutionary-computer-tech-built-for-ultimate-air-cooling-with-powerful-central-fan-taming-centrifugal-force/"><u>Revolutionary Computer Tech: Built for Ultimate Air Cooling with Powerful Central Fan, Taming Centrifugal Force</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/toms-hardware-hub-explore-cutting-edge-tech-advice-for-every-level-of-user/"><u>Tom's Hardware Hub: Explore Cutting-Edge Tech Advice For Every Level of User</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unleashing-performance-the-msi-codex-r2-desktop-gaming-setup-reviewed-and-tested/"><u>Unleashing Performance: The MSI CODEX R2 Desktop Gaming Setup Reviewed and Tested</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-alter-twitter-video-headline-image/"><u>[New] Alter Twitter Video Headline Image</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-exploring-and-utilizing-your-twitter-archive-for-2024/"><u>[New] Exploring and Utilizing Your Twitter Archive for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-gif-revolution-free-transformation-of-tweets-to-gifs/"><u>[New] In 2024, Gif Revolution Free Transformation of Tweets to GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-preeminent-platforms-twitter-like-experiences-for-2024/"><u>[New] Preeminent Platforms Twitter-Like Experiences for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-seamless-path-integrating-your-social-photos-into-device-storage/"><u>[New] The Seamless Path Integrating Your Social Photos Into Device Storage</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-video-quality-at-its-best-webcams-for-superior-podcasting-for-2024/"><u>[New] Video Quality at Its Best Webcams for Superior Podcasting for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-prime-selector-20-twitters-animated-treasure-chest/"><u>[Updated] 2024 Approved Prime Selector 2.0 Twitter's Animated Treasure Chest</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-seamless-audio-switch-from-srt-to-xmlssa-guide/"><u>[Updated] Seamless Audio Switch From SRT to XML/SSA Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-chatter-on-the-hottest-tiktoks-for-2024/"><u>[Updated] Twitter Chatter on the Hottest TikToks for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unravel-the-mystery-of-reversed-videos-on-snapchat/"><u>[Updated] Unravel the Mystery of Reversed Videos on Snapchat</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-training-on-googles-advanced-speech-to-text-feature/"><u>2024 Approved In-Depth Training on Google's Advanced Speech to Text Feature</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-laughing-matters-the-viral-meme-scoreboard/"><u>2024 Approved Laughing Matters The Viral Meme Scoreboard</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-subtitles-in-a-click-our-free-top-10-converter-picks/"><u>2024 Approved Subtitles in a Click - Our Free, Top 10 Converter Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-online-presence-building-events-on-facebook/"><u>Elevating Your Online Presence: Building Events on Facebook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-itel-p40plus-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Itel P40+ to iPad | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-moto-g-5g-2023-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola Moto G 5G (2023) to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-itel-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Itel Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-watching-wonders-amazon-primes-top-series-on-twitter/"><u>In 2024, Watching Wonders Amazon Prime's Top Series on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/redesign-instant-twitter-video-view/"><u>Redesign Instant Twitter Video View</u></a></li>
 </ul></div>
 

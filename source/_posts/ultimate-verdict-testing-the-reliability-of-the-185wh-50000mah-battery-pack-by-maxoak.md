@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-10-15T16:05:30.245Z
-updated: 2024-10-19T16:51:47.446Z
+date: 2024-10-24T01:49:58.846Z
+updated: 2024-10-25T06:58:29.227Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -39,9 +39,23 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -68,6 +82,13 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -86,13 +107,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -107,13 +121,6 @@ Lifewire / Tony Mitera
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Some of the best value to be found in jump starters**
 
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
@@ -121,10 +128,10 @@ Lifewire / Tony Mitera
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
@@ -144,13 +151,6 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -182,19 +182,21 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-complying-with-aspect-ratios-in-tweets/"><u>[New] In 2024, Complying with Aspect Ratios in Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-from-tiktok-to-twitter-a-step-by-step-guide/"><u>[New] In 2024, From TikTok to Twitter A Step-by-Step Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-implementing-cross-browser-compatibility-in-web-development/"><u>[New] In 2024, Implementing Cross-Browser Compatibility in Web Development</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-enhance-your-videos-with-easy-cuts-on-windows-11/"><u>[Updated] 2024 Approved Enhance Your Videos with Easy Cuts on Windows 11</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-unlocking-potential-in-fb-instream-ad-engagement-metrics/"><u>[Updated] 2024 Approved Unlocking Potential in FB Instream Ad Engagement Metrics</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-rebound-creators-range/"><u>2024 Approved Rebound Creators' Range</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/download-the-latest-version-of-gom-player-free-and-compatible-with-windows-10/"><u>Download the Latest Version of GOM Player: FREE & Compatible with Windows 10</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/fusing-frequencies-smoothly-with-logic-pro-x-methods-for-2024/"><u>Fusing Frequencies Smoothly with Logic Pro X Methods for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-facebooks-essential-steps-smoothly-uploading-videos-via-pc-iosandroid/"><u>In 2024, Facebook's Essential Steps Smoothly Uploading Videos via PC, iOS/Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-transitioning-from-standard-to-custom-thumbnails-in-twitter-videos/"><u>In 2024, Transitioning From Standard to Custom Thumbnails in Twitter Videos</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723212038014-microsoft-store-malfunction-heres-how-you-can-fix-it-now/"><u>Microsoft Store Malfunction? Here's How You Can Fix It Now!</u></a></li>
-<li><a href="https://win11.techidaily.com/synapse-stuck-easy-fixes-for-w11w10-users/"><u>Synapse Stuck? Easy Fixes for W11/W10 Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>The Connected World Sharing Twitter Media in WhatsApp Chat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-peak-of-primes-amazons-hot-tweets-and-shows-23-for-2024/"><u>The Peak of Primes Amazon’s Hot Tweets & Shows, '23 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-leveraging-twitters-visual-content-on-snapchat/"><u>[New] 2024 Approved Leveraging Twitter's Visual Content on Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tailoring-twitter-video-thumbnails-a-step-by-step-guide/"><u>[New] 2024 Approved Tailoring Twitter Video Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-silence-problem-twitter-videos-lacking-sounds-for-2024/"><u>[New] Silence Problem Twitter Videos Lacking Sounds for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-get-people-to-subscribe-by-asking-the-right-way/"><u>[Updated] 2024 Approved How to Get People to Subscribe by Asking the Right Way</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-for-free-how-to-convert-twitter-videos-to-gifs-for-2024/"><u>[Updated] For Free! How to Convert Twitter Videos to GIFS for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-a-practical-guide-to-managing-twitter-archives/"><u>[Updated] In 2024, A Practical Guide to Managing Twitter Archives</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-screensavers-supreme-mastering-the-art-of-twitvid-archiving/"><u>[Updated] ScreenSavers Supreme Mastering the Art of TwitVid Archiving</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-smartphone-camera-recording-tools-iphoneandroid-edition/"><u>[Updated] Ultimate Smartphone Camera Recording Tools - iPhone/Android Edition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-keep-a-record-of-your-online-sessions/"><u>2024 Approved Keep a Record of Your Online Sessions</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone 13 Pro</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-jaco-smartpro-digital-tire-inflator-evaluation-the-portable-and-high-performance-option-for-your-wheels/"><u>In-Depth Jaco SmartPro Digital Tire Inflator Evaluation – The Portable & High-Performance Option for Your Wheels</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mobile-media-posting-videos-not-retweets/"><u>Mobile Media Posting Videos, Not Retweets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/revolutionizing-smart-technology-with-abbyy-and-uipath-a-leap-forward-for-robotic-efficiency/"><u>Revolutionizing Smart Technology with ABBYY & UiPath: A Leap Forward for Robotic Efficiency</u></a></li>
+<li><a href="https://fox-place.techidaily.com/secure-your-files-seamlessly-combining-outlook-backup-with-dropbox-for-enhanced-safety/"><u>Secure Your Files Seamlessly: Combining Outlook Backup with Dropbox for Enhanced Safety</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/transform-your-video-collection-converting-vob-files-to-mp4-format-tips-for-windows-10-and-11-users/"><u>Transform Your Video Collection: Converting VOB Files to MP4 Format - Tips for Windows 10 and 11 Users</u></a></li>
 </ul></div>
 
