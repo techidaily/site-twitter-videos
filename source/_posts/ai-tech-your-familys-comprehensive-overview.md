@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-10-23T04:29:37.708Z
-updated: 2024-10-25T06:07:27.242Z
+date: 2024-10-27T08:31:28.623Z
+updated: 2024-10-30T23:31:18.898Z
 tags:
   - chatgpt
   - open-ai
@@ -35,18 +35,18 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which Is the Easiest Large Language Model to Use?
 
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
 
  However, to run LLaMa locally, you will need to have some specialized knowledge or the ability to follow a tutorial. You'll also need a significant amount of storage space.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Which Is the Most Private Large Language Model?
 
@@ -62,16 +62,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which LLM Has the Best General Knowledge?
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In order to test which LLM has the best general knowledge, we asked three questions.
 
@@ -101,13 +101,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
@@ -116,16 +109,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
@@ -138,6 +131,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -162,16 +162,22 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-new-rule-include-aspect-ratio-in-video-posts/"><u>[New] In 2024, Twitter's New Rule Include Aspect Ratio in Video Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] 2024 Approved Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-saturating-screen-with-high-definition-tweets/"><u>[Updated] 2024 Approved Saturating Screen with High-Definition Tweets</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-playlist-extraction-step-by-step-from-youtubes-archive/"><u>[Updated] Playlist Extraction - Step by Step From YouTube's Archive</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-sending-direct-tweets-share-photosvideos-on-twitter-without-retweeting-for-2024/"><u>[Updated] Sending Direct Tweets Share Photos/Videos on Twitter without Retweeting for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-top-10-hilarious-tiktok-skits-unveiled/"><u>2024 Approved Top 10 Hilarious TikTok Skits Unveiled</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-oppo-a38-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Oppo A38? | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/budget-bounty-experience-elite-gadgets-and-apps-on-a-shoestring/"><u>Budget Bounty: Experience Elite Gadgets and Apps on a Shoestring</u></a></li>
-<li><a href="https://program-issues.techidaily.com/grand-theft-auto-v-optimization-fixes-for-performance-issues/"><u>Grand Theft Auto V Optimization - Fixes for Performance Issues</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-download-and-update-nvidia-geforce-980-ti-video-card-drivers/"><u>How to Download & Update NVIDIA GeForce 980 Ti Video Card Drivers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gliding-giants-olympic-skate-tales/"><u>In 2024, Gliding Giants Olympic Skate Tales</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-accelerating-visuals-in-powerpoint-engagement/"><u>[New] Accelerating Visuals in PowerPoint Engagement</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-craftsmanship-hub-top-after-effects-template-deals/"><u>[New] Craftsmanship Hub Top After Effects Template Deals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-turning-twitter-media-into-interactive-expressive-animated-gifs/"><u>[New] In 2024, Turning Twitter Media Into Interactive, Expressive Animated GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-whats-trending-on-tiktok-and-twittersphere/"><u>[New] In 2024, What's Trending on TikTok and Twittersphere</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-definitive-handbook-to-reacting-on-youtube-tweets-for-2024/"><u>[New] The Definitive Handbook to Reacting on YouTube Tweets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-media-sensation-spotlights/"><u>[Updated] In 2024, Social Media Sensation Spotlights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-video-standards-focus-on-aspect-ratios-for-2024/"><u>[Updated] Twitter's Video Standards Focus on Aspect Ratios for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-digital-dive-for-rookies-the-essentials-of-image-fidelity/"><u>2024 Approved Digital Dive for Rookies The Essentials of Image Fidelity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-economical-enhancement-tweets-to-animated-gifs-guide/"><u>2024 Approved Economical Enhancement Tweets to Animated GIFs Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-greatest-20-open-source-copy-free-pubg/"><u>2024 Approved Greatest 20 Open Source, Copy-Free PUBG</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-link-sharing-twitter-writes-on-whatsapp-for-2024/"><u>Direct Link Sharing Twitter' Writes on WhatsApp for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discreetly-share-life-with-instagram-live/"><u>Discreetly Share Life with Instagram Live</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mac-masters-choice-top-10-incredible-4k-displays-for-2024/"><u>Mac Master's Choice Top 10 Incredible 4K Displays for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210800965-9781088106556-making-way-for-the-new/"><u>Making Way For The New | Free Book</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maximizing-tweet-control-15-premier-unfollow-utilities-for-2024/"><u>Maximizing Tweet Control 15 Premier Unfollow Utilities for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/perfect-your-tiktok-presence-mastering-siri-commands-for-video-creation-for-2024/"><u>Perfect Your TikTok Presence - Mastering Siri Commands for Video Creation for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-fixes-for-connection-issues-between-steam-client-and-server/"><u>Resolved: Fixes for Connection Issues Between Steam Client and Server</u></a></li>
 </ul></div>
 
