@@ -1,7 +1,7 @@
 ---
 title: How to Calibrate an iPhone's Battery in 6 Easy Steps
-date: 2024-10-28T00:44:59.279Z
-updated: 2024-10-31T02:32:07.091Z
+date: 2024-11-02T17:28:41.774Z
+updated: 2024-11-05T21:18:56.607Z
 tags:
   - iphone
   - apple
@@ -36,19 +36,6 @@ thumbnail: https://thmb.techidaily.com/72d9cc19f5dd74f14cb9e7915834c6357e497aa75
 
  This will help lead to an accurate reading later in the process. After you've reset the battery, you can re-enable all of these options. It's also worth ensuring you haven't accidentally enabled Low Power Mode by going to**Settings > Battery** .
 
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Disable Location Services
 
 To disable location services on your iPhone, follow these steps:
@@ -61,10 +48,10 @@ To disable location services on your iPhone, follow these steps:
 ![privacy settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/privacy-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![location services settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/location-services-settings.jpg)
@@ -74,13 +61,6 @@ To disable location services on your iPhone, follow these steps:
 Close
 
  Remember, you can [use Location Services to track a lost iPhone](https://www.makeuseof.com/tag/how-to-trace-a-mobile-phone-location-with-google-latitude/) , so make sure you don't forget to re-enable this after you're done calibrating.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Disable Background Refresh
 
@@ -94,6 +74,13 @@ Close
 ![ios app refresh menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-app-refresh-2.png)
 
 ![ios app refresh settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-app-refresh-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -109,13 +96,6 @@ Here's how to lower the screen brightness on an iPhone:
 
 ![ios brightness slider](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 ### Turn Off Automatic App Updates
@@ -127,6 +107,13 @@ Finally, to turn off automatic updates, follow these three steps:
 3. Under**Automatic Downloads** , toggle off**App Updates** .
 
 ![app store settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/app-store-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![app updates off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/app-updates-off.jpg)
 
@@ -143,10 +130,10 @@ Close
  The first step is to completely drain your iPhone's battery. You can do so during normal usage. If you want to speed up the process, you can play a long video on YouTube with the volume turned up to the maximum level.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Wait Three Hours
@@ -154,13 +141,6 @@ Close
  You may have noticed that your iPhone will automatically shut down even if the battery has a small percentage left. This process is by design; it gives the device a chance to save the current state of your apps so you don't lose data.
 
  It's important to let the last embers of the battery life die away. The only way to do this is to wait. The longer you wait, the better, but you should wait at least three hours. If you have time, letting it sit overnight is preferable.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Step 3: Charge Your iPhone
 
@@ -175,15 +155,22 @@ Close
  Now, you need to repeat the whole process a second time. It's the same drill as before: completely drain the power out of your device. Either use it as you normally would or play videos on loop to move it along faster.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 5: Wait Another Three Hours
 
  It's getting repetitive by now but stick with it. Once again, you need to ensure you drain that last bit of battery power from your iPhone. Like before, the longer you can leave it, the better.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 6: Charge Your iPhone Again
 
@@ -194,10 +181,10 @@ Close
 And that's it. Now, your iPhone's battery has been recalibrated.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Enable Optimized Battery Charging After Calibration
@@ -207,6 +194,13 @@ And that's it. Now, your iPhone's battery has been recalibrated.
  The best way to do this is by turning on [Optimized Battery Charging on your iPhone](https://www.makeuseof.com/what-is-optimized-battery-charging/) . When this is on, your iPhone learns from your typical charging routine and won't charge past 80% until you're about to use it.
 
 ![battery settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-settings-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![battery health settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-health-settings-iphone.jpg)
 
@@ -237,24 +231,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2023s-leading-twitvideos-the-years-hottest-tweets-for-2024/"><u>[New] 2023'S Leading TwitVideos The Year's Hottest Tweets for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-comprehensive-review-lg-27ud88-w-oled-4k-hdr-tv/"><u>[New] Comprehensive Review LG 27UD88-W OLED 4K HDR TV</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-tips-for-risk-free-youtube-video-mp4-downloading/"><u>[New] In 2024, Tips for Risk-Free YouTube Video MP4 Downloading</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-premier-5-online-communities-ascending-beyond-twitter-for-2024/"><u>[New] Premier 5 Online Communities Ascending Beyond Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-essentials-2023s-highest-ranked-twitter-content-for-2024/"><u>[New] The Essentials 2023'S Highest-Ranked Twitter Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-takeover-1-10-must-watch-threads-for-2024/"><u>[New] Twitter Takeover #1-#10 Must-Watch Threads for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-effortless-hd-ready-turning-your-fb-videos-into-mp4-instantly/"><u>[Updated] Effortless HD-Ready Turning Your FB Videos Into MP4 Instantly</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-bring-back-the-memories-top-5-ps1-emulation-apps-for-pc/"><u>[Updated] In 2024, Bring Back the Memories - Top 5 PS1 Emulation Apps for PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-seamless-tweet-to-facebook-video-transfers-users/"><u>[Updated] Seamless Tweet-to-Facebook Video Transfers Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unveiling-twitters-historical-content-reservoirs-for-2024/"><u>[Updated] Unveiling Twitter's Historical Content Reservoirs for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweeted-trailblazers-cutting-edge-strategies-to-save-tweets-on-screen/"><u>2024 Approved Tweeted Trailblazers Cutting-Edge Strategies to Save Tweets on Screen</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-beginner-to-expert-with-a-complete-fcp-guidebook-for-2024/"><u>From Beginner to Expert with a Complete FCP Guidebook for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/harnessing-power-on-a-plateau-the-complete-breakdown-of-apples-newest-mini-tech-wonder/"><u>Harnessing Power on a Plateau - The Complete Breakdown of Apple’s Newest Mini Tech Wonder</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-x7b-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor X7b Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-the-best-free-video-editing-tools-for-avi-format/"><u>New The Best Free Video Editing Tools for AVI Format</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-audible-tweets-within-social-media-videos/"><u>Unveiling Audible Tweets Within Social Media Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-watches-amazon-primes-hot-series-in-twittersphere-for-2024/"><u>Viral Watches Amazon Prime's Hot Series in Twittersphere for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-essential-5-platforms-beyond-twitter/"><u>[New] Essential 5 Platforms Beyond Twitter</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discovering-the-ultimate-10-vr-video-experience-on-youtube/"><u>[New] In 2024, Discovering the Ultimate 10-VR Video Experience on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-elite-twitters-shortlist-of-top-tiktok-hits/"><u>[Updated] 2024 Approved The Elite Twitter's Shortlist of Top TikTok Hits</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-step-by-step-guide-to-outstanding-ppt-in-google-meet-iosandroid-for-2024/"><u>[Updated] Step-by-Step Guide to Outstanding PPT in Google Meet (iOS/Android) for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-podcast-writing-tips-and-free-template-samples/"><u>2024 Approved Mastering Podcast Writing Tips & Free Template Samples</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-vids-in-verse-strategies-for-effective-twitter-video-downloads/"><u>2024 Approved Vids in Verse Strategies for Effective Twitter Video Downloads</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beyond-reality-horizon-virtual-progress-and-upcoming-challenges-for-2024/"><u>Beyond Reality Horizon Virtual Progress & Upcoming Challenges for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/for-free-how-to-convert-twitter-videos-to-gifs-for-2024/"><u>For Free! How to Convert Twitter Videos to GIFS for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/high-end-computers-a-showcase-of-excellence/"><u>High-End Computers A Showcase of Excellence</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-samsung-galaxy-xcover-6-pro-tactical-edition-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Samsung Galaxy XCover 6 Pro Tactical Edition Phone Now with These Tips</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/164636-9780743488709-the-psychic-in-you/"><u>The Psychic in You | Free Book</u></a></li>
 </ul></div>
 

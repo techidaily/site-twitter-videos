@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2024-10-23T23:36:33.243Z
-updated: 2024-10-30T20:34:01.498Z
+date: 2024-10-31T02:07:45.444Z
+updated: 2024-11-05T19:50:34.335Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -69,6 +69,13 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
@@ -82,10 +89,10 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
@@ -100,6 +107,13 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -108,14 +122,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
 
@@ -124,19 +138,6 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
-
-<!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -162,23 +163,16 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -219,17 +213,18 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-effective-strategies-for-twitter-marketing/"><u>[New] 2024 Approved Effective Strategies for Twitter Marketing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-channeling-twitter-vids-seamlessly-to-snapchat-for-2024/"><u>[New] Channeling Twitter Vids Seamlessly to Snapchat for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-the-end-to-end-guide-to-picsart/"><u>[New] In 2024, The End-to-End Guide to PicsArt</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-top-methods-for-android-video-capture/"><u>[New] In 2024, Top Methods for Android Video Capture</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/op-8-linux-compatible-cutting-apps-for-2024/"><u>[New] Top 8 Linux-Compatible Cutting Apps for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-guide-posting-tiktok-videos/"><u>[New] Twitter's Guide Posting TikTok Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-screen-spectaculum-hitting-720p-with-twitter-vids-for-2024/"><u>[Updated] Screen Spectaculum Hitting 720P with Twitter Vids for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-simple-process-for-preserving-tweets-imagesvideos/"><u>[Updated] Simple Process for Preserving Tweets' Images/Videos</u></a></li>
-<li><a href="https://article-files.techidaily.com/becoming-an-illustration-maestro-best-mac-free-tools/"><u>Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-google-pixel-8-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Google Pixel 8.</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-13-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 13 Pro without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/top-20-convertidores-de-videos-sin-coste-optimizados-para-windows-10-8-y-7/"><u>Top 20 Convertidores De Videos Sin Coste: Optimizados Para Windows 10, 8 Y 7</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-from-beginner-to-expert-the-ultimate-guide-to-hp-screen-recording/"><u>[New] 2024 Approved From Beginner to Expert The Ultimate Guide to HP Screen Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-your-life-your-legacy-youtube-videos-that-matter/"><u>[New] Your Life, Your Legacy YouTube Videos That Matter</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-boosting-video-quality-in-zoom-with-advanced-effects-for-2024/"><u>[Updated] Boosting Video Quality in Zoom With Advanced Effects for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-social-stage-this-years-viral-video-vanguards-on-twitter/"><u>[Updated] In 2024, The Social Stage This Year's Viral Video Vanguards on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-snappytweet-get-your-digital-snapshots-on-iphone/"><u>[Updated] SnappyTweet Get Your Digital Snapshots on iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-connecting-twitter-videos-with-facebook-friends/"><u>2024 Approved Connecting Twitter Videos with Facebook Friends</u></a></li>
+<li><a href="https://win-blog.techidaily.com/effective-solutions-when-persona-3-fes-wont-start-up/"><u>Effective Solutions When Persona 3: FES Won't Start Up</u></a></li>
+<li><a href="https://common-error.techidaily.com/effortless-methods-to-overcome-the-windows-update-paused-at-0-hurdle/"><u>Effortless Methods to Overcome the Windows Update Paused at 0% Hurdle</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-laugh-ledger-top-10-tweets-for-a-smile/"><u>In 2024, Laugh Ledger Top 10 Tweets for a Smile</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-video-transit-route-tweeting-to-tumbling/"><u>In 2024, Video Transit Route Tweeting to Tumbling</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/posting-tweets-with-vids-check-the-aspect-ratio-for-2024/"><u>Posting Tweets with Vids? Check the Aspect Ratio for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/the-never-ending-journey-continuous-victory-for-the-black-survival-storyline/"><u>The Never-Ending Journey: Continuous Victory for the Black Survival Storyline</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-honor-play-40c-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Honor Play 40C Device</u></a></li>
 </ul></div>
 

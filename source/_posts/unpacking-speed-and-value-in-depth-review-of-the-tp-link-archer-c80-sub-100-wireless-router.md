@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-10-29T01:37:00.789Z
-updated: 2024-10-31T06:42:41.023Z
+date: 2024-11-03T19:11:01.419Z
+updated: 2024-11-05T21:01:59.069Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -36,6 +36,13 @@ Lifewire / Todd Braylor
 
 4.2
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/P9a50_oB4MstZx5zB9lbu2dMq68=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
@@ -66,21 +73,7 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Design: Low-profile, comfortable, and intuitive**
 
@@ -96,13 +89,6 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
 
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
@@ -110,19 +96,6 @@ Lifewire / Todd Braylor
  The Fitbit Inspire HR is simple to set up. You’ll need to connect it to the Fitbit app, which is available on both iOS and Android platforms, and the pairing process is very straightforward.
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
 
@@ -146,6 +119,13 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Battery: Maximum capacity designed for 24/7 wear**
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience. You can wear the Inspire HR for several days of activity on end.
@@ -154,6 +134,19 @@ Lifewire / Todd Braylor
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Software Features: Limited to the Fitbit wellness model**
 
  The Inspire HR delivers all the key features that Fitbit has built its brand name around, but beyond the exercise apps, the software capabilities of the model are limited. One of the only extra features it has is the ability to show you call and text notifications when in Bluetooth range of your smartphone.
@@ -161,6 +154,13 @@ Lifewire / Todd Braylor
  This fitness tracker is centered around displaying Fitbit's core stats and exercise apps in combination with its heart rate functions. Integration with the Fitbit app is the best way to review your metrics in expanded categories, such as how many days out of the week you have elevated your heart rate enough for the Fitbit to log an exercise session (Fitbit refers to this as “active minutes”).
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A host of insights at a good price**
 
@@ -181,10 +181,10 @@ Lifewire / Todd Braylor
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -222,19 +222,15 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-amazons-premier-titles-social-media-sensation-winners/"><u>[New] In 2024, Amazon’s Premier Titles Social Media Sensation Winners</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-capturing-charm-sage-advice-on-editing-digital-art/"><u>[Updated] 2024 Approved Capturing Charm Sage Advice on Editing Digital Art</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-from-laughter-to-devices-downloading-twitters-animated-fun/"><u>[Updated] 2024 Approved From Laughter to Devices Downloading Twitter's Animated Fun</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unpacking-twitter-video-sharing-the-whatsapp-connection/"><u>[Updated] 2024 Approved Unpacking Twitter Video Sharing The WhatsApp Connection</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-uploading-videos-compliance-for-2024/"><u>[Updated] Mastering Twitter Uploading Videos Compliance for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-channel-finale-strategy-plus-best-templates-and-makers-for-2024/"><u>[Updated] The Ultimate Channel Finale Strategy + Best Templates & Makers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-easy-technique-storing-tweet-videos-and-images-on-cellphone/"><u>2024 Approved Easy Technique Storing Tweet Videos and Images on Cellphone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-enabling-hearing-in-twitter-video-links/"><u>2024 Approved Enabling Hearing in Twitter Video Links</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unleash-creativity-with-iphone-burst-photography/"><u>2024 Approved Unleash Creativity with iPhone Burst Photography</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-guide-to-canon-mx-series-printer-driver-updates-and-installation-on-your-pc-download-now/"><u>Easy Guide to Canon MX Series Printer Driver Updates & Installation on Your PC - Download Now!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Nokia C210 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-zany-zoomers-unleashing-the-hottest-tiktok-games/"><u>In 2024, Zany Zoomers Unleashing the Hottest TikTok Games</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-rewind-and-play-the-quintet-of-best-opposite-direction-melodies-for-2024/"><u>New Rewind and Play The Quintet of Best Opposite-Direction Melodies for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshoot-and-restore-sound-on-netflix-in-minutes/"><u>Troubleshoot & Restore Sound on Netflix in Minutes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-encompass-entire-webpage-in-view/"><u>[New] In 2024, Encompass Entire Webpage in View</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitch-out-streaming-twitters-hd-visuals-seamlessly/"><u>[New] In 2024, Twitch Out Streaming Twitter's HD Visuals Seamlessly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-chatter-on-the-hottest-tiktoks/"><u>[New] Twitter Chatter on the Hottest TikToks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-crafting-seamless-transitions-the-art-of-canon-time-lapses/"><u>[Updated] 2024 Approved Crafting Seamless Transitions The Art of Canon Time-Lapses</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-how-to-share-twitter-videos-on-whatsapp/"><u>[Updated] 2024 Approved How to Share Twitter Videos on WhatsApp?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-zero-to-hero-on-twitter-live-for-2024/"><u>From Zero to Hero on Twitter Live for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-sound-strategy-selecting-perfect-dj-visuals/"><u>In 2024, Sound Strategy Selecting Perfect DJ Visuals</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-early-access-the-ultimate-guide-to-scoring-a-new-pixel-watch-and-saving-big-according-to-zdnet-experts/"><u>Mastering Early Access: The Ultimate Guide to Scoring a New Pixel Watch and Saving Big, According to ZDNET Experts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-realme-11-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Realme 11 Pro? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-crafting-compelling-lower-thirds-fcpx-essentials/"><u>Updated Crafting Compelling Lower Thirds FCPX Essentials</u></a></li>
 </ul></div>
 

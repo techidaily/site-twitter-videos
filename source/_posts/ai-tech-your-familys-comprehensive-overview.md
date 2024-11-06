@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-10-27T08:31:28.623Z
-updated: 2024-10-30T23:31:18.898Z
+date: 2024-11-03T18:21:26.657Z
+updated: 2024-11-05T20:16:06.217Z
 tags:
   - chatgpt
   - open-ai
@@ -36,10 +36,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Is the Easiest Large Language Model to Use?
@@ -63,15 +63,28 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which LLM Has the Best General Knowledge?
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In order to test which LLM has the best general knowledge, we asked three questions.
 
@@ -105,16 +118,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Python is a useful programming language](https://www.makeuseof.com/what-is-python-used-for/) that runs on most modern platforms. We instructed our models to use Python and "Build a basic calculator program that can perform arithmetic operations like addition, subtraction, multiplication, and division. It should take user input and display the result." This is one of the[best programming projects for beginners](https://www.makeuseof.com/tag/beginner-programming-projects/) .
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Which LLM Tells the Best Jokes?
 
@@ -131,13 +144,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -162,22 +168,14 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-accelerating-visuals-in-powerpoint-engagement/"><u>[New] Accelerating Visuals in PowerPoint Engagement</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-craftsmanship-hub-top-after-effects-template-deals/"><u>[New] Craftsmanship Hub Top After Effects Template Deals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-turning-twitter-media-into-interactive-expressive-animated-gifs/"><u>[New] In 2024, Turning Twitter Media Into Interactive, Expressive Animated GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-whats-trending-on-tiktok-and-twittersphere/"><u>[New] In 2024, What's Trending on TikTok and Twittersphere</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-definitive-handbook-to-reacting-on-youtube-tweets-for-2024/"><u>[New] The Definitive Handbook to Reacting on YouTube Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-media-sensation-spotlights/"><u>[Updated] In 2024, Social Media Sensation Spotlights</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-video-standards-focus-on-aspect-ratios-for-2024/"><u>[Updated] Twitter's Video Standards Focus on Aspect Ratios for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-digital-dive-for-rookies-the-essentials-of-image-fidelity/"><u>2024 Approved Digital Dive for Rookies The Essentials of Image Fidelity</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-economical-enhancement-tweets-to-animated-gifs-guide/"><u>2024 Approved Economical Enhancement Tweets to Animated GIFs Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-greatest-20-open-source-copy-free-pubg/"><u>2024 Approved Greatest 20 Open Source, Copy-Free PUBG</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-link-sharing-twitter-writes-on-whatsapp-for-2024/"><u>Direct Link Sharing Twitter' Writes on WhatsApp for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/discreetly-share-life-with-instagram-live/"><u>Discreetly Share Life with Instagram Live</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mac-masters-choice-top-10-incredible-4k-displays-for-2024/"><u>Mac Master's Choice Top 10 Incredible 4K Displays for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210800965-9781088106556-making-way-for-the-new/"><u>Making Way For The New | Free Book</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maximizing-tweet-control-15-premier-unfollow-utilities-for-2024/"><u>Maximizing Tweet Control 15 Premier Unfollow Utilities for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/perfect-your-tiktok-presence-mastering-siri-commands-for-video-creation-for-2024/"><u>Perfect Your TikTok Presence - Mastering Siri Commands for Video Creation for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-fixes-for-connection-issues-between-steam-client-and-server/"><u>Resolved: Fixes for Connection Issues Between Steam Client and Server</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-pros-guide-to-uploading-twitter-videos-to-snapchat-for-2024/"><u>[New] The Pro's Guide to Uploading Twitter Videos to Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-visionarys-handbook-for-twit-reaction-videos-for-2024/"><u>[New] The Visionary's Handbook for Twit-Reaction Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-champions-tech-the-ultimate-gaming-toolkit/"><u>[Updated] In 2024, Champion's Tech The Ultimate Gaming Toolkit</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-scoop-twitters-trending-talks/"><u>[Updated] In 2024, Social Scoop Twitter’s Trending Talks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-capturing-the-spirit-2023s-most-shared-tweets/"><u>2024 Approved Capturing the Spirit 2023'S Most Shared Tweets</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-total-exploration-the-dji-phantom-4-experience-reviewed/"><u>2024 Approved Total Exploration The DJI Phantom 4 Experience Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-cut-the-redundancy-a-step-by-step-to-adding-times-in-your-videos/"><u>In 2024, Cut the Redundancy A Step-by-Step to Adding Times in Your Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/siri-elevated-by-artificial-intelligence-unveiling-apples-home-screen-comprehension-breakthrough-analysis/"><u>Siri Elevated by Artificial Intelligence: Unveiling Apple's Home Screen Comprehension Breakthrough | Analysis</u></a></li>
 </ul></div>
 
