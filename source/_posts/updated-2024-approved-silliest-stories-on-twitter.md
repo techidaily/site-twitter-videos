@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Silliest Stories on Twitter\""
-date: 2024-11-05T01:03:10.327Z
-updated: 2024-11-05T22:11:32.540Z
+date: 2024-11-10T17:50:43.728Z
+updated: 2024-11-15T23:37:45.288Z
 tags:
   - ai video
   - ai twitter
@@ -35,6 +35,13 @@ It's no secret that comedy is a great way to connect with customers, and this is
 
 Because Twitter isn't only a platform for following celebrities, exchanging recommendations, and debating politics. It's also still home to some of the internet's funniest voices. Several literature-themed feeds will make you laugh out loud in a matter of seconds. The following are 10 of the finest.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Earnest Pigeonway (@CentralSqPigeon)
 
 Is Central Sq. Pigeon the internet's most popular parody Twitter account? Certainly not... yet it's one of Greater Boston's funniest Twitter accounts.
@@ -50,6 +57,13 @@ Because The Onion is the undisputed king of sarcasm and spoofs, it's no wonder t
 Most sports-related Twitter accounts fluctuate in terms of frequency and quality or need extensive knowledge of the club or individual in question. However, @OnionSports covers a wide range of topics, ridiculing both die-hard fans and major sporting events, making it the go-to sports parody account to follow, particularly as the Super Bowl approaches:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. @BoredElonMusk — Elon Musk is bored
 
@@ -85,13 +99,6 @@ This emphasis on the conventional serves as the ideal launch for Twitter parody,
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Sarcastic Rover's Twitter handle is @SarcasticRover
 
 This isn't only a must-read for every space enthusiast. Even if it begins with a nice, phony Twitter name inspired by the actual Mars rover, Curiosity, it's funny online fodder for anybody who pushes for a more science-literate community.
@@ -107,6 +114,13 @@ At Hogwarts and on Twitter, the Dark Lord He Who Shall Not Be Named (of Harry Po
 Sure, certain jokes need a Harry Potter fan to comprehend (Snape allusions abound), but many of the tweets are amusing even if you have just a passing familiarity of J.K. Rowling's novels and films (particularly after a few swigs of butterbeer):
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. Netflix Is a Joke (@NetflixIsAJoke)
 
@@ -174,13 +188,6 @@ Hawkins, the fictitious town in Indiana where "Stranger Things" is based, has be
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Darth Vader Self-Portrait @DarthVader
 
 This person seems more like a passive-aggressive actor than the Lord of the Sith, dubbed as "Evil Orphan Ani" (Anakin coincidentally being Vader's true name). It's also rather amusing.
@@ -199,6 +206,13 @@ This emphasis on the conventional serves as the ideal launch for Twitter parody,
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Sarcastic Rover's Twitter handle is @SarcasticRover
 
 This isn't only a must-read for every space enthusiast. Even if it begins with a nice, phony Twitter name inspired by the actual Mars rover, Curiosity, it's funny online fodder for anybody who pushes for a more science-literate community.
@@ -206,13 +220,6 @@ This isn't only a must-read for every space enthusiast. Even if it begins with a
 The tenacious space robot may or may not provide you with all the information about Mars, but it has the seal of approval from several space authorities: Bill Nye, SpaceX, and Space.com are all Twitter followers! At your leisure, savor its otherworldly innocence as shown here:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-7.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. @Lord Voldemort
 
@@ -231,6 +238,13 @@ This is a legitimate Netflix sister account devoted to the stand-up specials and
 It connects with the comedians we all adore in between the important new-show announcements, ensuring that no subscriber's chin is raised too high for their weekend plans:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Chuck Norris' Twitter handle is @ChuckFacts1
 
@@ -256,13 +270,6 @@ It's no secret that comedy is a great way to connect with customers, and this is
 
 Because Twitter isn't only a platform for following celebrities, exchanging recommendations, and debating politics. It's also still home to some of the internet's funniest voices. Several literature-themed feeds will make you laugh out loud in a matter of seconds. The following are 10 of the finest.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Earnest Pigeonway (@CentralSqPigeon)
 
 Is Central Sq. Pigeon the internet's most popular parody Twitter account? Certainly not... yet it's one of Greater Boston's funniest Twitter accounts.
@@ -270,13 +277,6 @@ Is Central Sq. Pigeon the internet's most popular parody Twitter account? Certai
 Many people have heard of common squirrel, a satirical description of a mid-sized rodent's everyday routine. I'd rather have Central Sq. Pigeon, formerly known as Earnest Pigeonway, than an ordinary squirrel any day. It helps that Central Sq. Pigeon is led by HubSpot designer Tyler Littwin, but the breathtaking insight into the inner workings of a city pigeon navigating the big bad world of Cambridge, Mass., wins the day in our opinion. Here's a birds-eye perspective (pardon the pun) of what you may anticipate if you decide to follow him:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Onion Sports Network (@OnionSports)
 
@@ -293,6 +293,13 @@ Elon Musk's exploits as a businessman and marketer have been extensively chronic
 For its drawings, humorous asides, and continuous commentary on all of Silicon Valley's most overused terms, this ridiculous account is well worth a follow:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. @SunnyinHawkins — Hawkins is always sunny
 
@@ -302,13 +309,6 @@ Hawkins, the fictitious town in Indiana where "Stranger Things" is based, has be
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Darth Vader Self-Portrait @DarthVader
 
 This person seems more like a passive-aggressive actor than the Lord of the Sith, dubbed as "Evil Orphan Ani" (Anakin coincidentally being Vader's true name). It's also rather amusing.
@@ -335,6 +335,13 @@ The tenacious space robot may or may not provide you with all the information ab
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. @Lord Voldemort
 
 At Hogwarts and on Twitter, the Dark Lord He Who Shall Not Be Named (of Harry Potter fame) is a force to be reckoned with. Thanks to its hilarious banter, the Dark Lord account has gained over 2.2 million followers. Quidditch jokes at the Super Bowl and Justin Bieber's remarks below are two gems.
@@ -342,13 +349,6 @@ At Hogwarts and on Twitter, the Dark Lord He Who Shall Not Be Named (of Harry Po
 Sure, certain jokes need a Harry Potter fan to comprehend (Snape allusions abound), but many of the tweets are amusing even if you have just a passing familiarity of J.K. Rowling's novels and films (particularly after a few swigs of butterbeer):
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Netflix Is a Joke (@NetflixIsAJoke)
 
@@ -400,6 +400,13 @@ Most sports-related Twitter accounts fluctuate in terms of frequency and quality
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. @BoredElonMusk — Elon Musk is bored
 
 Elon Musk's exploits as a businessman and marketer have been extensively chronicled. The PayPal veteran and Tesla CEO are renowned for their crazy press briefings, creative ideas, and dynamic relationship with reality. Musk is long on vision and short on patience, which makes him an excellent candidate for a spoof Twitter account. From unveiling a high-speed Hyperloop between San Francisco and Los Angeles to a series of high-profile skirmishes with journalists, Musk is long on vision and short on patience.
@@ -407,13 +414,6 @@ Elon Musk's exploits as a businessman and marketer have been extensively chronic
 For its drawings, humorous asides, and continuous commentary on all of Silicon Valley's most overused terms, this ridiculous account is well worth a follow:
 
 ![funniest videos](https://images.wondershare.com/filmora/article-images/2022/02/top-10-funniest-videos-on-twitter-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. @SunnyinHawkins — Hawkins is always sunny
 
@@ -502,24 +502,18 @@ Any social media marketer has to understand how the Twitter algorithm works and 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-enhancing-engagement-share-tiktoks-on-twitter-for-2024/"><u>[New] Enhancing Engagement Share TikToks on Twitter for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-joining-the-party-your-guide-to-tiktok-livestreams/"><u>[New] In 2024, Joining the Party Your Guide to TikTok Livestreams</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-videos-at-full-hd-your-watchful-pathway/"><u>[New] In 2024, Twitter Videos at Full HD - Your Watchful Pathway</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-leveraging-hashtags-in-twitter-advertising/"><u>[New] Leveraging Hashtags in Twitter Advertising</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-taking-twitter-videos-from-regular-to-high-definition/"><u>[New] Taking Twitter Videos From Regular to High-Definition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-hilarity-host-the-10-funniest-twitter-challenges/"><u>[Updated] Hilarity Host The 10 Funniest Twitter Challenges</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-peeking-behind-the-scenes-deciphering-youtubes-unlisted-content/"><u>[Updated] Peeking Behind the Scenes Deciphering YouTube's Unlisted Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-marketing-101-step-by-step-guide/"><u>[Updated] Twitter Marketing 101 Step-by-Step Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitters-video-guidelines-and-step-by-step-uploading-guide-for-2024/"><u>[Updated] Twitter's Video Guidelines & Step-by-Step Uploading Guide for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-unlock-seamless-video-conversion-youtube-to-dailymotion/"><u>[Updated] Unlock Seamless Video Conversion YouTube to Dailymotion</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitter-takeover-1-10-must-watch-threads/"><u>2024 Approved Twitter Takeover #1-#10 Must-Watch Threads</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exemplary-brain-challenge-video-libraries/"><u>In 2024, Exemplary Brain Challenge Video Libraries</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-guide-youtube-mp3-converters-ranked/"><u>In 2024, The Ultimate Guide YouTube Mp3 Converters Ranked</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-oppo-find-x6-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Oppo Find X6 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/speed-essentials-discovering-the-necessary-processor-rates-for-your-pc/"><u>Speed Essentials: Discovering the Necessary Processor Rates for Your PC</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/synchronizing-tracks-through-effective-crossfading-for-2024/"><u>Synchronizing Tracks Through Effective Crossfading for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1628716-9781444129724-take-control-with-astrology-teach-yourself/"><u>Take Control With Astrology: Teach Yourself | Free Book</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-comedy-cache-twitters-best-jokes-for-2024/"><u>The Comedy Cache Twitter’s Best Jokes for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-echo-emporium-a-selection-of-top-sites-for-skype-audio-for-2024/"><u>[New] Echo Emporium A Selection of Top Sites for Skype Audio for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-transitioning-from-standard-to-custom-thumbnails-in-twitter-videos/"><u>[New] In 2024, Transitioning From Standard to Custom Thumbnails in Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-quick-guide-to-twitter-videos-meet-aspect-ratio-criteria-for-2024/"><u>[New] Quick Guide to Twitter Videos Meet Aspect Ratio Criteria for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-pc-guide-extract-twitters-funny-images/"><u>[Updated] 2024 Approved PC Guide Extract Twitter's Funny Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-emoticon-experts-guide-to-capturing-and-preserving-twitters-gif-images/"><u>[Updated] 2024 Approved The Emoticon Expert’s Guide to Capturing and Preserving Twitter's GIF Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-ultimate-list-of-tiktok-phenomena-on-twitter/"><u>[Updated] 2024 Approved The Ultimate List of TikTok Phenomena on Twitter</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-science-fiction-to-reality-uncovering-the-dates-that-marked-artificial-intelligences-birth/"><u>From Science Fiction to Reality: Uncovering the Dates That Marked Artificial Intelligence's Birth</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-snapchat-to-social-upload-videos-on-twit-for-2024/"><u>From Snapchat to Social Upload Videos on Twit for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-windows-8-avi-editor-a-simple-way-to-edit-and-enhance-videos/"><u>New Windows 8 AVI Editor A Simple Way to Edit and Enhance Videos</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-surface-book-drivers-installation-guide-and-tips/"><u>Seamless Surface Book Drivers Installation Guide & Tips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rich-streamers-of-the-world-for-2024/"><u>Superrich Streamers of the World for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-ultimate-selection-top-10-vimeo-download-tools-unveiled-for-2024/"><u>The Ultimate Selection Top 10 Vimeo Download Tools Unveiled for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-vivo-y55s-5g-2023-by-drfone-android/"><u>Three Ways to Sim Unlock Vivo Y55s 5G (2023)</u></a></li>
 </ul></div>
 
