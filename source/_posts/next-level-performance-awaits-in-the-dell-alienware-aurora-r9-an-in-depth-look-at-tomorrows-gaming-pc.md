@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-11-09T03:41:14.079Z
-updated: 2024-11-16T00:19:12.100Z
+date: 2024-11-21T17:46:41.996Z
+updated: 2024-11-25T18:07:53.263Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -41,6 +41,10 @@ Lifewire / Emily Isaacs
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
@@ -67,10 +71,7 @@ Lifewire / Emily Isaacs
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Cleaner than the rest**
@@ -78,13 +79,6 @@ Lifewire / Emily Isaacs
  Ergonomic keyboards are designed to encourage natural, neutral movements that put less strain on wrists and shoulders,[preventing repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) over time. This is especially important for people who spend large portions of their day in a home or office setting tethered to their computer.
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -96,19 +90,6 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -116,6 +97,10 @@ Lifewire / Emily Isaacs
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/NycF2nKeSim8iDJ0Yp1gejyIigI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_03-49fdaa8e182941e184cadafc14281a1e.jpg)
 
  Lifewire / Emily Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Features: Multimedia hotkeys for ease of use**
 
@@ -131,13 +116,6 @@ Lifewire / Emily Isaacs
 
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
 
  The Fellowes keyboard faces stiff competition from other companies, notably Microsoft, which has been in the computer game for decades. Here, the Microsoft Sculpt Ergonomic Keyboard is the main competition. Generally retailing for around $80, nearly double the price of the Fellowes, the Sculpt follows a unique design akin to that of a manta ray. The two halves of the keyboard swoop upward, rising toward the middle, but not quite meeting thanks to an unfilled space between them. It looks strange, but it’s quite comfortable, especially thanks to its fabric wrist pad for extra comfort.
@@ -145,6 +123,10 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -161,6 +143,10 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,17 +175,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-video-upload-insights-aspect-ratio-for-twitters-platform/"><u>[New] 2024 Approved Video Upload Insights Aspect Ratio for Twitter's Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tiktoks-viral-video-wave-twitters-top-10-rankings/"><u>[New] In 2024, TikTok's Viral Video Wave Twitter's Top 10 Rankings</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-macos-slideshow-creator-unite-images-and-videos/"><u>[New] MacOS SlideShow Creator Unite Images & Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweetvidtowebm-easy-streaming-tools/"><u>[New] TweetVidToWebM Easy Streaming Tools</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-art-of-visual-anonymity-in-videos-for-2024/"><u>[Updated] The Art of Visual Anonymity in Videos for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-samsung-galaxy-xcover-7-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Samsung Galaxy XCover 7? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/budgeting-outlay-the-expense-of-rendering-songs-visually/"><u>Budgeting Outlay The Expense of Rendering Songs Visually</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/directly-delivering-tiktok-videos-to-twitters-feed/"><u>Directly Delivering TikTok Videos to Twitter's Feed</u></a></li>
-<li><a href="https://games-able.techidaily.com/gaming-mastery-with-steam-heres-how-top-9-advantages-to-know/"><u>Gaming Mastery with Steam (Here's How): Top 9 Advantages to Know</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-trainers-guide-to-shiny-mastery-in-scv-76/"><u>The Trainer’s Guide to Shiny Mastery in SCV (76)</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/top-25-capture-apps-for-your-windows-10-device-for-2024/"><u>Top 25 Capture Apps for Your Windows 10 Device for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/turning-twitter-media-into-interactive-expressive-animated-gifs-for-2024/"><u>Turning Twitter Media Into Interactive, Expressive Animated GIFs for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-wit-wave-twitters-funniest-content/"><u>[New] 2024 Approved Wit Wave Twitter's Funniest Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-efficient-iphoneandroid-guide-for-tweets-as-visuals-for-2024/"><u>[New] Efficient iPhone/Android Guide for Tweets as Visuals for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-review-videovision-pro-suite-the-new-frontier/"><u>[New] In-Depth Review VideoVision Pro Suite - The New Frontier</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrated-upload-sending-vids-to-twitter-and-tumblr/"><u>[Updated] 2024 Approved Integrated Upload Sending Vids to Twitter and Tumblr</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-best-twitter-tools-for-purifying-and-personalizing-your-timeline/"><u>[Updated] Best Twitter Tools for Purifying & Personalizing Your Timeline</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-engrossing-12-pc-clicker-games-that-keep-you-hooked/"><u>[Updated] In 2024, Engrossing 12 PC Clicker Games That Keep You Hooked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-integrating-whatsapp-into-your-twitter-video-sharing-routine/"><u>[Updated] In 2024, Integrating WhatsApp Into Your Twitter Video Sharing Routine</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-optimizing-performance-best-practices-for-fast-loading-times/"><u>[Updated] Optimizing Performance Best Practices for Fast Loading Times</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/1-four-effective-methods-to-restore-the-picasa-folder-in-windows-11/"><u>1. Four Effective Methods to Restore the Picasa Folder in Windows 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-how-to-share-videos-on-twitter-on-your-phone-without-retweeting/"><u>2024 Approved How to Share Videos on Twitter on Your Phone Without Retweeting?</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/boosting-your-holiday-promotions-11-essential-strategies-with-massmail/"><u>Boosting Your Holiday Promotions: 11 Essential Strategies with MassMail</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dealing-with-water-damage-indicators-a-guide-to-removing-liquid-alerts-from-iphones/"><u>Dealing with Water Damage Indicators: A Guide to Removing Liquid Alerts From iPhones</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-online-converter-transform-ts-files-into-mov-format/"><u>Free Online Converter: Transform .TS Files Into MOV Format</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-essential-tiktok-to-twitter-sharing/"><u>In 2024, The Essential TikTok to Twitter Sharing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/step-by-step-guide-successfully-exiting-safe-mode-in-windows-11/"><u>Step-by-Step Guide: Successfully Exiting Safe Mode in Windows 11</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tropico-6-review-commanding-power-on-a-dreamy-island-nation/"><u>Tropico 6 Review - Commanding Power on a Dreamy Island Nation</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/unlocking-greater-user-engagement-through-cookiebot-integration/"><u>Unlocking Greater User Engagement Through Cookiebot Integration</u></a></li>
 </ul></div>
 

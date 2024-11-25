@@ -1,7 +1,7 @@
 ---
 title: Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth
-date: 2024-11-09T00:02:25.910Z
-updated: 2024-11-16T06:16:01.404Z
+date: 2024-11-19T16:15:00.047Z
+updated: 2024-11-25T16:59:09.094Z
 tags:
   - desktop
 categories:
@@ -49,6 +49,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -72,22 +76,19 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mend-error-non-playing-vids-in-chrome/"><u>[Updated] In 2024, Mend Error Non-Playing Vids in Chrome</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-bypass-issue-twitter-video-on-chrome-freeze/"><u>2024 Approved Bypass Issue Twitter Video on Chrome Freeze</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/compre-cooked-tweets-the-complete-tweet-vids-guide/"><u>Compre Cooked Tweets The Complete Tweet Vids Guide</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/exploring-free-screen-capture-software-bandicam-vs-camtasia/"><u>Exploring Free Screen Capture Software Bandicam Vs. Camtasia</u></a></li>
-<li><a href="https://techidaily.com/guide-to-activating-and-using-your-iphones-hotspot-feature-as-a-wi-fi-router/"><u>Guide to Activating and Using Your iPhone's Hotspot Feature as a Wi-Fi Router</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-remove-apple-iphone-xs-max-sim-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone XS Max SIM Lock?</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-from-apple-iphone-12-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID From Apple iPhone 12 Making It Possible</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-dangers-with-fraudgpt-proactive-measures-for-online-safety/"><u>Navigating Dangers with FraudGPT: Proactive Measures for Online Safety</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/redefining-your-twitter-vibe-with-dynamic-video-thumbnails-for-2024/"><u>Redefining Your Twitter Vibe with Dynamic Video Thumbnails for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722972142366-seamless-update-of-asus-vg248qe-drivers-get-them-installed-on-windows-today/"><u>Seamless Update of Asus VG248QE Drivers: Get Them Installed on Windows Today!</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-enhancing-speed-for-vimeo-playback/"><u>[New] Enhancing Speed for Vimeo Playback</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-social-networks-to-personal-messages-twitchs-journey-through-whatsapp-for-2024/"><u>[New] From Social Networks to Personal Messages Twitch's Journey Through WhatsApp for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-premier-alternatives-exceeding-the-limits-of-twitter/"><u>[New] In 2024, Premier Alternatives Exceeding the Limits of Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-meme-titans-reddit-and-twitters-biggest-sensations/"><u>[Updated] 2024 Approved The Meme Titans Reddit & Twitter's Biggest Sensations</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-exclusive-selection-of-fastest-screen-capture-apps/"><u>[Updated] In 2024, Exclusive Selection of Fastest Screen Capture Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigating-new-user-registration-on-twitter/"><u>2024 Approved Navigating New User Registration on Twitter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-viral-victory-top-10-triumphant-tiktok-struggles/"><u>2024 Approved Viral Victory Top 10 Triumphant TikTok Struggles</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721266325059-get-your-stellar-iphone-eraser-now/"><u>Get Your Stellar iPhone Eraser Now!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-create-a-new-twitter-account-for-2024/"><u>How to Create a New Twitter Account for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/immediate-suppression-of-windows-11-notifications/"><u>Immediate Suppression of Windows 11 Notifications</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-essential-steps-for-saving-tweets-visuals-in-android-app/"><u>In 2024, Essential Steps for Saving Tweets' Visuals in Android App</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/revolutionizing-recruitment-the-impact-of-ai-on-human-resources/"><u>Revolutionizing Recruitment: The Impact of AI on Human Resources</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/smart-techniques-to-elevate-your-youtube-summaries/"><u>Smart Techniques to Elevate Your Youtube Summaries</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

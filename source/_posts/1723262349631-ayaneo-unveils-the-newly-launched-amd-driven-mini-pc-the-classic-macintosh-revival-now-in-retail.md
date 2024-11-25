@@ -1,7 +1,7 @@
 ---
 title: "Ayaneo Unveils the Newly Launched AMD-Driven Mini PC: The Classic Macintosh Revival - Now in Retail!"
-date: 2024-11-13T00:06:52.248Z
-updated: 2024-11-16T04:22:59.977Z
+date: 2024-11-18T17:48:28.661Z
+updated: 2024-11-25T16:45:38.416Z
 tags:
   - desktop
 categories:
@@ -49,6 +49,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -72,29 +76,21 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-change-twitter-video-box-art/"><u>[New] 2024 Approved Change Twitter Video Box Art</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat-for-2024/"><u>[New] Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-resolve-chromes-video-playback-woes-for-2024/"><u>[New] Resolve Chrome's Video Playback Woes for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-revolutionize-your-social-media-strategy-essential-instagram-analytics-platforms/"><u>[New] Revolutionize Your Social Media Strategy Essential Instagram Analytics Platforms</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-boosting-collaboration-mastery-of-zoom-capabilities-in-win10/"><u>[Updated] Boosting Collaboration Mastery of Zoom Capabilities in Win10</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-role-of-cdn-in-reducing-web-page-load-times-for-2024/"><u>[Updated] The Role of CDN in Reducing Web Page Load Times for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-rank-your-videos-right-top-tools-uncovered-for-youtube-success/"><u>2024 Approved Rank Your Videos Right - Top Tools Uncovered for YouTube Success</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/capturing-your-macbook-pro-screens-a-step-by-step-tutorial/"><u>Capturing Your MacBook Pro Screens A Step-by-Step Tutorial</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/framed-to-impress-your-guide-to-tweets-in-high-definition/"><u>Framed to Impress Your Guide to Tweets in High Definition</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo X100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-itel-a60-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Itel A60 Phone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-enhancing-tweets-adding-media-files/"><u>In 2024, Enhancing Tweets Adding Media Files</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-oppo-reno-9a-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Oppo Reno 9A Lock Screen Password</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-iphone-footage-quick-trimming-sizing-hacks/"><u>In 2024, Perfecting iPhone Footage Quick Trimming, Sizing Hacks</u></a></li>
-<li><a href="https://games-able.techidaily.com/screen-selection-saga-best-out-of-oled-amoled-and-lcd-displays/"><u>Screen Selection Saga: Best Out of OLED, AMOLED & LCD Displays</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-essentials-2023s-highest-ranked-twitter-content/"><u>The Essentials 2023'S Highest-Ranked Twitter Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweet-centric-viewing-twitters-top-content-for-2024/"><u>Tweet-Centric Viewing Twitter’s Top Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-reach-sharing-twitters-vids-via-snapchat/"><u>[New] 2024 Approved Maximizing Reach Sharing Twitters' Vids via Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-prime-video-hits-on-twitter-the-most-popular-watches-of-23/"><u>[New] In 2024, Prime Video Hits on Twitter The Most Popular Watches of '23</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweettracker-monitor-and-grab-visuals-from-social-feeds/"><u>[New] In 2024, TweetTracker Monitor & Grab Visuals From Social Feeds</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[Updated] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-examining-youtubes-workflow-after-content-submission/"><u>[Updated] Examining YouTube's Workflow After Content Submission</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-necessary-details-for-twitter-video-submissions-aspect-ratio/"><u>[Updated] Necessary Details for Twitter Video Submissions (Aspect Ratio)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209570720-9781510727502-angel-chatter/"><u>Angel Chatter | Free Book</u></a></li>
+<li><a href="https://program-issues.techidaily.com/crash-no-more-effective-solutions-for-left-4-dead-2-gameplay-problems/"><u>Crash No More: Effective Solutions for Left 4 Dead 2 Gameplay Problems</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ending-windows-10-screen-flip-mishap/"><u>Ending Windows 10 Screen Flip Mishap</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/frame-rate-impact-on-video-quality-30vs60-in-detail/"><u>Frame Rate Impact on Video Quality 30Vs.60 In Detail</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/professionelle-tipps-zur-optimalen-nutzung-von-handbrake-fur-blu-ray-ripping-projekte/"><u>Professionelle Tipps Zur Optimalen Nutzung Von HandBrake Für Blu-Ray Ripping-Projekte</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-wi-fi-disconnection-problems-a-comprehensive-guide-for-ipad-users/"><u>Resolving Wi-Fi Disconnection Problems: A Comprehensive Guide for iPad Users</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unraveling-the-mystery-behind-persistent-crashing-of-dirt-5-in-windows-gaming-pcs-a-comprehensive-guide/"><u>Unraveling the Mystery Behind Persistent Crashing of Dirt 5 in Windows Gaming PCs - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-beauty-titans-whos-leading-for-2024/"><u>YouTube's Beauty Titans Who's Leading for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

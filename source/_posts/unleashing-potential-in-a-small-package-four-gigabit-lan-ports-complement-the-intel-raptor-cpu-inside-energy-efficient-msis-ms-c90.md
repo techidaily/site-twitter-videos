@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-11-13T08:21:29.405Z
-updated: 2024-11-16T00:56:04.000Z
+date: 2024-11-19T16:18:49.665Z
+updated: 2024-11-25T16:09:24.348Z
 tags:
   - desktop
 categories:
@@ -29,6 +29,10 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -52,24 +56,22 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-navigating-the-aspect-ratio-maze-for-twitter-media/"><u>[New] Navigating the Aspect Ratio Maze for Twitter Media</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tream-masters-symposium/"><u>[New] Stream Masters Symposium</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-mastering-the-art-of-data-visualization-for-effective-communication/"><u>[Updated] Mastering the Art of Data Visualization for Effective Communication</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-what-makes-a-viral-video-the-tiktok-twitter-link-for-2024/"><u>[Updated] What Makes a Viral Video The TikTok-Twitter Link for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-speed-up-pc-games-the-ultimate-speed-controller-selection/"><u>2024 Approved Speed Up PC Games The Ultimate Speed Controller Selection</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-syncing-tiktok-content-with-twitter/"><u>2024 Approved Syncing TikTok Content with Twitter</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/enhanced-user-experience-with-automated-data-capture-powered-by-cookiebot/"><u>Enhanced User Experience with Automated Data Capture - Powered by Cookiebot</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/googles-augmented-reality-stickers-an-in-depth-look-and-alternatives-for-2024/"><u>Google's Augmented Reality Stickers An In-Depth Look and Alternatives for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-watch-twitter-videos-in-full-hd-for-2024/"><u>How To Watch Twitter Videos in Full HD for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-initiate-social-media-exploration-with-a-new-twitter/"><u>In 2024, Initiate Social Media Exploration with a New Twitter</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/leading-software-solutions-for-cloning-your-kingston-hdds-and-ssds/"><u>Leading Software Solutions for Cloning Your Kingston HDDs and SSDs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/r-quick-youtube-video-uploads-and-rendering-secrets/"><u>Master Quick YouTube Video Uploads and Rendering Secrets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-bridge-issue-video-not-playing-tweet-in-chrome/"><u>[New] In 2024, Bridge Issue Video Not Playing Tweet in Chrome</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-funny-frenzy-top-10-tweets/"><u>[New] In 2024, Funny Frenzy Top 10 Tweets</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-essential-musicians-guide-to-copyright-compliance-on-ig/"><u>[Updated] 2024 Approved The Essential Musician's Guide to Copyright Compliance on IG</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-visuals-saving-and-downloading-on-smartphones/"><u>[Updated] In 2024, Twitter's Visuals Saving and Downloading on Smartphones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-amazon-prime-tweets-favorites-galore-for-2024/"><u>[Updated] Top Amazon Prime Tweets Favorites Galore for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-compelling-content-weaving-text-into-os-imagery/"><u>2024 Approved Crafting Compelling Content Weaving Text Into OS Imagery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tiff-png-movavi/"><u>免費在線 TiFF 到 PNG 格式轉換 - 使用Movavi編譯器</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/a-complete-walkthrough-deactivating-microsofts-new-ai-tool-from-windows-11/"><u>A Complete Walkthrough: Deactivating Microsoft's New AI Tool From Windows 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advanced-guide-to-choosing-the-perfect-gaming-motherboard-ranked-by-socket-type-and-core-architecture/"><u>Advanced Guide to Choosing the Perfect Gaming Motherboard – Ranked by Socket Type and Core Architecture</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/comedy-kings-and-queens-whos-tops-for-2024/"><u>Comedy Kings and Queens Who's Tops for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-connection-through-respectful-engagement-for-2024/"><u>Fostering Connection Through Respectful Engagement for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-2023-top-10-trending-videos-on-twitter/"><u>In 2024, 2023 | Top 10 Trending Videos on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-reel-revolution-enjoying-twitter-videos-at-ultimate-quality/"><u>In 2024, Reel Revolution Enjoying Twitter Videos at Ultimate Quality</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/sers-mastering-chic-videos-for-your-first-youtube-post/"><u>Mac Users Mastering Chic Videos for Your First YouTube Post</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-15-most-effective-live-sports-streaming-methods/"><u>The 15 Most Effective Live Sports Streaming Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweaking-image-previews-for-youtube-like-experience-in-twitter-videos/"><u>Tweaking Image Previews for YouTube-Like Experience in Twitter Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/windows-11-the-ultimate-screen-grabber-collection-for-2024/"><u>Windows 11 The Ultimate Screen Grabber Collection for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

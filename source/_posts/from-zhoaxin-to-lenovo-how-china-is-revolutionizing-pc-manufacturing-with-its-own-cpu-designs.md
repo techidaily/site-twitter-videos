@@ -1,7 +1,7 @@
 ---
 title: From Zhoaxin to Lenovo - How China Is Revolutionizing PC Manufacturing with Its Own CPU Designs
-date: 2024-11-11T03:20:26.769Z
-updated: 2024-11-16T06:47:58.406Z
+date: 2024-11-18T16:45:11.225Z
+updated: 2024-11-25T16:20:57.403Z
 tags:
   - desktop
 categories:
@@ -14,6 +14,10 @@ thumbnail: https://cdn.mos.cms.futurecdn.net/La2gosMTvXC5DmJY6Lape9-320-80.jpg
 In an interesting turn of events, the first device boasting the highest-end version of Qualcomm's Snapdragon X Elite chipset isn't even a laptop. It's a Mini PC in the form of an official Dev Kit, which undercuts ([or at least matches](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.anrdoezrs.net%2Fclick-8900246-12578053%3Fsid%3Dtomshardware-us-1069194734322795598%26url%3Dhttps%3A%2F%2Fwww.dell.com%2Fen-us%2Fshop%2Fdell-computer-laptops%2Fnew-inspiron-14-plus-laptop%2Fspd%2Finspiron-14-7441-laptop%2Fuseichbts7441hcjp%3Fref%3Dvariantstack) ) the price of even the lower-end Snapdragon X Plus laptops, and it's set for a full launch on August 23rd, though it's also already available for pre-order on[Arrow.com](https://www.arrow.com/en/products/c8380-12c-mp-32g/thundercomm) for just $899 USD.
 
  We just reviewed a Snapdragon X Elite laptop— the[Dell XPS 13 9345](https://www.tomshardware.com/laptops/ultrabooks-ultraportables/dell-xps-13-9345-review) — and that unit retails for $1299, which is about $400 pricier for the laptop form factor.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Qualcomm Snapdragon Dev Kit for Windows Specifications
 
@@ -37,10 +41,7 @@ In an interesting turn of events, the first device boasting the highest-end vers
  But it's not all doom and gloom in the world of Qualcomm Snapdragon X Elite laptops — or Mini PCs in this case — as long as you have the requisite monitor and peripherals to get it up and running. You generally have a pretty usable version of[Windows 11](https://www.tomshardware.com/tag/windows-11) here, and a number of productivity and creative applications that will work perfectly fine. If your needs are more professional or are particularly focused on development efforts— perhaps even efforts to improve the state of games listed on[Works on Windows on Arm](https://www.worksonwoa.com/games/) — this may just be the Mini PC for you.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -66,22 +67,22 @@ In an interesting turn of events, the first device boasting the highest-end vers
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-leveraging-influencers-in-your-twitter-marketing-plan/"><u>[New] 2024 Approved Leveraging Influencers in Your Twitter Marketing Plan</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-a-step-by-written-by-a-lawyer/"><u>[New] In 2024, A Step-By Written by a Lawyer?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-streamline-and-stand-out-twitters-video-directive-for-2024/"><u>[New] Streamline and Stand Out Twitter's Video Directive for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solved-microphone-not-working-on-windows-10/"><u>[Solved] Microphone Not Working on Windows 10</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-alter-twitter-video-glimpse-artwork/"><u>[Updated] Alter Twitter Video Glimpse Artwork</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-direct-video-tweeting-on-phones-avoid-retweets-for-2024/"><u>[Updated] Direct Video Tweeting on Phones - Avoid Retweets for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-easy-route-to-altering-clownfish-vocal-pattern-in-windoze/"><u>[Updated] In 2024, Easy Route to Altering Clownfish Vocal Pattern in Windoze</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-efficient-tweet-strategy-embrace-aspect-ratio-specifications/"><u>[Updated] In 2024, Efficient Tweet Strategy Embrace Aspect Ratio Specifications</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-social-scoop-twitters-trending-talks-for-2024/"><u>[Updated] Social Scoop Twitter’s Trending Talks for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-techniques-to-surpass-instagrams-typical-video-limits/"><u>[Updated] Techniques to Surpass Instagram's Typical Video Limits</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-post-twitter-videos-on-snapchat-for-2024/"><u>How to Post Twitter Videos on Snapchat for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-google-pixel-fold-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Google Pixel Fold to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/origin-troubleshooting-successfully-launching-the-app-on-windows-11/"><u>Origin Troubleshooting: Successfully Launching the App on Windows 11</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/restore-deleted-boot-partition-a-step-by-step-guide/"><u>Restore Deleted Boot Partition: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/speak-and-listen-androids-guide-to-chatgpt-voicecontrol/"><u>Speak and Listen: Android’s Guide to ChatGPT VoiceControl</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-sites-catering-to-seniors-social-life/"><u>Top 5 Sites Catering to Seniors' Social Life</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-efficiently-extracting-twitters-visual-jokes-gifs/"><u>[New] 2024 Approved Efficiently Extracting Twitter's Visual Jokes (GIFs)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-next-gen-cloud-vaults-ultimate-pick-list/"><u>[New] 2024 Approved Next-Gen Cloud Vaults Ultimate Pick List</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-guide-to-compliant-twitter-media-posts-for-2024/"><u>[New] Step-by-Step Guide to Compliant Twitter Media Posts for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeting-visuals-integrating-youtube-and-snapchat/"><u>[Updated] 2024 Approved Tweeting Visuals Integrating YouTube and Snapchat</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-discover-the-secret-to-turning-iphone-pics-around/"><u>[Updated] Discover the Secret to Turning iPhone Pics Around</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-expanding-viewership-tweeting-to-fb-effectively-for-2024/"><u>[Updated] Expanding Viewership Tweeting to FB Effectively for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-iphoneandroid-sharing-videos-on-twitter-without-retweeting/"><u>[Updated] In 2024, IPhone/Android Sharing Videos On Twitter Without Retweeting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-adding-emojis-in-youtube-discussions/"><u>2024 Approved Adding Emojis in YouTube Discussions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-gifguardian-elite-a-must-have-toolkit-for-twitters-visual-vanguards/"><u>2024 Approved GifGuardian Elite A Must-Have Toolkit for Twitter's Visual Vanguards</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-premier-transcriber-platform-video-to-writing/"><u>2024 Approved Premier Transcriber Platform Video to Writing</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-tp-link-av2000-ethernet-over-power-cable-analysis-high-performance-meets-flawed-aesthetics/"><u>Comprehensive TP-Link AV2000 Ethernet Over Power Cable Analysis: High Performance Meets Flawed Aesthetics</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-up-and-running-with-pioneer-dj-ddj-sx2-streamlined-driver-download-process/"><u>Get Up & Running with Pioneer DJ DDJ-SX2: Streamlined Driver Download Process</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-motorola-moto-e13-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Motorola Moto E13 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-mobile-media-posting-videos-not-retweets/"><u>In 2024, Mobile Media Posting Videos, Not Retweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/launchpad-for-twitter-beginners/"><u>Launchpad for Twitter Beginners</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/master-the-migration-seamlessly-moving-data-from-sql-server-to-excel/"><u>Master the Migration: Seamlessly Moving Data From SQL Server to Excel</u></a></li>
 </ul></div>
 

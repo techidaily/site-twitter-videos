@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-11-13T19:33:57.160Z
-updated: 2024-11-16T08:49:22.120Z
+date: 2024-11-24T18:27:18.131Z
+updated: 2024-11-25T17:09:49.042Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -39,29 +43,9 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -88,6 +72,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -98,6 +86,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -105,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  Lifewire / Tony Mitera
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
@@ -134,10 +119,7 @@ Lifewire / Tony Mitera
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
@@ -157,6 +139,10 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -188,19 +174,19 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-get-smart-with-your-youtube-thumbnails-using-a-mac/"><u>[New] 2024 Approved Get Smart with Your YouTube Thumbnails, Using a Mac</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-quick-solution-capturing-downloading-and-keeping-tweets-visuals/"><u>[New] 2024 Approved Quick Solution Capturing, Downloading, & Keeping Tweets' Visuals</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cut-to-perfection-premier-android-editing-software-for-2024/"><u>[New] Cut to Perfection Premier Android Editing Software for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-guide-to-upload-videos-twtplustumblr/"><u>[New] In 2024, Step-by-Step Guide to Upload Videos Twt+Tumblr</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweet-treasure-trove-the-most-popular-tweeps-for-2024/"><u>[New] Tweet Treasure Trove The Most Popular Tweeps for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-fix-quiet-tweets-with-youtube-links/"><u>[Updated] Fix Quiet Tweets with YouTube Links</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweeted-timelines-a-complete-guide-to-video-backups/"><u>[Updated] Tweeted Timelines A Complete Guide to Video Backups</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/a-must-have-for-tweeting-videos-aspect-ratio-compliance/"><u>A Must-Have for Tweeting Videos Aspect Ratio Compliance</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-hub-unveils-tailored-gpt-marketplace-your-guide/"><u>AI Hub Unveils Tailored GPT Marketplace – Your Guide!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723211400634-effective-fixes-for-persistent-boot-loops-in-windows-11-expert-solutions-provided/"><u>Effective Fixes for Persistent Boot Loops in Windows 11 - Expert Solutions Provided!</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/guide-to-reinventing-facebook-video-coverages-step-by-step/"><u>Guide to Reinventing Facebook Video Coverages Step-by-Step</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-optimize-vertical-or-horizontal-vids-on-fb/"><u>In 2024, How To Optimize Vertical or Horizontal Vids On FB</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/insights-into-a-common-icon-what-is-fbs-blue-video-symbol-in-2024/"><u>Insights Into a Common Icon What Is FB’s Blue Video Symbol, In 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-dive-deep-into-unreal-worlds-with-these-titles/"><u>[New] 2024 Approved Dive Deep Into Unreal Worlds with These Titles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-resolve-silent-tweets-video-audio-woes/"><u>[New] In 2024, Resolve Silent Tweets Video Audio Woes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-zoom-video-refinement-best-three-enhancement-steps/"><u>[New] In 2024, Zoom Video Refinement Best Three Enhancement Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-stumble-upon-substantial-comment-sections/"><u>[New] Stumble upon Substantial Comment Sections</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-frosty-footage-comprehensive-analysis-and-tutorial-for-ice-cream-cam/"><u>[Updated] 2024 Approved Frosty Footage Comprehensive Analysis & Tutorial for Ice Cream Cam</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-post-a-video-between-twitter-and-tumblr-in-2024/"><u>[Updated] How to Post a Video Between Twitter and Tumblr, In 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-keeping-the-laughs-iosandroid-methods-for-tweets-as-gifs/"><u>[Updated] Keeping the Laughs IOS/Android Methods for Tweets as GIFs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-obs-the-ultimate-tutorial-for-live-broadcasts/"><u>[Updated] Mastering OBS The Ultimate Tutorial for Live Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-combo-crusade-sharing-vids-on-twitter-and-tumblr-for-2024/"><u>[Updated] The Combo Crusade Sharing Vids on Twitter and Tumblr for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2023-how-to-post-twitter-videos-on-snapchat-for-2024/"><u>2023 | How to Post Twitter Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-gadgets-and-innovations-at-toms-hardware/"><u>Discover Cutting-Edge Gadgets & Innovations at Tom's Hardware</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>Smooth Media Transfer TwitVideos to WhatsApp Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshoot-windows-11-audio-issues-discover-14-effective-solutions/"><u>Troubleshoot Windows 11 Audio Issues: Discover 14 Effective Solutions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/your-companion-in-choosing-high-grade-hdr-cameras-for-2024/"><u>Your Companion in Choosing High-Grade HDR Cameras for 2024</u></a></li>
 </ul></div>
 

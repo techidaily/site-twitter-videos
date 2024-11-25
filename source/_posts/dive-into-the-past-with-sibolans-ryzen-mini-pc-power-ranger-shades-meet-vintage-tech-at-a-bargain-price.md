@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2024-11-10T00:11:34.403Z
-updated: 2024-11-16T04:40:14.836Z
+date: 2024-11-18T18:24:52.717Z
+updated: 2024-11-25T16:54:47.546Z
 tags:
   - desktop
 categories:
@@ -40,6 +40,10 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -52,9 +56,17 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Miniproca)
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Miniproca)
 
@@ -77,25 +89,19 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-cutting-edge-techniques-for-audiovisual-professionals-in-filmora/"><u>[New] 2024 Approved Cutting Edge Techniques for Audio/Visual Professionals in Filmora</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-video-transit-route-tweeting-to-tumbling/"><u>[New] 2024 Approved Video Transit Route Tweeting to Tumbling</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-best-10-virtual-reality-headgear-for-smartphones/"><u>[New] In 2024, Best 10 Virtual Reality Headgear for Smartphones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-trending-topics-tally-10-tweets-triumphing/"><u>[New] In 2024, Trending Topics Tally 10 Tweets Triumphing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-connecting-twitter-videos-with-facebook-friends/"><u>[Updated] Connecting Twitter Videos with Facebook Friends</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-ideal-selection-of-top-9-mobile-video-collaboration-tools-ios-android/"><u>[Updated] Ideal Selection of Top 9 Mobile Video Collaboration Tools (iOS, Android)</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-ringtone-repository-best-sources-online/"><u>[Updated] In 2024, Ringtone Repository Best Sources Online</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-myface-illusion-sketch-your-whimsical-profile-icon-for-2024/"><u>[Updated] MyFace Illusion Sketch Your Whimsical Profile Icon for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-dynamo-unleashing-videoviral-impact/"><u>In 2024, Digital Dynamo Unleashing #VideoViral Impact</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-streamlined-method-keeping-and-capturing-twitters-videomedia/"><u>In 2024, Streamlined Method Keeping and Capturing Twitters Video/Media</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/live-streaming-console-gaming-secrets-on-a-computer-for-2024/"><u>Live-Streaming Console Gaming Secrets on a Computer for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/overcoming-windows-pin-lock-problems-in-11-edition/"><u>Overcoming Windows PIN Lock Problems in 11 Edition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweeted-vids-to-mp4wav-conversion-for-2024/"><u>Tweeted Vids to MP4/WAV Conversion for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastering-aspect-ratio-compliance-in-micro-video-tweets/"><u>[New] 2024 Approved Mastering Aspect Ratio Compliance in Micro-Video Tweets</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-video-embedding-for-dynamic-online-articles-for-2024/"><u>[New] Free Video Embedding for Dynamic Online Articles for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-video-transmission-from-twitters-to-whatsapp/"><u>[New] In 2024, Direct Video Transmission From Twitters to WhatsApp</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-crown-jewels-the-most-liked-and-binge-watched-content-for-2024/"><u>[New] Twitter's Crown Jewels The Most Liked & Binge-Watched Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-free-frame-flip-converting-tweets-into-tweenish-movies/"><u>[Updated] In 2024, Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-snippet-collection-mastery-efficient-method-for-downloading-animated-tweet-graphics/"><u>2024 Approved Social Snippet Collection Mastery Efficient Method for Downloading Animated Tweet Graphics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-tecno-camon-20-pro-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Tecno Camon 20 Pro 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-multiple-windows-learn-pip-in-microsoft-edge-for-2024/"><u>Harnessing Multiple Windows Learn PIP in Microsoft Edge for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone 14? | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/master-iphone-screen-recording-in-minutes-for-2024/"><u>Master iPhone Screen Recording in Minutes for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mp4-and-webm-extraction-from-social-media-streams-for-2024/"><u>MP4 & WebM Extraction From Social Media Streams for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-gsvfdlg32dll-missing-file-mishap-a-step-by-step-guide/"><u>Resolving gsvfdlg32.dll Missing File Mishap: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/tecnicas-expertas-para-solucionar-fallos-de-respaldo-en-windows-11/"><u>Técnicas Expertas Para Solucionar Fallos De Respaldo en Windows 11</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2024-11-14T04:25:08.711Z
-updated: 2024-11-15T18:46:46.502Z
+date: 2024-11-20T18:42:21.031Z
+updated: 2024-11-25T18:59:50.979Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -45,6 +49,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -52,6 +60,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -76,25 +88,17 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-how-to-effortlessly-record-voices-using-windows-11-techniques/"><u>[New] How to Effortlessly Record Voices Using Windows 11 Techniques</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-simplified-approaches-to-insta-photovideo-resharing-for-2024/"><u>[New] Simplified Approaches to Insta Photo/Video Resharing for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-unleash-the-power-of-online-livestreams-with-us-today/"><u>[New] Unleash the Power of Online Livestreams with Us Today</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>[Updated] 2024 Approved Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tiktok-hits-twitters-viral-top-10-list/"><u>[Updated] 2024 Approved TikTok Hits Twitter's Viral Top 10 List</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-cache-uncovering-the-best-twitters-comedy-threads-for-2024/"><u>[Updated] Chuckle Cache Uncovering the Best Twitters Comedy Threads for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweettube-downloader-streamline-youtube-and-twitvid-transfer/"><u>[Updated] TweetTube Downloader Streamline YouTube & TwitVid Transfer</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/diving-deep-reviewing-your-old-tweets-for-2024/"><u>Diving Deep Reviewing Your Old Tweets for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-vanguard-visuals-ideal-notebooks-for-4k-editors-needs/"><u>In 2024, Vanguard Visuals Ideal Notebooks for 4K Editors' Needs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/pc-strategies-for-acquiring-twitter-jokes-gifs/"><u>PC Strategies for Acquiring Twitter Jokes (GIFs)</u></a></li>
-<li><a href="https://win-top.techidaily.com/personal-brand-building-on-social-platforms-the-leading-11-trends-of-2011-part-two-featuring-massmail-techniques/"><u>Personal Brand Building on Social Platforms: The Leading 11 Trends of 2011 - Part Two Featuring Massmail Techniques</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-smart-choice-why-waiting-on-the-latest-apple-release-may-pay-off-a-look-at-alternatives-to-the-hyped-iphone-16/"><u>The Smart Choice: Why Waiting on the Latest Apple Release May Pay Off - A Look at Alternatives to the Hyped iPhone 16</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-utilizing-the-power-of-twitter-archive-data/"><u>[New] In 2024, Utilizing the Power of Twitter Archive Data</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-uniting-tiktok-and-twitter-with-one-click/"><u>[Updated] 2024 Approved Uniting TikTok and Twitter with One Click</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-guide-to-ios-screen-recording-essentials-for-2024/"><u>[Updated] Guide to iOS Screen Recording Essentials for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-artificamatic-intelligence-like-chatgpt-guide-you-towards-a-more-nourishing-diet/"><u>Can Artificamatic Intelligence, Like ChatGPT, Guide You Towards a More Nourishing Diet?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/chuckle-cache-the-best-humor-tweets-on-twitch-for-2024/"><u>Chuckle Cache The Best Humor Tweets on Twitch for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-is-hitman-3-the-ideal-closure/"><u>Comprehensive Review: Is 'Hitman 3' The Ideal Closure?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/effective-strategies-for-utilizing-telegram-desktop-features-for-2024/"><u>Effective Strategies for Utilizing Telegram Desktop Features for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-xs-max-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock iPhone XS Max with/without SIM Card</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-streamlined-social-media-prime-twitter-unfollow-tools-overview/"><u>In 2024, Streamlined Social Media Prime Twitter Unfollow Tools Overview</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-future-of-dev-workflow-with-ai/"><u>The Future of Dev Workflow with AI</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-ultimate-tutorial-on-leveraging-the-excel-navigation-pane-for-quick-data-access/"><u>The Ultimate Tutorial on Leveraging the Excel Navigation Pane for Quick Data Access</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tweet-without-smileys-linus-disclosed-techniques-trojan-inspection-and-chatbot-limitations/"><u>Tweet Without Smileys, Linus Disclosed Techniques, Trojan Inspection, & ChatBot Limitations</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

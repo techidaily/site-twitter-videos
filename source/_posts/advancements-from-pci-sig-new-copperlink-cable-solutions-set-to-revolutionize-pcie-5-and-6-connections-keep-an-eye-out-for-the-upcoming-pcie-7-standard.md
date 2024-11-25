@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2024-11-09T04:31:49.005Z
-updated: 2024-11-16T01:29:37.139Z
+date: 2024-11-18T18:47:51.220Z
+updated: 2024-11-25T16:19:56.108Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -45,6 +49,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -52,6 +60,10 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -76,31 +88,20 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-hashtag-hits-videoviral-trends-on-twitter/"><u>[New] 2024 Approved Hashtag Hits #VideoViral Trends on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-transform-tweets-into-files-iphoneandroid-instructional-guide/"><u>[New] 2024 Approved Transform Tweets Into Files IPhone/Android Instructional Guide</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-best-webp-converter-how-to-convert-webp-to-jpg/"><u>[New] In 2024, Best WebP Converter How to Convert WebP to JPG</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-keeping-up-with-aspect-ratios-for-twitter-content/"><u>[New] In 2024, Keeping Up with Aspect Ratios for Twitter Content</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-innovative-groups-shaping-future-of-vr-worlds-for-2024/"><u>[New] Innovative Groups Shaping Future of VR Worlds for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-making-your-twitter-videos-dance-convert-them-into-expressive-animated-gifs-for-2024/"><u>[New] Making Your Twitter Videos Dance Convert Them Into Expressive Animated GIFs for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/tep-by-step-strategy-for-unearthing-secret-youtube-videos-for-2024/"><u>[New] Step-by-Step Strategy for Unearthing Secret YouTube Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-streamline-screen-scans-your-essential-toolkit-for-vid-saving-for-2024/"><u>[New] Streamline Screen Scans Your Essential Toolkit for Vid Saving for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-the-art-of-engaging-with-tweets-in-videos/"><u>[Updated] Unlocking the Art of Engaging with Tweets in Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-boost-engagement-by-personalizing-your-twitter-videos-with-new-thumbnails/"><u>2024 Approved Boost Engagement by Personalizing Your Twitter Videos with New Thumbnails</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-honor-magic-6-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Honor Magic 6 Pro Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-apple-iphone-13-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For Apple iPhone 13</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-meizu-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Meizu</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-essential-5-platforms-beyond-twitter/"><u>In 2024, Essential 5 Platforms Beyond Twitter</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-15-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 15 Pro Max With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/quick-and-easy-guide-surface-book-2-driver-updates-and-downloads/"><u>Quick and Easy Guide: Surface Book 2 Driver Updates and Downloads</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ray-tracing-explained-how-it-transforms-graphics-rendering/"><u>Ray Tracing Explained: How It Transforms Graphics Rendering</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-perfect-tweet-mastering-the-art-of-video-upload-for-2024/"><u>The Perfect Tweet Mastering the Art of Video Upload for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-skyline-your-tweets-elevating-twitter-streams/"><u>[New] 2024 Approved Skyline Your Tweets Elevating Twitter Streams</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-viral-video-voyage-unveiling-the-trendiest-tweets-of-2023/"><u>[New] 2024 Approved Viral Video Voyage Unveiling the Trendiest Tweets of 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ahead-of-the-game-in-sub4sub-essential-beginners-guide-recommended-for-2024/"><u>[New] Ahead of the Game in Sub4sub Essential Beginner's Guide Recommended for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-youtube-videos-proper-lighting-methods-for-2024/"><u>[New] Enhancing YouTube Videos Proper Lighting Methods for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-maximizing-video-clarity-in-twitter-feed/"><u>[New] Maximizing Video Clarity in Twitter Feed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweaked-sound-from-video-to-mp3aac-for-2024/"><u>[New] Tweaked Sound From Video to MP3/AAC for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-navigating-full-hd-display-on-twitter-videos/"><u>[Updated] 2024 Approved Navigating Full HD Display on Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-cache-discovering-twitters-humor-treasures-for-2024/"><u>[Updated] Chuckle Cache Discovering Twitters Humor Treasures for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-backlog-utilizing-past-tweets-for-2024/"><u>[Updated] Twitter Backlog Utilizing Past Tweets for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-timeout-issue-windows-1110-semaphore-error-0x80070079/"><u>Addressing Timeout Issue - Windows 11/10 Semaphore Error 0X80070079</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/crafting-characters-and-settings-for-2024/"><u>Crafting Characters and Settings for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-8-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock Apple iPhone 8 Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-itel-p40plus-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Itel P40+ Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-s18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/understanding-and-fixing-fatal-exceptions-in-directx-a-step-by-step-approach/"><u>Understanding and Fixing Fatal Exceptions in DirectX: A Step-by-Step Approach</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

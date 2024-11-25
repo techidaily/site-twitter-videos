@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2024-11-10T19:01:58.053Z
-updated: 2024-11-16T08:29:48.289Z
+date: 2024-11-24T18:02:14.534Z
+updated: 2024-11-25T17:48:10.261Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/vYbnZlpvct2QsxYMi5alja-F-10=/400x300/fi
 ## Exploring the Capabilities and Performance: The 2Cuative Labs Sound Blaster ZXR Review From 2013
 
 2.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Creative Sound Blaster ZxR
 
@@ -39,15 +43,16 @@ Lifewire / Emily Ramirez
 
 2.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -80,25 +85,11 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -112,6 +103,10 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Audio: Excellent sound**
@@ -122,21 +117,7 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -146,9 +127,17 @@ Lifewire / Emily Ramirez
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -213,24 +202,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-social-tv-viewing-to-funny-interactive-gifs-a-twitter-video-journey/"><u>[New] 2024 Approved From Social TV Viewing to Funny, Interactive Gifs A Twitter Video Journey</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-laughter-league-twitters-best-jokes/"><u>[New] 2024 Approved Laughter League Twitter's Best Jokes</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-dial-up-your-visual-storytelling-with-animated-texts-no-cost-for-2024/"><u>[New] Dial up Your Visual Storytelling with Animated Texts, No Cost for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweaked-sound-from-video-to-mp3aac/"><u>[New] In 2024, Tweaked Sound From Video to MP3/AAC</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ix-websites-where-youtube-imagery-breaks-the-mould/"><u>[New] Six Websites Where YouTube Imagery Breaks the Mould</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-skyrocket-your-twitter-presence-through-livestreaming/"><u>[New] Skyrocket Your Twitter Presence Through Livestreaming</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-beyond-zoom-the-intricacies-of-iphone-xs-lens-tech/"><u>[Updated] 2024 Approved Beyond Zoom The Intricacies of iPhone X's Lens Tech</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-videosnapper-quickly-download-twitter-content-on-iphone/"><u>[Updated] VideoSnapper Quickly Download Twitter Content on iPhone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitter-mp4webm-clip-conversion/"><u>2024 Approved Twitter MP4/WebM Clip Conversion</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-best-performance-from-your-gtx-1650-supers-download-and-update-to-newest-drivers-for-windows-11/"><u>Get the Best Performance From Your GTX 1650 Supers: Download & Update to Newest Drivers for Windows 11</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/harnessing-the-power-of-your-retweet-archives/"><u>Harnessing the Power of Your Retweet Archives</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-iphone-13-pro-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your iPhone 13 Pro and iPad</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-preserving-gifs-from-twitter-for-mobile-devices/"><u>In 2024, Preserving GIFs From Twitter for Mobile Devices</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-step-by-step-throwing-epic-intros-with-imovie/"><u>In 2024, Step-by-Step Throwing Epic Intros with iMovie</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-nulaxy-km18-bluetooth-fm-unit-for-vehicles-a-veteran-pick-reviewed/"><u>In-Depth Analysis of Nulaxy KM18 Bluetooth FM Unit for Vehicles: A Veteran Pick Reviewed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitter-marketing-101-step-by-step-guide-for-2024/"><u>Twitter Marketing 101 Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/unlocking-the-power-of-your-email-marketing-key-performance-indicators-and-tracking-tools-with-massmail-solutions/"><u>Unlocking the Power of Your Email Marketing: Key Performance Indicators and Tracking Tools with Massmail Solutions</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-ensure-audible-vids-on-tweet-platform/"><u>[Updated] In 2024, Ensure Audible Vids on Tweet Platform</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-ultimate-amazon-prime-series-most-liked-and-watched-on-twitter/"><u>[Updated] In 2024, The Ultimate Amazon Prime Series Most Liked & Watched on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-integrate-twitter-and-snapchat-posting-tweets-as-snaps-for-2024/"><u>[Updated] Integrate Twitter & Snapchat Posting Tweets as Snaps for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-integrating-twitter-content-with-facebook-networks/"><u>[Updated] Integrating Twitter Content with Facebook Networks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mend-error-non-playing-vids-in-chrome-for-2024/"><u>[Updated] Mend Error Non-Playing Vids in Chrome for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-assessment-of-parrots-second-gen-model-20/"><u>[Updated] Premium Assessment of Parrot's Second-Gen Model 2.0</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-apple-iphone-xs-max-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot Apple iPhone XS Max Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-infuse-your-ideas-with-humor-easy-to-use-genrator/"><u>In 2024, Infuse Your Ideas with Humor Easy-to-Use Gen'rator</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-creative-expression-adding-video-filters-in-zoom-for-2024/"><u>Mastering Creative Expression Adding Video Filters in Zoom for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-tweeted-content-across-facebook-for-2024/"><u>Navigating Tweeted Content Across Facebook for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/quick-quirky-qs-how-to-save-funny-tweets-as-gifs/"><u>Quick, Quirky Qs How To Save Funny Tweets as GIFs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-evaluation-of-anthropics-revolutionary-smart-photo-editing-software/"><u>Top Rated Evaluation of Anthropics' Revolutionary Smart Photo Editing Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-manycam-top-live-streaming-protocols-and-virtual-cam-features/"><u>Ultimate Guide to ManyCam: Top Live Streaming Protocols and Virtual Cam Features</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-mac-efficiency-mastering-the-art-of-setting-up-and-utilizing-hot-corners-the-essential-guide-zdnet/"><u>Unlocking Mac Efficiency: Mastering the Art of Setting Up & Utilizing Hot Corners - The Essential Guide | ZDNET</u></a></li>
 </ul></div>
 
