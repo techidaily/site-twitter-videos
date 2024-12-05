@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-11-20T18:39:18.351Z
-updated: 2024-11-25T16:54:54.625Z
+date: 2024-12-02T03:53:58.516Z
+updated: 2024-12-05T12:46:33.213Z
 tags:
   - chatgpt
   - open-ai
@@ -17,13 +17,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Large language models (LLMs) come in all shapes and sizes, and will assist you in any way you see fit. But which is best? We put the dominant AIs from Alphabet, OpenAI, and Meta to the test.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Know About AI Chatbots
 
 ![AI robot using a virtual touch screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/ai-robot-using-a-virtual-touch-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Artificial general intelligence has been a goal of computer scientists for decades, and AI has served as a mainstay for science fiction writers and moviemakers for even longer.
 
@@ -44,6 +44,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
 
  However, to run LLaMa locally, you will need to have some specialized knowledge or the ability to follow a tutorial. You'll also need a significant amount of storage space.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which Is the Most Private Large Language Model?
 
@@ -75,16 +79,12 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  All three chatbots correctly identified Franco Malerba as an Italian astronaut and member of the European Parliament, with Bard giving an answer worded identically to a section of Malerba's Wikipedia entry.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which LLM Is Good for Technical Instructions?
 
 ![burnt socket for a  BS 1363 type plug](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/burnt-socket-for-a-bs-1363-type-plug.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When you have technical problems, you might be tempted to turn to a chatbot for help. While technology marches on, some things remain the same. The BS 1363 electrical plug has been in use in Britain, Ireland, and many other countries since 1947\. We asked the language models how to correctly wire it up.
@@ -107,16 +107,12 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
@@ -130,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -154,24 +154,21 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-recording-made-simple-for-mac-at-no-charge/"><u>[New] 2024 Approved Recording Made Simple for Mac - At No Charge</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-visual-vault-unrivaled-in-capturing-and-saving-tweets-as-animations/"><u>[New] 2024 Approved Visual Vault Unrivaled in Capturing & Saving Tweets as Animations</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-cross-platform-video-uploading-twittertumblr/"><u>[New] Cross-Platform Video Uploading Twitter/Tumblr</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-essential-leisure-ideal-screen-time-solutions-for-2024/"><u>[New] Essential Leisure Ideal Screen-Time Solutions for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-leveraging-virtual-board-features-for-enhanced-collaboration-in-zoom/"><u>[New] Leveraging Virtual Board Features for Enhanced Collaboration in Zoom</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-bridging-twitter-and-fb-with-shared-vids/"><u>[Updated] Bridging Twitter and FB with Shared Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-filming-for-tweet-sharing-content-without-retweeting/"><u>[Updated] In 2024, Filming for Tweet Sharing Content without Retweeting</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-mastering-the-art-of-securing-cost-free-vlc-player-download-on-mac/"><u>[Updated] In 2024, Mastering the Art of Securing, Cost-Free VLC Player Download on Mac</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-sharing-videos-on-tweet-no-retweets-just-phones/"><u>[Updated] Sharing Videos on Tweet No Retweets, Just Phones</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-integrating-sounds-and-music-into-your-instagram-videos/"><u>2024 Approved Integrating Sounds and Music Into Your Instagram Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-unveiling-snapchat-video-feeds-from-twitter/"><u>2024 Approved Unveiling Snapchat Video Feeds From Twitter</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-samsung-galaxy-a14-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Samsung Galaxy A14 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/cutting-edge-cinema-at-your-fingertips-the-windows-hdr-experience/"><u>Cutting Edge Cinema at Your Fingertips The Windows HDR Experience</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-v29-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo V29 Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-razr-40-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Motorola Razr 40 Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-guide-downloading-twitters-videos-on-android-devices/"><u>In 2024, Guide Downloading Twitters Videos on Android Devices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-invisible-intensity-covert-volume-reduction-in-garageband/"><u>In 2024, Invisible Intensity Covert Volume Reduction in Garageband</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/smile-spectrum-ranking-jokes-from-reddit-and-twitter-for-2024/"><u>Smile Spectrum Ranking Jokes From Reddit & Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-complete-guide-to-twitters-paid-reach-and-impressions-for-2024/"><u>The Complete Guide to Twitter's Paid Reach and Impressions for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-step-by-step-crafting-photos-into-engaging-videos-in-pixiz/"><u>[New] In 2024, Step-by-Step Crafting Photos Into Engaging Videos in Pixiz</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-required-video-aspect-ratios-explained/"><u>[New] In 2024, Twitter's Required Video Aspect Ratios Explained</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-giggle-gazette-twitters-top-threads/"><u>[Updated] Giggle Gazette Twitter’s Top Threads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-memetic-mayhem-the-20-most-shared-gems/"><u>[Updated] In 2024, Memetic Mayhem The 20 Most Shared Gems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-no-more-youtube-the-best-5-alternative-editors-await/"><u>[Updated] In 2024, No More Youtube? The Best 5 Alternative Editors Await</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-optimizing-twitter-video-shares-for-facebook-users/"><u>[Updated] In 2024, Optimizing Twitter Video Shares for Facebook Users</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-navigating-to-get-windows-movie-maker-6-installed/"><u>[Updated] Navigating to Get Windows Movie Maker 6 Installed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-tips-extracting-and-keeping-gif-tweets-for-2024/"><u>[Updated] Quick Tips Extracting and Keeping GIF Tweets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-easy-guide-to-taking-and-saving-twitters-gifs/"><u>[Updated] The Easy Guide to Taking and Saving Twitter's Gifs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-tales-creating-gifs-without-charges-for-2024/"><u>[Updated] Twitter Tales Creating GIFs Without Charges for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unique-concepts-for-enhancing-fb-video-marketing-impact-for-2024/"><u>[Updated] Unique Concepts for Enhancing Fb Video Marketing Impact for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-doodles-to-dollars-the-graphic-artists-guide/"><u>2024 Approved From Doodles to Dollars The Graphic Artist's Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/evaluating-the-value-of-minecraft-realms-are-they-justifiable/"><u>Evaluating the Value of Minecraft Realms – Are They Justifiable?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-latest-drivers-for-killer-wireless-product-1535-easy-installation-steps-inside/"><u>Get Your Latest Drivers for Killer Wireless Product 1535 - Easy Installation Steps Inside!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-tecno-pova-5-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Tecno Pova 5 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-compatible-ipad-mouse-options/"><u>Top-Rated Compatible IPad Mouse Options</u></a></li>
 </ul></div>
 

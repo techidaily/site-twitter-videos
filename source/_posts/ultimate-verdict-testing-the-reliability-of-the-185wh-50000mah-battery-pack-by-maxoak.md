@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-11-24T18:27:18.131Z
-updated: 2024-11-25T17:09:49.042Z
+date: 2024-11-28T12:27:03.838Z
+updated: 2024-12-04T22:46:08.916Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -13,12 +13,16 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -72,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -86,10 +86,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
  Positioning the MOOCK to jump start a car is a little more difficult than it needs to be. Plugging the jumper cable module into the unit and turning it on is the easy part. Due to the short length of the cables, however, it's difficult to get them connected while also keeping the unit secure in the engine bay. Thankfully once you find that Goldilocks spot, the terminal clamps are on the small side and easy to attach, even if the area around the clamping location is cramped.
@@ -97,6 +93,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  Lifewire / Tony Mitera
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
@@ -108,6 +108,10 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
@@ -117,10 +121,6 @@ Lifewire / Tony Mitera
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -141,7 +141,7 @@ A good choice with just a few nagging flaws.
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -174,19 +174,19 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-dive-deep-into-unreal-worlds-with-these-titles/"><u>[New] 2024 Approved Dive Deep Into Unreal Worlds with These Titles</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-resolve-silent-tweets-video-audio-woes/"><u>[New] In 2024, Resolve Silent Tweets Video Audio Woes</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-zoom-video-refinement-best-three-enhancement-steps/"><u>[New] In 2024, Zoom Video Refinement Best Three Enhancement Steps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-stumble-upon-substantial-comment-sections/"><u>[New] Stumble upon Substantial Comment Sections</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-frosty-footage-comprehensive-analysis-and-tutorial-for-ice-cream-cam/"><u>[Updated] 2024 Approved Frosty Footage Comprehensive Analysis & Tutorial for Ice Cream Cam</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-post-a-video-between-twitter-and-tumblr-in-2024/"><u>[Updated] How to Post a Video Between Twitter and Tumblr, In 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-keeping-the-laughs-iosandroid-methods-for-tweets-as-gifs/"><u>[Updated] Keeping the Laughs IOS/Android Methods for Tweets as GIFs</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-obs-the-ultimate-tutorial-for-live-broadcasts/"><u>[Updated] Mastering OBS The Ultimate Tutorial for Live Broadcasts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-combo-crusade-sharing-vids-on-twitter-and-tumblr-for-2024/"><u>[Updated] The Combo Crusade Sharing Vids on Twitter and Tumblr for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2023-how-to-post-twitter-videos-on-snapchat-for-2024/"><u>2023 | How to Post Twitter Videos on Snapchat for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-cutting-edge-gadgets-and-innovations-at-toms-hardware/"><u>Discover Cutting-Edge Gadgets & Innovations at Tom's Hardware</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/smooth-media-transfer-twitvideos-to-whatsapp-guide/"><u>Smooth Media Transfer TwitVideos to WhatsApp Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/troubleshoot-windows-11-audio-issues-discover-14-effective-solutions/"><u>Troubleshoot Windows 11 Audio Issues: Discover 14 Effective Solutions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/your-companion-in-choosing-high-grade-hdr-cameras-for-2024/"><u>Your Companion in Choosing High-Grade HDR Cameras for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-your-platforms-posting-tiktok-content-on-twitter/"><u>[New] 2024 Approved Maximizing Your Platforms Posting TikTok Content on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-elevate-your-social-media-game-post-tiktoks-on-twitter-for-2024/"><u>[New] Elevate Your Social Media Game Post TikToks on Twitter for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-ensure-audible-vids-on-tweet-platform/"><u>[New] In 2024, Ensure Audible Vids on Tweet Platform</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-instant-sharing-convert-tweets-to-snaps-users/"><u>[New] In 2024, Instant Sharing Convert Tweets to Snaps Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-visual-vanguard-the-top-videoviral-tweets/"><u>[Updated] 2024 Approved Visual Vanguard The Top #VideoViral Tweets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-the-science-proven-methods-for-effective-hashtagging-on-fb-for-2024/"><u>[Updated] Mastering the Science Proven Methods for Effective Hashtagging on FB for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unhindered-movie-enjoyment-no-cost-video-player-pcmac-for-2024/"><u>[Updated] Unhindered Movie Enjoyment - No Cost VIDEO Player (PC/Mac) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-innovative-broadcasting-a-guide-to-chroma-key-excellence/"><u>2024 Approved Innovative Broadcasting A Guide to Chroma Key Excellence</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-hydrophobic-cameras-for-young-explorers/"><u>Budget-Friendly Hydrophobic Cameras for Young Explorers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/deciphering-the-purpose-and-use-of-microsofts-phone-link-app/"><u>Deciphering the Purpose and Use of Microsoft's 'Phone Link' App</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-the-implications-of-tandem-oled-tech-in-upcoming-devices-as-seen-on-the-latest-ipad-pro/"><u>Exploring the Implications of Tandem OLED Tech in Upcoming Devices as Seen on the Latest iPad Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-deleted-iphone-8-plus-whatsapp-attachments-on-mac-and-windows-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Deleted iPhone 8 Plus WhatsApp Attachments on Mac and Windows | Stellar</u></a></li>
+<li><a href="https://article-tips.techidaily.com/total-gaze-coverage-camera-analysis/"><u>Total Gaze Coverage Camera Analysis</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-cross-compatibility-running-your-favorite-android-apps-on-windows-10-machines/"><u>Unlocking Cross-Compatibility: Running Your Favorite Android Apps on Windows 10 Machines</u></a></li>
 </ul></div>
 

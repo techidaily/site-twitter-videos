@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-11-23T17:27:51.784Z
-updated: 2024-11-25T18:12:17.383Z
+date: 2024-11-28T20:45:53.162Z
+updated: 2024-12-05T08:52:16.672Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/d01c44a9ae23f7efe9fb5e1960e68d56b4d2035c8
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/pK3yHfIPyy6ONdVABJArg4CtaV0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -39,10 +47,6 @@ Lifewire / Todd Braylor
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/P9a50_oB4MstZx5zB9lbu2dMq68=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -70,11 +74,11 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Low-profile, comfortable, and intuitive**
 
@@ -90,10 +94,6 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
 
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
@@ -101,6 +101,10 @@ Lifewire / Todd Braylor
  The Fitbit Inspire HR is simple to set up. You’ll need to connect it to the Fitbit app, which is available on both iOS and Android platforms, and the pairing process is very straightforward.
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
 
@@ -122,10 +126,6 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/kpOf5qE4yUp_TsA4L5ERLgL3tbM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-02-e84796705da049fbb75f5e2a098c1e8e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
 
 ## **Battery: Maximum capacity designed for 24/7 wear**
@@ -144,13 +144,13 @@ Lifewire / Todd Braylor
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A host of insights at a good price**
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Fitbit Inspire HR vs. Garmin vívosport**
 
@@ -201,20 +201,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-seamless-integration-of-snapchat-on-apples-laptops-for-2024/"><u>[New] Seamless Integration of Snapchat on Apple's Laptops for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-snicker-studio-cybernetic-cackles-for-2024/"><u>[New] Snicker Studio Cybernetic Cackles for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-from-social-networks-to-personal-messages-twitchs-journey-through-whatsapp/"><u>[Updated] From Social Networks to Personal Messages Twitch's Journey Through WhatsApp</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-turning-twitter-media-into-interactive-expressive-animated-gifs/"><u>[Updated] In 2024, Turning Twitter Media Into Interactive, Expressive Animated GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-making-the-invisible-audible-fixes-for-tweeted-videos/"><u>[Updated] Making the Invisible Audible Fixes for Tweeted Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-crafting-connections-posting-vids-between-tweets-and-tumbles/"><u>2024 Approved Crafting Connections Posting Vids Between Tweets & Tumbles</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-silliest-stories-on-twitter/"><u>2024 Approved Silliest Stories on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-twitters-obsession-with-top-10-tiktok-videos/"><u>2024 Approved Twitter's Obsession with Top 10 TikTok Videos</u></a></li>
-<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-infinix-note-30-pro-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Infinix Note 30 Pro in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-retro-technology-a-complete-review-on-the-outdated-yet-functional-netgear-c3000-modemrouter-combo/"><u>Exploring Retro Technology: A Complete Review on the Outdated Yet Functional Netgear C3000 Modem/Router Combo</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-leverage-windows-movie-maker-to-upgrade-your-youtube-videos/"><u>In 2024, Leverage Windows Movie Maker to Upgrade Your YouTube Videos</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mastering-mac-privacy-setting-up-personalized-spaces-on-macos-monterey-for-optimal-concentration/"><u>Mastering Mac Privacy: Setting Up Personalized Spaces on macOS Monterey for Optimal Concentration</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/non-retweeted-video-tweet-guide-for-iphone-and-android-users-for-2024/"><u>Non-Retweeted Video Tweet Guide for iPhone & Android Users for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviewing-the-rotibox-beanies-top-notch-audio-and-ultimate-comfort-the-best-of-both-worlds-in-a-hat/"><u>Reviewing the Rotibox Beanies: Top-Notch Audio and Ultimate Comfort - The Best of Both Worlds in a Hat!</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/transformar-videos-rapidamente-on-line-guia-detalhado-para-a-transicao-de-wmv-para-mp4-com-as-ferramentas-facilmente-utilizaveis-no-sitio-movavi/"><u>Transformar Vídeos Rapidamente On-Line: Guia Detalhado Para a Transição De WMV Para MP4 Com as Ferramentas Facilmente Utilizáveis No Sítio Movavi</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-diving-deep-into-your-twitter-archive/"><u>[New] In 2024, Diving Deep Into Your Twitter Archive</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-sociostreamer-convert-tweets-to-videos/"><u>[New] SocioStreamer Convert Tweets to Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-top-5-non-twitter-social-sites/"><u>[Updated] 2024 Approved Top 5 Non-Twitter Social Sites</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-channeling-twitter-vids-seamlessly-to-snapchat/"><u>[Updated] In 2024, Channeling Twitter Vids Seamlessly to Snapchat</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-art-of-transformation-innovative-approaches-to-instagram-video-editing/"><u>[Updated] The Art of Transformation Innovative Approaches to Instagram Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-is-there-a-business-model-for-shopping-blog-reviews/"><u>2024 Approved Is There a Business Model for Shopping Blog Reviews?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-whats-grabbing-twitter-users-attention/"><u>2024 Approved What's Grabbing Twitter Users' Attention</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/free-your-files-fuel-stellars-flame/"><u>Free Your Files, Fuel Stellar's Flame</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-motorola-edge-40-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Motorola Edge 40 Phones? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-leveraging-youtubes-cc-for-high-quality-video-creation/"><u>In 2024, Leveraging YouTube’s CC for High-Quality Video Creation</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlocking-smooth-streams-how-to-avoid-spotify-disruptions-when-iphone-goes-dark/"><u>Unlocking Smooth Streams: How to Avoid Spotify Disruptions When iPhone Goes Dark</u></a></li>
 </ul></div>
 

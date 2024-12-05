@@ -1,7 +1,7 @@
 ---
 title: "\"Shared Humor  Top 20 Memes Across Social Networks for 2024\""
-date: 2024-11-22T17:01:21.072Z
-updated: 2024-11-25T16:39:43.118Z
+date: 2024-11-30T13:24:17.734Z
+updated: 2024-12-05T02:33:01.479Z
 tags:
   - ai video
   - ai twitter
@@ -35,7 +35,7 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 ## Part 1: The Most Popular Memes on Reddit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Manning Face
@@ -43,10 +43,6 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 This is a meme featuring Peyton Manning wearing a black hood and kneeling on a football field during practice. It is usually used as what is called a “bait and switch” meme. People will click on a link and expect it to be something interesting or important, and it just ends up being Manning Face.
 
 ![Manning Face](https://images.wondershare.com/filmora/article-images/Manning-Face-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. That's The Joke
 
@@ -66,6 +62,10 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. This is Fine
 
 4his is Fine” is based on a cartoon where a dog is sitting in a chair, drinking out of a coffee mug and stating “This is Fine” while the entire house is burning down around him. This is usually posted as a response to a news story or information where something chaotic is happening and no one seems to be reacting as they should be.
@@ -73,7 +73,7 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Smug Frog
@@ -88,6 +88,10 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 
 ![Roll Safe](https://images.wondershare.com/filmora/article-images/roll-safe-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Rage Guy
 
 Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or something similar. It’s usually used when the person posting is exasperated about something stupid that is being discussed.
@@ -95,11 +99,7 @@ Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or so
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Make America Great Again
@@ -109,7 +109,7 @@ Used as Trump’s campaign slogan, nowadays this is used as satire when pointing
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10\. Fake CCG Cards
@@ -117,10 +117,6 @@ Used as Trump’s campaign slogan, nowadays this is used as satire when pointing
 CCG’s like Magic the Gathering are still popular, and fake CCG cards are used as image parodies for almost anything imaginable, from people, to animals, to other memes.
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: The Most Popular Memes on Twitter
 
@@ -136,15 +132,15 @@ Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the fro
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Nut Button
 
 Nut Button started as a sexual meme, but it’s commonly used as a picture of someone hitting a blue or red button with a word on it. It’s accompanied by text explaining why you would want to hit that button in that context.
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Spongebob Mock
 
@@ -159,7 +155,7 @@ These images vary, but they’re usually a person with a specific expression on 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Expanding Brain
@@ -174,6 +170,10 @@ These posters, at first glance, look like motivational posters, with images of n
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
@@ -181,7 +181,7 @@ From a Dr. Phil episode, this picture is of an angry girl who told the audience 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Conceited Reaction
@@ -219,24 +219,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-a-practical-guide-to-managing-twitter-archives-for-2024/"><u>[New] A Practical Guide to Managing Twitter Archives for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-mobile-friendly-video-posts-on-twitter-excluding-retweets-for-2024/"><u>[New] Mobile-Friendly Video Posts on Twitter Excluding Retweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-quick-video-sharing-tweet-it-up-no-need-for-retweets/"><u>[New] Quick Video Sharing Tweet It Up - No Need for Retweets</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-tools-to-craft-top-titles/"><u>[Updated] Innovative Tools to Craft Top Titles</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-social-media-summit-twitters-top-10-tweets-for-2024/"><u>[Updated] Social Media Summit Twitter’s Top 10 Tweets for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-youtube-tv-explained-essential-knowledge-for-all-viewers/"><u>[Updated] YouTube TV Explained Essential Knowledge for All Viewers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-direct-video-tweeting-hacks-smartphones/"><u>2024 Approved Direct Video Tweeting Hacks Smartphones</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/best-iphone-gps-applications-our-top-picks-revealed/"><u>Best iPhone GPS Applications: Our Top Picks Revealed!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/compatibilidad-de-archivo-av1-con-handbrake-es-posible-codificarlo/"><u>Compatibilidad De Archivo AV1 Con HandBrake - ¿Es Posible Codificarlo?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-samsung-galaxy-f54-5g-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Samsung Galaxy F54 5G.</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-4s-new-era-of-accessibility-for-all-at-no-cost-yet-platinum-still-offers-6-peculiar-benefits/"><u>GPT-4's New Era of Accessibility: For All at No Cost! Yet Platinum Still Offers 6 Peculiar Benefits.</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-tweeted-content-across-facebook/"><u>In 2024, Navigating Tweeted Content Across Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-streamlining-media-transfer-twitter-content-on-snapchat/"><u>In 2024, Streamlining Media Transfer Twitter Content on Snapchat</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-xiaomi-redmi-note-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Xiaomi Redmi Note 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/secrets-to-successful-twitpicingvideo-edition-for-2024/"><u>Secrets to Successful Twitpicing—Video Edition for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-emergence-of-meta-charting-a-new-course-for-social-networking/"><u>The Emergence of Meta: Charting a New Course for Social Networking</u></a></li>
-<li><a href="https://article-posts.techidaily.com/transform-text-to-laughter-kapwings-toolkit-for-2024/"><u>Transform Text to Laughter - Kapwing's Toolkit for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unveiling-top-10-trending-tweets-of-2023-for-2024/"><u>Unveiling Top 10 Trending Tweets of 2023 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-2023-how-to-watch-twitter-videos-in-full-hd/"><u>[New] 2024 Approved 2023 | How To Watch Twitter Videos in Full HD?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-from-novice-to-pro-creating-impressive-fb-covers-for-2024/"><u>[New] From Novice to Pro Creating Impressive FB Covers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-saving-twitter-jokes-gifs/"><u>[New] In 2024, Mastering the Art of Saving Twitter Jokes (GIFs)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-personal-drones-that-perfectly-trace-their-owners-path/"><u>[New] Personal Drones That Perfectly Trace Their Owner's Path</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-high-def-capture-top-10-web-based-apps/"><u>[Updated] 2024 Approved High-Def Capture Top 10 Web-Based Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-instant-video-posting-to-twitter-from-phone-avoid-the-retweet/"><u>[Updated] 2024 Approved Instant Video Posting to Twitter From Phone – Avoid the Retweet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-pros-guide-to-uploading-twitter-videos-to-snapchat-for-2024/"><u>[Updated] The Pro's Guide to Uploading Twitter Videos to Snapchat for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-8-cutting-edge-skins-perfect-for-your-laptop/"><u>2024 Approved 8 Cutting-Edge Skins Perfect for Your Laptop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-enhancing-engagement-tweeting-for-fb-exposure/"><u>2024 Approved Enhancing Engagement Tweeting for FB Exposure</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mobile-broadcasting-share-videos-without-a-retweet/"><u>2024 Approved Mobile Broadcasting Share Videos without a Retweet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution/"><u>How To Create a Memorable Podcast Name From Brainstorming to Execution</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-apple-iphone-15-pro-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 15 Pro Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-your-first-step-on-twitter-creating-an-account/"><u>In 2024, Your First Step on Twitter Creating an Account</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/secure-and-speedy-download-of-official-acer-bluetooth-drivers-get-started/"><u>Secure & Speedy Download of Official Acer Bluetooth Drivers - Get Started!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/sending-direct-tweets-share-photosvideos-on-twitter-without-retweeting/"><u>Sending Direct Tweets Share Photos/Videos on Twitter without Retweeting</u></a></li>
+<li><a href="https://techidaily.com/troubleshooting-gaming-solving-gameplay-latency-issues-with-your-second-display-on-windows-11/"><u>Troubleshooting Gaming: Solving Gameplay Latency Issues with Your Second Display on Windows 11</u></a></li>
 </ul></div>
 

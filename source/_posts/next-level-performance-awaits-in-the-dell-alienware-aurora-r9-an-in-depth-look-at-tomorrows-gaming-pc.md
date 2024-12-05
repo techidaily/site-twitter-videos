@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-11-21T17:46:41.996Z
-updated: 2024-11-25T18:07:53.263Z
+date: 2024-12-02T23:40:20.142Z
+updated: 2024-12-05T02:24:11.288Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -42,12 +42,16 @@ Lifewire / Emily Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -69,10 +73,6 @@ Lifewire / Emily Isaacs
  _We purchased the Fellowes Microban Split Design Wired Keyboard so our expert reviewer could thoroughly test and assess it. Keep reading for our full product review._
 
  The Fellowes Microban Split Design Wired Keyboard is one of several Fellowes’ products geared towards businesses, thanks to its comfortable, ergonomic design and budget-friendly pricing. The inclusion of Microban antimicrobial protection technology, designed to prolong the life of your computer hardware by preventing damaging microbes from building up over time and causing deterioration, is an added bonus for the price. We tested this keyboard for over a week so read on to see what we discovered.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Cleaner than the rest**
 
@@ -99,18 +99,26 @@ Lifewire / Emily Isaacs
  Lifewire / Emily Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
 
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: A budget-friendly ergonomic keyboard**
 
@@ -123,10 +131,6 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -143,10 +147,6 @@ Lifewire / Emily Isaacs
  **A great keyboard with microbial protection for office workers.**
 
  The Fellowes Microban Split Design Wired Keyboard is a good, albeit bulky, ergonomic keyboard designed to last. Its antimicrobial protection not only keeps germs, fungi, and bacteria at bay, but ensures the keyboard won’t deteriorate over time. While it may not be our first pick for home use, it’s a great choice if you’re on a budget or are an office working facing down cold and flu season.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,22 +175,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-wit-wave-twitters-funniest-content/"><u>[New] 2024 Approved Wit Wave Twitter's Funniest Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-efficient-iphoneandroid-guide-for-tweets-as-visuals-for-2024/"><u>[New] Efficient iPhone/Android Guide for Tweets as Visuals for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-in-depth-review-videovision-pro-suite-the-new-frontier/"><u>[New] In-Depth Review VideoVision Pro Suite - The New Frontier</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrated-upload-sending-vids-to-twitter-and-tumblr/"><u>[Updated] 2024 Approved Integrated Upload Sending Vids to Twitter and Tumblr</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-best-twitter-tools-for-purifying-and-personalizing-your-timeline/"><u>[Updated] Best Twitter Tools for Purifying & Personalizing Your Timeline</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-engrossing-12-pc-clicker-games-that-keep-you-hooked/"><u>[Updated] In 2024, Engrossing 12 PC Clicker Games That Keep You Hooked</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-integrating-whatsapp-into-your-twitter-video-sharing-routine/"><u>[Updated] In 2024, Integrating WhatsApp Into Your Twitter Video Sharing Routine</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-optimizing-performance-best-practices-for-fast-loading-times/"><u>[Updated] Optimizing Performance Best Practices for Fast Loading Times</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/1-four-effective-methods-to-restore-the-picasa-folder-in-windows-11/"><u>1. Four Effective Methods to Restore the Picasa Folder in Windows 11</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-how-to-share-videos-on-twitter-on-your-phone-without-retweeting/"><u>2024 Approved How to Share Videos on Twitter on Your Phone Without Retweeting?</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/boosting-your-holiday-promotions-11-essential-strategies-with-massmail/"><u>Boosting Your Holiday Promotions: 11 Essential Strategies with MassMail</u></a></li>
-<li><a href="https://fox-that.techidaily.com/dealing-with-water-damage-indicators-a-guide-to-removing-liquid-alerts-from-iphones/"><u>Dealing with Water Damage Indicators: A Guide to Removing Liquid Alerts From iPhones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-online-converter-transform-ts-files-into-mov-format/"><u>Free Online Converter: Transform .TS Files Into MOV Format</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-essential-tiktok-to-twitter-sharing/"><u>In 2024, The Essential TikTok to Twitter Sharing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/step-by-step-guide-successfully-exiting-safe-mode-in-windows-11/"><u>Step-by-Step Guide: Successfully Exiting Safe Mode in Windows 11</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/tropico-6-review-commanding-power-on-a-dreamy-island-nation/"><u>Tropico 6 Review - Commanding Power on a Dreamy Island Nation</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/unlocking-greater-user-engagement-through-cookiebot-integration/"><u>Unlocking Greater User Engagement Through Cookiebot Integration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-convert-twitter-video-to-audiomp4webm/"><u>[New] 2024 Approved Convert Twitter Video to Audio/MP4/WebM</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-engagement-from-tiktok-to-twitter/"><u>[New] 2024 Approved Maximizing Engagement From TikTok to Twitter</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-streamline-and-supercharge-your-ps3-gameplay-recording-experience/"><u>[New] 2024 Approved Streamline and Supercharge Your PS3 Gameplay Recording Experience</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweetvidtowebm-easy-streaming-tools/"><u>[New] 2024 Approved TweetVidToWebM Easy Streaming Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-experts-guide-to-the-15-top-luts-for-gopro-films/"><u>[New] Expert's Guide to The 15 Top LUTs for GoPro Films</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-enhancing-engagement-tweeting-for-fb-exposure/"><u>[New] In 2024, Enhancing Engagement Tweeting for FB Exposure</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-connecting-twitters-and-facebooks-easily/"><u>[Updated] 2024 Approved Connecting Twitters & Facebooks Easily</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-snapchat-tips-uploading-twitter-videos-for-max-impact/"><u>[Updated] 2024 Approved SnapChat Tips Uploading Twitter Videos for Max Impact</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[Updated] In 2024, Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-produce-high-impact-low-cost-youtube-ads/"><u>2024 Approved How to Produce High-Impact, Low-Cost YouTube Ads?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-making-youtube-videos-come-alive-your-ultimate-guide-to-animated-gifs/"><u>2024 Approved Making YouTube Videos Come Alive Your Ultimate Guide To Animated GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-reclaiming-acoustics-lost-in-social-media-videos/"><u>2024 Approved Reclaiming Acoustics Lost in Social Media Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/download-twitter-gif-3-ways-to-download-gifs-from-twitter-on-your-pc-for-2024/"><u>Download Twitter GIF 3 Ways to Download GIFs From Twitter on Your PC for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-ambient-weather-ws-1002-wifi-sensor-exceptional-accuracy-at-a-premium/"><u>Expert Analysis of the Ambient Weather WS-1002 WiFi Sensor - Exceptional Accuracy at a Premium</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-exploring-digital-realms-metaverse-versus-multiverse-compared/"><u>In 2024, Exploring Digital Realms Metaverse Versus Multiverse Compared</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-swift-tip-extracting-and-storing-twitter-video-on-phone/"><u>In 2024, Swift Tip Extracting and Storing Twitter Video on Phone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723862819212-unbeatable-deal-grab-the-gigabyte-gs32q-quad-hd-32-gaming-display-with-170hz-for-just-199/"><u>Unbeatable Deal: Grab the Gigabyte GS32Q - Quad HD, 32 Gaming Display with 170Hz for Just $199!</u></a></li>
 </ul></div>
 

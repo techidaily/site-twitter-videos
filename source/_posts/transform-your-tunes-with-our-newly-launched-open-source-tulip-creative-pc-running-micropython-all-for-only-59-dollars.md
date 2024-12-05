@@ -1,7 +1,7 @@
 ---
 title: Transform Your Tunes with Our Newly Launched Open-Source Tulip Creative PC Running MicroPython, All for Only 59 Dollars
-date: 2024-11-20T18:16:38.085Z
-updated: 2024-11-25T16:03:08.075Z
+date: 2024-12-02T16:53:18.063Z
+updated: 2024-12-05T07:34:09.949Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,22 +56,15 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-amazon-prime-viewers-who-to-follow-on-twitter-now-for-2024/"><u>[New] Amazon Prime Viewers - Who to Follow on Twitter, Now for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-navigating-the-nuances-zoom-and-youtube-live-streaming-explored/"><u>[New] In 2024, Navigating the Nuances Zoom and YouTube Live Streaming Explored</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-diving-into-twitter-starting-fresh/"><u>[Updated] In 2024, Diving Into Twitter Starting Fresh</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-snort-spree-twitters-funniest-humor-chronicles-for-2024/"><u>[Updated] Snort Spree Twitter’s Funniest Humor Chronicles for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-ultimate-non-twitter-social-sites-of-the-year/"><u>[Updated] Ultimate Non-Twitter Social Sites of the Year</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-whats-winning-in-the-world-of-2023-tweets/"><u>[Updated] What's Winning in the World of 2023 Tweets</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-ultimate-seo-playbook-increase-channels-with-effortless-techniques/"><u>2024 Approved The Ultimate SEO Playbook Increase Channels with Effortless Techniques</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/5-top-ranked-ultra-hd-video-players-for-windows-and-macos-compare-reviews-and-free-downloads/"><u>5 Top-Ranked Ultra HD Video Players for Windows and MacOS: Compare Reviews & Free Downloads</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazon-prime-and-twitter-most-shared-and-liked-shows-23/"><u>Amazon Prime and Twitter Most Shared & Liked Shows, '23</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/daemon-tools/"><u>DAEMON Tools 完全ガイド：イメージファイルで簡単に共有・設定！</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effortless-repairs-for-a-nonfunctioning-astro-a20-microphone/"><u>Effortless Repairs for a Nonfunctioning Astro A20 Microphone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/free-frame-flip-converting-tweets-into-tweenish-movies/"><u>Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/redesign-twitter-video-header-for-2024/"><u>Redesign Twitter Video Header for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-curious-case-of-absent-exclamation-points-in-apples-web-presence-insights-for-seo-enthusiasts-zdnet/"><u>The Curious Case of Absent Exclamation Points in Apple's Web Presence – Insights for SEO Enthusiasts | ZDNet</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-3-scaricatori-di-dvd-senza-costo-per-windows-convertire-i-tuoi-dvd-in-mp4-avi-o-wmv-con-windows-11/"><u>Top 3 Scaricatori Di DVD Senza Costo per Windows - Convertire I Tuoi DVD in MP4, AVI O WMV Con Windows 11</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unlock-peaceful-meal-times-for-your-pet-using-arf-pets-advanced-feeder-technology/"><u>Unlock Peaceful Meal Times for Your Pet Using Arf Pets Advanced Feeder Technology</u></a></li>
-<li><a href="https://solve-luxury.techidaily.com/1728479258182-windows-11/"><u>Windows 11でシャドウイメージを使ったデータ復旧方法</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-addressing-hearing-gaps-in-video-content-sharing-for-2024/"><u>[New] Addressing Hearing Gaps in Video Content Sharing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-artisans-approach-crafting-unique-shareable-youtube-shorts/"><u>[Updated] The Artisan's Approach Crafting Unique, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cringe-worthy-tweets-the-collection/"><u>Cringe-Worthy Tweets The Collection</u></a></li>
+<li><a href="https://win-tips.techidaily.com/high-quality-hd-tropical-nature-scenes-enhance-your-device-with-yl-computings-collection/"><u>High-Quality HD Tropical Nature Scenes - Enhance Your Device with YL Computing's Collection</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-oppo-f23-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Oppo F23 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-c33-2023-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Realme C33 2023 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-from-memes-to-your-device-iosandroid-gif-collection-tips/"><u>In 2024, From Memes to Your Device IOS/Android GIF Collection Tips</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/next-gen-nvidia-gpus-empowered-by-microns-production-of-ultra-fast-24gb-hbm3e-ai-memory-chips-set-for-release-in-q2/"><u>Next-Gen Nvidia GPUs Empowered by Micron's Production of Ultra-Fast 24GB HBM3E AI Memory Chips, Set for Release in Q2</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/social-scoop-twitters-trending-talks/"><u>Social Scoop Twitter’s Trending Talks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-tutorial-how-to-set-a-new-screen-time-password-for-ios-and-macos-devices/"><u>Step-by-Step Tutorial: How to Set a New Screen Time Password for iOS & macOS Devices</u></a></li>
 </ul></div>
 

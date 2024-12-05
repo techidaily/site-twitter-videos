@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2024-11-20T18:42:21.031Z
-updated: 2024-11-25T18:59:50.979Z
+date: 2024-12-03T16:56:16.508Z
+updated: 2024-12-05T02:35:47.352Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,17 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-utilizing-the-power-of-twitter-archive-data/"><u>[New] In 2024, Utilizing the Power of Twitter Archive Data</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-uniting-tiktok-and-twitter-with-one-click/"><u>[Updated] 2024 Approved Uniting TikTok and Twitter with One Click</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-guide-to-ios-screen-recording-essentials-for-2024/"><u>[Updated] Guide to iOS Screen Recording Essentials for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/can-artificamatic-intelligence-like-chatgpt-guide-you-towards-a-more-nourishing-diet/"><u>Can Artificamatic Intelligence, Like ChatGPT, Guide You Towards a More Nourishing Diet?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/chuckle-cache-the-best-humor-tweets-on-twitch-for-2024/"><u>Chuckle Cache The Best Humor Tweets on Twitch for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-review-is-hitman-3-the-ideal-closure/"><u>Comprehensive Review: Is 'Hitman 3' The Ideal Closure?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/effective-strategies-for-utilizing-telegram-desktop-features-for-2024/"><u>Effective Strategies for Utilizing Telegram Desktop Features for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-xs-max-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock iPhone XS Max with/without SIM Card</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-streamlined-social-media-prime-twitter-unfollow-tools-overview/"><u>In 2024, Streamlined Social Media Prime Twitter Unfollow Tools Overview</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-future-of-dev-workflow-with-ai/"><u>The Future of Dev Workflow with AI</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-ultimate-tutorial-on-leveraging-the-excel-navigation-pane-for-quick-data-access/"><u>The Ultimate Tutorial on Leveraging the Excel Navigation Pane for Quick Data Access</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/tweet-without-smileys-linus-disclosed-techniques-trojan-inspection-and-chatbot-limitations/"><u>Tweet Without Smileys, Linus Disclosed Techniques, Trojan Inspection, & ChatBot Limitations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-video-voyaging-navigating-twittersphere-and-tumbleverse/"><u>[New] 2024 Approved Video Voyaging Navigating Twittersphere & Tumbleverse</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-the-comprehensive-guide-to-mastering-facetune-app-features-for-2024/"><u>[New] The Comprehensive Guide to Mastering Facetune App Features for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-viral-verdict-twitters-top-10-threads-for-2024/"><u>[New] The Viral Verdict Twitter's Top 10 Threads for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-smile-slam-the-best-comedy-moments-on-social-media/"><u>[Updated] 2024 Approved Smile Slam The Best Comedy Moments on Social Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-high-speed-media-manipulation-a-practical-approach/"><u>[Updated] High-Speed Media Manipulation A Practical Approach</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[Updated] In 2024, Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-battlefield-tiktoks-top-10-twitters/"><u>2024 Approved The Social Media Battlefield TikTok's Top 10 Twitters</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/comparative-analysis-of-leading-ais-gpt-vs-microsoftgoogles-creations/"><u>Comparative Analysis of Leading AIs: GPT Vs. Microsoft/Google's Creations</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/cosmicinfo-reconstruction/"><u>CosmicInfo Reconstruction</u></a></li>
+<li><a href="https://fox-search.techidaily.com/guide-to-restoring-lost-data-with-winfr-software-for-windows-xpvista781011/"><u>Guide to Restoring Lost Data with Winfr Software for Windows XP/Vista/7/8/10/11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/introducing-smartwatches-a-deep-dive-into-their-functions-and-benefits/"><u>Introducing Smartwatches - A Deep Dive Into Their Functions & Benefits</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-league-of-legends-disruptions-fast-with-these-tips/"><u>Resolve League of Legends Disruptions Fast with These Tips</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-rated-magsafe-wallet-options-comprehensive-reviews-by-professionals-tech-insights-from-zdnet/"><u>Top Rated MagSafe Wallet Options : Comprehensive Reviews by Professionals - Tech Insights From ZDNet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-tweet-talent-showdown-1-10-edition/"><u>Top Tweet Talent Showdown #1-#10 Edition</u></a></li>
 </ul></div>
 

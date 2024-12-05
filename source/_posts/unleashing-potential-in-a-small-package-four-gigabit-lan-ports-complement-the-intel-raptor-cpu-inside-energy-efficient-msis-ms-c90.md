@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-11-19T16:18:49.665Z
-updated: 2024-11-25T16:09:24.348Z
+date: 2024-11-28T12:01:13.825Z
+updated: 2024-12-04T20:31:20.198Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,22 +56,22 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-bridge-issue-video-not-playing-tweet-in-chrome/"><u>[New] In 2024, Bridge Issue Video Not Playing Tweet in Chrome</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-funny-frenzy-top-10-tweets/"><u>[New] In 2024, Funny Frenzy Top 10 Tweets</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-essential-musicians-guide-to-copyright-compliance-on-ig/"><u>[Updated] 2024 Approved The Essential Musician's Guide to Copyright Compliance on IG</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-visuals-saving-and-downloading-on-smartphones/"><u>[Updated] In 2024, Twitter's Visuals Saving and Downloading on Smartphones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-top-amazon-prime-tweets-favorites-galore-for-2024/"><u>[Updated] Top Amazon Prime Tweets Favorites Galore for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-compelling-content-weaving-text-into-os-imagery/"><u>2024 Approved Crafting Compelling Content Weaving Text Into OS Imagery</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/tiff-png-movavi/"><u>免費在線 TiFF 到 PNG 格式轉換 - 使用Movavi編譯器</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/a-complete-walkthrough-deactivating-microsofts-new-ai-tool-from-windows-11/"><u>A Complete Walkthrough: Deactivating Microsoft's New AI Tool From Windows 11</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/advanced-guide-to-choosing-the-perfect-gaming-motherboard-ranked-by-socket-type-and-core-architecture/"><u>Advanced Guide to Choosing the Perfect Gaming Motherboard – Ranked by Socket Type and Core Architecture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/comedy-kings-and-queens-whos-tops-for-2024/"><u>Comedy Kings and Queens Who's Tops for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-connection-through-respectful-engagement-for-2024/"><u>Fostering Connection Through Respectful Engagement for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-2023-top-10-trending-videos-on-twitter/"><u>In 2024, 2023 | Top 10 Trending Videos on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reel-revolution-enjoying-twitter-videos-at-ultimate-quality/"><u>In 2024, Reel Revolution Enjoying Twitter Videos at Ultimate Quality</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/sers-mastering-chic-videos-for-your-first-youtube-post/"><u>Mac Users Mastering Chic Videos for Your First YouTube Post</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/the-15-most-effective-live-sports-streaming-methods/"><u>The 15 Most Effective Live Sports Streaming Methods</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweaking-image-previews-for-youtube-like-experience-in-twitter-videos/"><u>Tweaking Image Previews for YouTube-Like Experience in Twitter Videos</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/windows-11-the-ultimate-screen-grabber-collection-for-2024/"><u>Windows 11 The Ultimate Screen Grabber Collection for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-art-of-creating-youtube-video-thumbnails/"><u>[New] 2024 Approved The Art of Creating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-from-jumble-to-flow-kinemasters-editing-masterclass/"><u>[New] In 2024, From Jumble to Flow Kinemaster's Editing Masterclass</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-leveraging-likes-uploading-and-sharing-twitter-videos-to-snapchat-for-2024/"><u>[New] Leveraging Likes Uploading & Sharing Twitter Videos to Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-march-unstoppable-videos-hit-the-tweetsphere/"><u>[New] Meme March Unstoppable Videos Hit the Tweetsphere</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-roadmap-for-effective-advertising-on-facebook/"><u>[New] The Roadmap for Effective Advertising on Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-viral-visionaries-top-meme-creators-on-social-media/"><u>[New] Viral Visionaries Top Meme Creators on Social Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/broadcasting-innovations-combining-tv-and-social-media-for-2024/"><u>Broadcasting Innovations Combining TV & Social Media for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/efficient-stellar-file-wizard-customizable-windows-auto-delete-task-scheduler/"><u>Efficient Stellar File Wizard: Customizable Window's Auto-Delete Task Scheduler</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/exploring-and-utilizing-your-twitter-archive/"><u>Exploring and Utilizing Your Twitter Archive</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone 6s Plus</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twit-tumble-sharing-videos-seamlessly/"><u>In 2024, Twit-Tumble Sharing Videos Seamlessly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-understanding-the-social-tv-landscape-rokus-role/"><u>In 2024, Understanding the Social TV Landscape Roku's Role</u></a></li>
+<li><a href="https://games-able.techidaily.com/leading-asus-rog-ally-docks-best-of-2024/"><u>Leading ASUS ROG Ally Docks - Best of 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/streaming-the-threads-an-all-inclusive-2023-vlog-series/"><u>Streaming the Threads An All-Inclusive 2023 Vlog Series</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-viral-hit-list-tiktok-edition-for-2024/"><u>Twitter's Viral Hit List TikTok Edition for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/upgrading-twitter-video-fidelity-to-4k/"><u>Upgrading Twitter Video Fidelity to 4K</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ayaneo Unveils the Newly Launched AMD-Driven Mini PC: The Classic Macintosh Revival - Now in Retail!"
-date: 2024-11-18T17:48:28.661Z
-updated: 2024-11-25T16:45:38.416Z
+date: 2024-12-01T20:07:17.727Z
+updated: 2024-12-04T19:16:14.773Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,21 +76,24 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-reach-sharing-twitters-vids-via-snapchat/"><u>[New] 2024 Approved Maximizing Reach Sharing Twitters' Vids via Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-prime-video-hits-on-twitter-the-most-popular-watches-of-23/"><u>[New] In 2024, Prime Video Hits on Twitter The Most Popular Watches of '23</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweettracker-monitor-and-grab-visuals-from-social-feeds/"><u>[New] In 2024, TweetTracker Monitor & Grab Visuals From Social Feeds</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[Updated] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-examining-youtubes-workflow-after-content-submission/"><u>[Updated] Examining YouTube's Workflow After Content Submission</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-necessary-details-for-twitter-video-submissions-aspect-ratio/"><u>[Updated] Necessary Details for Twitter Video Submissions (Aspect Ratio)</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209570720-9781510727502-angel-chatter/"><u>Angel Chatter | Free Book</u></a></li>
-<li><a href="https://program-issues.techidaily.com/crash-no-more-effective-solutions-for-left-4-dead-2-gameplay-problems/"><u>Crash No More: Effective Solutions for Left 4 Dead 2 Gameplay Problems</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/ending-windows-10-screen-flip-mishap/"><u>Ending Windows 10 Screen Flip Mishap</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/frame-rate-impact-on-video-quality-30vs60-in-detail/"><u>Frame Rate Impact on Video Quality 30Vs.60 In Detail</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/professionelle-tipps-zur-optimalen-nutzung-von-handbrake-fur-blu-ray-ripping-projekte/"><u>Professionelle Tipps Zur Optimalen Nutzung Von HandBrake Für Blu-Ray Ripping-Projekte</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/resolving-wi-fi-disconnection-problems-a-comprehensive-guide-for-ipad-users/"><u>Resolving Wi-Fi Disconnection Problems: A Comprehensive Guide for iPad Users</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/unraveling-the-mystery-behind-persistent-crashing-of-dirt-5-in-windows-gaming-pcs-a-comprehensive-guide/"><u>Unraveling the Mystery Behind Persistent Crashing of Dirt 5 in Windows Gaming PCs - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubes-beauty-titans-whos-leading-for-2024/"><u>YouTube's Beauty Titans Who's Leading for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-why-is-there-no-sound-on-twitter-videos-fixes/"><u>[New] 2024 Approved Why Is There No Sound on Twitter Videos? | Fixes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elevating-vlogging-to-new-heights-yi-hero-reviewed-for-2024/"><u>[New] Elevating Vlogging to New Heights Yi Hero Reviewed for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-secrets-to-successful-twitpicingvideo-edition-for-2024/"><u>[New] Secrets to Successful Twitpicing—Video Edition for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-rhythm-revivers-guide-to-distorted-beats/"><u>[Updated] 2024 Approved The Rhythm Reviver's Guide to Distorted Beats</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-independent-game-apps-for-screen-free-android-playing/"><u>[Updated] 2024 Approved Top Independent Game Apps for Screen-Free Android Playing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-whats-winning-in-the-world-of-2023-tweets/"><u>[Updated] 2024 Approved What's Winning in the World of 2023 Tweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-from-tweets-to-tomes-the-full-year-in-video/"><u>[Updated] In 2024, From Tweets to Tomes The Full Year in Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-integrating-twitter-promotions-into-your-digital-strategy/"><u>[Updated] Integrating Twitter Promotions Into Your Digital Strategy</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-sculpt-social-shares/"><u>[Updated] Sculpt Social Shares</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat-for-2024/"><u>[Updated] Streamline Your Content Posting Twitter Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-win10-video-capture-pro-professional-edition-for-2024/"><u>[Updated] Win10 Video Capture Pro - Professional Edition for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/(3-on-screen-effortless-ways-to-type-a-heart-on-your-computer/"><u><3 On Screen: Effortless Ways to Type a Heart on Your Computer</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-scripts-reflecting-diverse-genre-themes/"><u>2024 Approved Pioneering Scripts Reflecting Diverse Genre Themes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/audio-take-from-twitter-video-sources/"><u>Audio Take From Twitter Video Sources</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/does-chatgpt-adhere-to-a-maximum-character-or-word-count-in-its-replies/"><u>Does ChatGPT Adhere to a Maximum Character or Word Count in Its Replies?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-loops-crafting-comical-content-for-brevity-based-videos-for-2024/"><u>Laugh Loops Crafting Comical Content for Brevity-Based Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/perfecting-the-art-of-twitter-broadcasts/"><u>Perfecting the Art of Twitter Broadcasts</u></a></li>
+<li><a href="https://driver-error.techidaily.com/smooth-sailing-with-elan-touchpad-on-new-windows-11/"><u>Smooth Sailing with Elan Touchpad on New Windows 11</u></a></li>
 </ul></div>
 

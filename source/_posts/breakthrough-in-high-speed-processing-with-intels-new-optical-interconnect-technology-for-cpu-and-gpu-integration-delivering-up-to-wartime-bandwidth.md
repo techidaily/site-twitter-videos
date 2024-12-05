@@ -1,7 +1,7 @@
 ---
 title: Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth
-date: 2024-11-19T16:15:00.047Z
-updated: 2024-11-25T16:59:09.094Z
+date: 2024-11-28T16:30:25.213Z
+updated: 2024-12-05T00:07:33.369Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,19 +76,24 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-enhancing-speed-for-vimeo-playback/"><u>[New] Enhancing Speed for Vimeo Playback</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-from-social-networks-to-personal-messages-twitchs-journey-through-whatsapp-for-2024/"><u>[New] From Social Networks to Personal Messages Twitch's Journey Through WhatsApp for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-premier-alternatives-exceeding-the-limits-of-twitter/"><u>[New] In 2024, Premier Alternatives Exceeding the Limits of Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-meme-titans-reddit-and-twitters-biggest-sensations/"><u>[Updated] 2024 Approved The Meme Titans Reddit & Twitter's Biggest Sensations</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-exclusive-selection-of-fastest-screen-capture-apps/"><u>[Updated] In 2024, Exclusive Selection of Fastest Screen Capture Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-navigating-new-user-registration-on-twitter/"><u>2024 Approved Navigating New User Registration on Twitter</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-viral-victory-top-10-triumphant-tiktok-struggles/"><u>2024 Approved Viral Victory Top 10 Triumphant TikTok Struggles</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/1721266325059-get-your-stellar-iphone-eraser-now/"><u>Get Your Stellar iPhone Eraser Now!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-create-a-new-twitter-account-for-2024/"><u>How to Create a New Twitter Account for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/immediate-suppression-of-windows-11-notifications/"><u>Immediate Suppression of Windows 11 Notifications</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-essential-steps-for-saving-tweets-visuals-in-android-app/"><u>In 2024, Essential Steps for Saving Tweets' Visuals in Android App</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/revolutionizing-recruitment-the-impact-of-ai-on-human-resources/"><u>Revolutionizing Recruitment: The Impact of AI on Human Resources</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/smart-techniques-to-elevate-your-youtube-summaries/"><u>Smart Techniques to Elevate Your Youtube Summaries</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pixel-power-unveiling-youtubes-twitter-crew/"><u>[New] 2024 Approved Pixel Power Unveiling YouTube's Twitter Crew</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-standard-to-special-a-guide-to-the-best-custom-box-stores-on-the-internet/"><u>[New] From Standard to Special A Guide to the Best Custom Box Stores on the Internet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-maximize-impact-tweeting-with-videos/"><u>[New] In 2024, Maximize Impact Tweeting with Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-easy-guide-to-taking-and-saving-twitters-gifs-for-2024/"><u>[New] The Easy Guide to Taking and Saving Twitter's Gifs for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-premier-sites-for-tweeting-in-a-post-twitter-era/"><u>[Updated] 2024 Approved Premier Sites for Tweeting in a Post-Twitter Era</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-art-of-capture-and-storage-managing-snapshots-like-a-pro/"><u>[Updated] In 2024, The Art of Capture and Storage Managing Snapshots Like a Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-wit-wave-twitters-funniest-content/"><u>[Updated] Wit Wave Twitter's Funniest Content</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>2024 Approved Animation Amalgamator A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-poco-x5-pro-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Poco X5 Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-correctly-resolve-your-dota-2-valve-anti-cheat-issue-vac-in-2e22/"><u>How to Correctly Resolve Your DOTA 2 Valve Anti-Cheat Issue (VAC) in 2E22</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y200-phone-without-password-by-drfone-android/"><u>How To Unlock Vivo Y200 Phone Without Password?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-elevate-vfx-free-luts-for-dji-drones-then-paid-services/"><u>In 2024, Elevate VFX Free LUTS for DJI Drones, Then Paid Services</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-jokes-that-rule-top-twenty-on-social-networks/"><u>In 2024, Jokes that Rule Top Twenty on Social Networks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-easy-guide-to-taking-and-saving-twitters-gifs/"><u>In 2024, The Easy Guide to Taking and Saving Twitter's Gifs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tailored-thumbnail-for-social-media-vids-for-2024/"><u>Tailored Thumbnail for Social Media Vids for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-easy-way-to-get-discord-up-and-running-on-mac/"><u>The Easy Way to Get Discord Up and Running on Mac</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/understanding-the-disposition-effect-in-trading-strategies-an-in-depth-analysis/"><u>Understanding the Disposition Effect in Trading Strategies - An In-Depth Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2024-11-18T18:24:52.717Z
-updated: 2024-11-25T16:54:47.546Z
+date: 2024-11-28T04:05:53.536Z
+updated: 2024-12-04T20:16:33.392Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,19 +89,18 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastering-aspect-ratio-compliance-in-micro-video-tweets/"><u>[New] 2024 Approved Mastering Aspect Ratio Compliance in Micro-Video Tweets</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-free-video-embedding-for-dynamic-online-articles-for-2024/"><u>[New] Free Video Embedding for Dynamic Online Articles for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-video-transmission-from-twitters-to-whatsapp/"><u>[New] In 2024, Direct Video Transmission From Twitters to WhatsApp</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-crown-jewels-the-most-liked-and-binge-watched-content-for-2024/"><u>[New] Twitter's Crown Jewels The Most Liked & Binge-Watched Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-free-frame-flip-converting-tweets-into-tweenish-movies/"><u>[Updated] In 2024, Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-snippet-collection-mastery-efficient-method-for-downloading-animated-tweet-graphics/"><u>2024 Approved Social Snippet Collection Mastery Efficient Method for Downloading Animated Tweet Graphics</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-tecno-camon-20-pro-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Tecno Camon 20 Pro 5G Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/harnessing-multiple-windows-learn-pip-in-microsoft-edge-for-2024/"><u>Harnessing Multiple Windows Learn PIP in Microsoft Edge for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Apple iPhone 14? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/master-iphone-screen-recording-in-minutes-for-2024/"><u>Master iPhone Screen Recording in Minutes for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/mp4-and-webm-extraction-from-social-media-streams-for-2024/"><u>MP4 & WebM Extraction From Social Media Streams for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/resolving-gsvfdlg32dll-missing-file-mishap-a-step-by-step-guide/"><u>Resolving gsvfdlg32.dll Missing File Mishap: A Step-by-Step Guide</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/tecnicas-expertas-para-solucionar-fallos-de-respaldo-en-windows-11/"><u>Técnicas Expertas Para Solucionar Fallos De Respaldo en Windows 11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-a-guide-to-the-avant-garde-of-the-internets-av-masters/"><u>[New] A Guide to the Avant-Garde of the Internet's AV Masters</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-laugh-ledger-the-ultimate-list-of-hilarious-tweet-threads-for-2024/"><u>[New] Laugh Ledger The Ultimate List of Hilarious Tweet Threads for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-unlocking-full-hd-magic-for-your-twitter-vidz-for-2024/"><u>[New] Unlocking Full HD Magic for Your Twitter Vidz for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-quick-technique-downloading-tweet-videos-to-your-phone/"><u>[Updated] Quick Technique Downloading Tweet Videos to Your Phone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-snapseed-101-easy-steps-for-image-transformation/"><u>[Updated] Snapseed 101 Easy Steps for Image Transformation</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-unveiling-top-10-trending-tweets-of-2023-for-2024/"><u>[Updated] Unveiling Top 10 Trending Tweets of 2023 for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Vivo Y78+ (T1) Edition? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-broadcasting-vids-directly-from-phone-twitter-without-retweets/"><u>In 2024, Broadcasting Vids Directly From Phone – Twitter, Without Retweets</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-show-wi-fi-password-on-vivo-v27-pro-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Vivo V27 Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/revolutionizing-gaming-analyzing-kinemasters-android-version/"><u>Revolutionizing Gaming Analyzing KineMaster's Android Version</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-solutions-for-overcoming-audio-playback-problems-in-microsoft-powerpoint/"><u>Step-by-Step Solutions for Overcoming Audio Playback Problems in Microsoft PowerPoint</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/viral-amazon-prime-videos-from-twitter/"><u>Viral Amazon Prime Videos From Twitter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-9-free-full-length-christmas-movies-on-youtube-for-2024/"><u>Watch 9 Free Full Length Christmas Movies On YouTube for 2024</u></a></li>
 </ul></div>
 
