@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-11-28T12:01:13.825Z
-updated: 2024-12-04T20:31:20.198Z
+date: 2024-12-09T08:03:27.578Z
+updated: 2024-12-10T19:49:34.115Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,22 +56,24 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-art-of-creating-youtube-video-thumbnails/"><u>[New] 2024 Approved The Art of Creating YouTube Video Thumbnails</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-from-jumble-to-flow-kinemasters-editing-masterclass/"><u>[New] In 2024, From Jumble to Flow Kinemaster's Editing Masterclass</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-leveraging-likes-uploading-and-sharing-twitter-videos-to-snapchat-for-2024/"><u>[New] Leveraging Likes Uploading & Sharing Twitter Videos to Snapchat for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-meme-march-unstoppable-videos-hit-the-tweetsphere/"><u>[New] Meme March Unstoppable Videos Hit the Tweetsphere</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-the-roadmap-for-effective-advertising-on-facebook/"><u>[New] The Roadmap for Effective Advertising on Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-viral-visionaries-top-meme-creators-on-social-media/"><u>[New] Viral Visionaries Top Meme Creators on Social Media</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/broadcasting-innovations-combining-tv-and-social-media-for-2024/"><u>Broadcasting Innovations Combining TV & Social Media for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/efficient-stellar-file-wizard-customizable-windows-auto-delete-task-scheduler/"><u>Efficient Stellar File Wizard: Customizable Window's Auto-Delete Task Scheduler</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/exploring-and-utilizing-your-twitter-archive/"><u>Exploring and Utilizing Your Twitter Archive</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone 6s Plus</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-twit-tumble-sharing-videos-seamlessly/"><u>In 2024, Twit-Tumble Sharing Videos Seamlessly</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-understanding-the-social-tv-landscape-rokus-role/"><u>In 2024, Understanding the Social TV Landscape Roku's Role</u></a></li>
-<li><a href="https://games-able.techidaily.com/leading-asus-rog-ally-docks-best-of-2024/"><u>Leading ASUS ROG Ally Docks - Best of 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/streaming-the-threads-an-all-inclusive-2023-vlog-series/"><u>Streaming the Threads An All-Inclusive 2023 Vlog Series</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-viral-hit-list-tiktok-edition-for-2024/"><u>Twitter's Viral Hit List TikTok Edition for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/upgrading-twitter-video-fidelity-to-4k/"><u>Upgrading Twitter Video Fidelity to 4K</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitsnap-secure-effortless-methods-for-downloading-tweets-videos/"><u>[New] 2024 Approved TwitSnap Secure Effortless Methods for Downloading Tweets' Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-understanding-ip-rules-for-instasongs/"><u>[New] 2024 Approved Understanding IP Rules for InstaSongs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-best-gear-for-comprehensively-filmed-action/"><u>[New] Best Gear for Comprehensively Filmed Action</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-twitters-live-video-engagement/"><u>[New] In 2024, Mastering the Art of Twitter's Live Video Engagement</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-twitter-cleanup-top-apps-for-efficient-management/"><u>[New] In 2024, Mastering Twitter Cleanup Top Apps for Efficient Management</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prime-17-background-eradication-software-reviews/"><u>[New] Prime 17 Background Eradication Software Reviews</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-professional-perception-pioneering-hdr-art-with-photoshop/"><u>[New] Professional Perception Pioneering HDR Art with PhotoShop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficient-iphoneandroid-guide-for-tweets-as-visuals/"><u>[Updated] 2024 Approved Efficient iPhone/Android Guide for Tweets as Visuals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-champs-twitters-humor-heap/"><u>[Updated] Chuckle-Champs Twitter’s Humor Heap</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-connect-your-tiktok-creativity-to-twitter/"><u>2024 Approved Connect Your TikTok Creativity to Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/alleviate-problem-buffering-tweets-in-chromebook/"><u>Alleviate Problem Buffering Tweets in Chromebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/choosing-between-vlc-and-mx-for-video-enjoyment-for-2024/"><u>Choosing Between VLC and MX for Video Enjoyment for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/how-to-reach-more-users-by-using-instagram-live-shopping/"><u>How To Reach More Users by Using Instagram Live Shopping</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-comedy-cornucopia-twitters-best/"><u>In 2024, Comedy Cornucopia Twitter's Best</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-creating-accessibility-your-guide-to-an-intuitive-youtube-signup/"><u>In 2024, Creating Accessibility Your Guide to an Intuitive YouTube Signup</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-the-art-of-attracting-more-youtube-admirers-for-2024/"><u>Mastering the Art of Attracting More YouTube Admirers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-and-utilizing-steams-creative-workshop-space/"><u>Navigating and Utilizing Steam’s Creative Workshop Space</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/quick-technique-downloading-tweet-videos-to-your-phone/"><u>Quick Technique Downloading Tweet Videos to Your Phone</u></a></li>
 </ul></div>
 

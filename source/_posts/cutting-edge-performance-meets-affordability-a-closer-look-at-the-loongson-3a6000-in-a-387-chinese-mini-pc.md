@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2024-12-03T16:56:16.508Z
-updated: 2024-12-05T02:35:47.352Z
+date: 2024-12-05T13:29:58.690Z
+updated: 2024-12-11T14:04:56.830Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,19 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-video-voyaging-navigating-twittersphere-and-tumbleverse/"><u>[New] 2024 Approved Video Voyaging Navigating Twittersphere & Tumbleverse</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-the-comprehensive-guide-to-mastering-facetune-app-features-for-2024/"><u>[New] The Comprehensive Guide to Mastering Facetune App Features for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-viral-verdict-twitters-top-10-threads-for-2024/"><u>[New] The Viral Verdict Twitter's Top 10 Threads for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-smile-slam-the-best-comedy-moments-on-social-media/"><u>[Updated] 2024 Approved Smile Slam The Best Comedy Moments on Social Media</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-high-speed-media-manipulation-a-practical-approach/"><u>[Updated] High-Speed Media Manipulation A Practical Approach</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-elevate-your-content-top-rated-cameras-for-youtubers/"><u>[Updated] In 2024, Elevate Your Content Top-Rated Cameras for YouTubers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-battlefield-tiktoks-top-10-twitters/"><u>2024 Approved The Social Media Battlefield TikTok's Top 10 Twitters</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/comparative-analysis-of-leading-ais-gpt-vs-microsoftgoogles-creations/"><u>Comparative Analysis of Leading AIs: GPT Vs. Microsoft/Google's Creations</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/cosmicinfo-reconstruction/"><u>CosmicInfo Reconstruction</u></a></li>
-<li><a href="https://fox-search.techidaily.com/guide-to-restoring-lost-data-with-winfr-software-for-windows-xpvista781011/"><u>Guide to Restoring Lost Data with Winfr Software for Windows XP/Vista/7/8/10/11</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/introducing-smartwatches-a-deep-dive-into-their-functions-and-benefits/"><u>Introducing Smartwatches - A Deep Dive Into Their Functions & Benefits</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolve-league-of-legends-disruptions-fast-with-these-tips/"><u>Resolve League of Legends Disruptions Fast with These Tips</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-rated-magsafe-wallet-options-comprehensive-reviews-by-professionals-tech-insights-from-zdnet/"><u>Top Rated MagSafe Wallet Options : Comprehensive Reviews by Professionals - Tech Insights From ZDNet</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/top-tweet-talent-showdown-1-10-edition/"><u>Top Tweet Talent Showdown #1-#10 Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-integrating-external-websites-into-instagrams-ecosystem/"><u>[New] 2024 Approved Integrating External Websites Into Instagram's Ecosystem</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-top-20-best-twitter-unfollowers-and-tools/"><u>[Updated] 2024 Approved Top 20 Best Twitter Unfollowers & Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>[Updated] In 2024, Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-top-jokesters/"><u>[Updated] In 2024, Twitter's Top Jokesters</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-nostalgia-frame-portraits-on-the-x-phone/"><u>[Updated] Nostalgia Frame Portraits on the X Phone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-a-guide-to-tiktoks-pfp-acronym-explained/"><u>2024 Approved A Guide to TikTok's PFP Acronym Explained</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-professional-streaming-the-premier-6-zoom-webcam-picks/"><u>2024 Approved Professional Streaming The Premier #6 Zoom Webcam Picks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazons-all-star-series-most-retweeted-and-watched-originals-for-2024/"><u>Amazon's All-Star Series Most Retweeted & Watched Originals for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-installation-guide-dell-g15-graphics-driver-for-windows/"><u>Download and Installation Guide: Dell G15 Graphics Driver for Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/end-audio-blackout-vocalize-tweet-videos/"><u>End Audio Blackout Vocalize Tweet Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/gifify-your-twit-making-vids-free-and-flashy/"><u>Gifify Your Twit Making Vids Free & Flashy</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-reestablish-disconnected-network-on-windows-pcs/"><u>How to Reestablish Disconnected Network on Windows PCs</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-discovering-the-ultimate-set-of-text-tools-for-ae-artistry/"><u>In 2024, Discovering the Ultimate Set of Text Tools for AE Artistry</u></a></li>
+<li><a href="https://games-able.techidaily.com/tackling-troublesome-display-driver-failed-error-on-windows-1111-update/"><u>Tackling Troublesome Display Driver Failed Error on Windows 11/11 Update</u></a></li>
 </ul></div>
 

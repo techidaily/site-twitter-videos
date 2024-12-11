@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-12-02T23:40:20.142Z
-updated: 2024-12-05T02:24:11.288Z
+date: 2024-12-03T19:49:04.332Z
+updated: 2024-12-11T01:59:40.317Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/facaba7a5fd4b37097e51780f00827156432b8b7f
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WDbYK32TR0KZYkaW6A8K51jQSpU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -42,7 +46,7 @@ Lifewire / Emily Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
@@ -50,7 +54,7 @@ Lifewire / Emily Isaacs
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -80,6 +84,10 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Unfortunately, some larger keyboards can trade wrist injuries for shoulder injuries as their users overreach for mice, which brings a whole new set of problems to the table. While it may be a bit of a space hog, and not a terribly sleek or attractive one at that, the Fellowes Microban Split Wired Keyboard has solved both of these issues. What’s more, its ergonomic split design is easy to use and surprisingly comfortable.
@@ -90,6 +98,10 @@ Lifewire / Emily Isaacs
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Plug and play**
 
  The keyboard doesn’t arrive with much. It comes in a mid-size box with the keyboard itself and an accessory pamphlet that addresses some frequently asked questions regarding Microban technology. Setting up is quite easy. It’s a plug and play device, which means that when the keyboard is connected to the computer, the computer will recognize the device is there and you can begin using it immediately.
@@ -98,27 +110,15 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Features: Multimedia hotkeys for ease of use**
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
 
  It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: A budget-friendly ergonomic keyboard**
 
@@ -175,22 +175,17 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-convert-twitter-video-to-audiomp4webm/"><u>[New] 2024 Approved Convert Twitter Video to Audio/MP4/WebM</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-engagement-from-tiktok-to-twitter/"><u>[New] 2024 Approved Maximizing Engagement From TikTok to Twitter</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-streamline-and-supercharge-your-ps3-gameplay-recording-experience/"><u>[New] 2024 Approved Streamline and Supercharge Your PS3 Gameplay Recording Experience</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweetvidtowebm-easy-streaming-tools/"><u>[New] 2024 Approved TweetVidToWebM Easy Streaming Tools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-experts-guide-to-the-15-top-luts-for-gopro-films/"><u>[New] Expert's Guide to The 15 Top LUTs for GoPro Films</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-enhancing-engagement-tweeting-for-fb-exposure/"><u>[New] In 2024, Enhancing Engagement Tweeting for FB Exposure</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-connecting-twitters-and-facebooks-easily/"><u>[Updated] 2024 Approved Connecting Twitters & Facebooks Easily</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-snapchat-tips-uploading-twitter-videos-for-max-impact/"><u>[Updated] 2024 Approved SnapChat Tips Uploading Twitter Videos for Max Impact</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[Updated] In 2024, Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-produce-high-impact-low-cost-youtube-ads/"><u>2024 Approved How to Produce High-Impact, Low-Cost YouTube Ads?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-making-youtube-videos-come-alive-your-ultimate-guide-to-animated-gifs/"><u>2024 Approved Making YouTube Videos Come Alive Your Ultimate Guide To Animated GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-reclaiming-acoustics-lost-in-social-media-videos/"><u>2024 Approved Reclaiming Acoustics Lost in Social Media Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/download-twitter-gif-3-ways-to-download-gifs-from-twitter-on-your-pc-for-2024/"><u>Download Twitter GIF 3 Ways to Download GIFs From Twitter on Your PC for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-analysis-of-the-ambient-weather-ws-1002-wifi-sensor-exceptional-accuracy-at-a-premium/"><u>Expert Analysis of the Ambient Weather WS-1002 WiFi Sensor - Exceptional Accuracy at a Premium</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-exploring-digital-realms-metaverse-versus-multiverse-compared/"><u>In 2024, Exploring Digital Realms Metaverse Versus Multiverse Compared</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-swift-tip-extracting-and-storing-twitter-video-on-phone/"><u>In 2024, Swift Tip Extracting and Storing Twitter Video on Phone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/1723862819212-unbeatable-deal-grab-the-gigabyte-gs32q-quad-hd-32-gaming-display-with-170hz-for-just-199/"><u>Unbeatable Deal: Grab the Gigabyte GS32Q - Quad HD, 32 Gaming Display with 170Hz for Just $199!</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-best-way-to-record-podcast-remotely/"><u>2024 Approved Best Way to Record Podcast Remotely</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-spark-joy-with-these-14-playful-text-animations/"><u>2024 Approved Spark Joy with These 14 Playful Text Animations</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/building-a-brand-the-art-of-creating-attention-grabbing-reels-on-social-media-for-2024/"><u>Building a Brand The Art of Creating Attention-Grabbing Reels on Social Media for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-samsung-galaxy-tab-a-2020-analysis-uncover-the-absence-of-essential-functionality/"><u>Comprehensive Samsung Galaxy Tab A 2020 Analysis - Uncover the Absence of Essential Functionality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/discover-cutting-edge-tech-with-insights-from-toms-hardware-experts/"><u>Discover Cutting-Edge Tech with Insights From Tom's Hardware Experts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhanced-computing-gigabyte-leads-the-charge-in-ai-tech-with-branded-workstations-premium-gpus-from-amdintel-and-essential-ssds/"><u>Enhanced Computing: Gigabyte Leads the Charge in AI Tech with Branded Workstations, Premium GPUs From AMD/Intel & Essential SSDs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/explore-top-5-apps-combining-photography-and-soundscape-for-2024/"><u>Explore Top 5 Apps Combining Photography & Soundscape for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-make-a-channel-trailer/"><u>In 2024, How to Make a Channel Trailer</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-premier-10plus-free-video-intro-creators/"><u>In 2024, Premier 10+ Free Video Intro Creators</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/1723262399490-save-big-on-a-high-performance-cyberpower-desktop-999-with-nvidia-rtx-4060-and-more/"><u>Save Big on a High-Performance CyberPower Desktop: $999 with Nvidia RTX 4060 & More</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-twitch-ai-upgrade-top-7-bot-selections-to-enhance-streaming/"><u>The Ultimate Twitch AI Upgrade: Top 7 Bot Selections To Enhance Streaming</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-picks-unmissable-black-friday-bargains-on-tribit-sound-gear/"><u>Top Picks: Unmissable Black Friday Bargains on Tribit Sound Gear</u></a></li>
 </ul></div>
 

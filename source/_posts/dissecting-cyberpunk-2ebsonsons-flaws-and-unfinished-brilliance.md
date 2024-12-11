@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2024-12-01T07:22:49.204Z
-updated: 2024-12-05T01:38:25.257Z
+date: 2024-12-03T20:18:58.288Z
+updated: 2024-12-10T17:54:33.904Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -39,13 +39,13 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -77,10 +77,6 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -90,7 +86,7 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
@@ -105,6 +101,10 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -112,10 +112,6 @@ Lifewire / Emily Ramirez
  Should you happen to own dynamic headphones, you should find their impedance curve. Dynamic headphones with a high impedance may be distorted by the ACM, thanks to the ACM’s high resistance. How your headphones will be affected depends on their impedance curve: for the HD800s, for example, there is a peak at 100Hz (this range captures electric bass and the lower octaves of guitars), so the upper bass range is boosted relative to the other frequencies in the audio. Increasing the volume on the ACM reduces its output resistance and in turn reduces the distortion, but it may be easier to plug equipment directly into the sound card and use the system volume instead.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -128,16 +124,12 @@ Lifewire / Emily Ramirez
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -159,10 +151,18 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,18 +202,22 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-accelerated-windows-content-verification/"><u>[New] In 2024, Accelerated Windows Content Verification</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-apex-alternatives-social-networks-beyond-twitter/"><u>[New] In 2024, Apex Alternatives Social Networks Beyond Twitter</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-inside-virtuality-metaverse-vs-omniverse-in-focus-for-2024/"><u>[New] Inside Virtuality Metaverse Vs. Omniverse in Focus for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-accessing-your-twitter-history/"><u>[Updated] 2024 Approved Accessing Your Twitter History</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-inside-track-on-calculating-your-youtube-impact-and-income/"><u>[Updated] 2024 Approved Inside Track on Calculating Your YouTube Impact and Income</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-expert-speaker-change-devices-for-youtube-gurus-for-2024/"><u>[Updated] Expert Speaker Change Devices for YouTube Gurus for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-integrating-twitter-videos-into-facebook-social-graph/"><u>[Updated] Integrating Twitter Videos Into Facebook Social Graph</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/elevate-your-twitter-video-experience-full-hd-edition-for-2024/"><u>Elevate Your Twitter Video Experience Full HD Edition for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/explore-the-best-free-streaming-options-similar-to-netflix-ranked/"><u>Explore the Best Free Streaming Options Similar To Netflix, Ranked!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722968127738-get-the-latest-canon-pixma-ts3322-printer-driver-download-now/"><u>Get the Latest Canon PIXMA TS3322 Printer Driver - Download Now</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-quickly-fix-windows-11-error-code-0x800f0922-an-easy-guide-with-8-steps/"><u>How To Quickly Fix Windows 11 Error CODE 0X800F0922: An Easy Guide With 8 Steps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-vivo-y100a-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Vivo Y100A? </u></a></li>
-<li><a href="https://extra-resources.techidaily.com/time-lapse-wizardry-an-introduction/"><u>Time-Lapse Wizardry An Introduction</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pivot-to-personal-how-to-directly-send-tweets-videos-on-whatsapp/"><u>[New] 2024 Approved Pivot to Personal How to Directly Send Tweets' Videos on WhatsApp</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-vidovibes-engage-with-twitter-then-save-the-moving-pictures/"><u>[New] 2024 Approved VidoVibes Engage with Twitter, Then Save the Moving Pictures</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-critical-alternatives-to-twitter-the-best-5-for-2024/"><u>[New] Critical Alternatives to Twitter The Best 5 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-jokes-that-rule-top-twenty-on-social-networks-for-2024/"><u>[New] Jokes that Rule Top Twenty on Social Networks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-transferring-twitter-videos-to-whatsapp-effortlessly/"><u>[New] Transferring Twitter Videos to WhatsApp Effortlessly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-benq-sw320-4k-315-inch-monitor-review/"><u>[Updated] 2024 Approved BenQ SW320 4K 31.5-Inch Monitor Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-aspect-ratio-guidelines-for-twitter-videos/"><u>2024 Approved Aspect Ratio Guidelines for Twitter Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-picshot-revolutionizing-collage-design-processes/"><u>2024 Approved Picshot Revolutionizing Collage Design Processes</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/a-critique-on-capcoms-latest-quest-hunting-and-defeating-extraordinary-beasts-in-monster-hunter-world/"><u>A Critique on Capcom's Latest Quest: Hunting and Defeating Extraordinary Beasts in Monster Hunter: World</u></a></li>
+<li><a href="https://windows11.techidaily.com/enhancing-system-diagnostics-a-guide-to-windows-ping-usage/"><u>Enhancing System Diagnostics: A Guide to Windows Ping Usage</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-nubia-red-magic-9-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Nubia Red Magic 9 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-solved-move-from-itel-p40plus-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Solved Move from Itel P40+ to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-streamline-your-social-media-uploading-on-twitter/"><u>In 2024, Streamline Your Social Media Uploading on Twitter</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/keep-pace-with-technology-iphones-trade-up-system/"><u>Keep Pace with Technology: IPhone's Trade-Up System</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitter-sharing-guide-for-tiktok-content/"><u>Twitter Sharing Guide for TikTok Content</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/understanding-the-spectrum-expert-color-calibration-for-2024/"><u>Understanding the Spectrum Expert Color Calibration for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlocking-performance-secrets-with-toms-hardware-guides/"><u>Unlocking Performance Secrets with Tom's Hardware Guides</u></a></li>
 </ul></div>
 

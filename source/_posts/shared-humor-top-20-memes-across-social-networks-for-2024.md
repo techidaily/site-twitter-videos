@@ -1,7 +1,7 @@
 ---
 title: "\"Shared Humor  Top 20 Memes Across Social Networks for 2024\""
-date: 2024-11-30T13:24:17.734Z
-updated: 2024-12-05T02:33:01.479Z
+date: 2024-12-10T10:29:47.342Z
+updated: 2024-12-10T21:32:15.484Z
 tags:
   - ai video
   - ai twitter
@@ -35,7 +35,7 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 ## Part 1: The Most Popular Memes on Reddit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Manning Face
@@ -50,6 +50,10 @@ From a line spoken by comedian Rainier Wolfcastle in a Simpsons episode, it’s 
 
 ![The Joke](https://images.wondershare.com/filmora/article-images/The-Joke-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Feels Bad Man / Sad Frog
 
 This meme, which consists of a sad frog with tears in his eyes and sometimes has the words “Feels Bad Man” with it, is about failure or feeling bad because something didn’t go your way. It may be posted as a response to someone’s sad story, or as a sarcastic way to respond to something that happened to you.
@@ -62,10 +66,6 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. This is Fine
 
 4his is Fine” is based on a cartoon where a dog is sitting in a chair, drinking out of a coffee mug and stating “This is Fine” while the entire house is burning down around him. This is usually posted as a response to a news story or information where something chaotic is happening and no one seems to be reacting as they should be.
@@ -73,7 +73,11 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Smug Frog
@@ -89,7 +93,7 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 ![Roll Safe](https://images.wondershare.com/filmora/article-images/roll-safe-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Rage Guy
@@ -98,19 +102,11 @@ Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or so
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Make America Great Again
 
 Used as Trump’s campaign slogan, nowadays this is used as satire when pointing out things that are going on around the United States that aren’t so great.
 
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Fake CCG Cards
 
@@ -118,13 +114,25 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: The Most Popular Memes on Twitter
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Arthur’s Fist
 
 This is a picture of a fist from Arthur, the animated cartoon featuring the anteater from kid’s books; it’s usually posted in response to frustrating or infuriating situations that are posted.
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Evil Kermit
 
@@ -137,10 +145,6 @@ Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the fro
 Nut Button started as a sexual meme, but it’s commonly used as a picture of someone hitting a blue or red button with a word on it. It’s accompanied by text explaining why you would want to hit that button in that context.
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Spongebob Mock
 
@@ -155,7 +159,7 @@ These images vary, but they’re usually a person with a specific expression on 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Expanding Brain
@@ -164,25 +168,21 @@ Expanding Brain is a picture with three images of the brain; one ordinary, one s
 
 ![Expanding Brain](https://images.wondershare.com/filmora/article-images/Expanding-Brain-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Demotivational Posters
 
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\. Conceited Reaction
 
@@ -219,22 +219,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-2023-how-to-watch-twitter-videos-in-full-hd/"><u>[New] 2024 Approved 2023 | How To Watch Twitter Videos in Full HD?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-from-novice-to-pro-creating-impressive-fb-covers-for-2024/"><u>[New] From Novice to Pro Creating Impressive FB Covers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-saving-twitter-jokes-gifs/"><u>[New] In 2024, Mastering the Art of Saving Twitter Jokes (GIFs)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-personal-drones-that-perfectly-trace-their-owners-path/"><u>[New] Personal Drones That Perfectly Trace Their Owner's Path</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-high-def-capture-top-10-web-based-apps/"><u>[Updated] 2024 Approved High-Def Capture Top 10 Web-Based Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-instant-video-posting-to-twitter-from-phone-avoid-the-retweet/"><u>[Updated] 2024 Approved Instant Video Posting to Twitter From Phone – Avoid the Retweet</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-pros-guide-to-uploading-twitter-videos-to-snapchat-for-2024/"><u>[Updated] The Pro's Guide to Uploading Twitter Videos to Snapchat for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-8-cutting-edge-skins-perfect-for-your-laptop/"><u>2024 Approved 8 Cutting-Edge Skins Perfect for Your Laptop</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-enhancing-engagement-tweeting-for-fb-exposure/"><u>2024 Approved Enhancing Engagement Tweeting for FB Exposure</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-mobile-broadcasting-share-videos-without-a-retweet/"><u>2024 Approved Mobile Broadcasting Share Videos without a Retweet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-create-a-memorable-podcast-name-from-brainstorming-to-execution/"><u>How To Create a Memorable Podcast Name From Brainstorming to Execution</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-apple-iphone-15-pro-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 15 Pro Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-your-first-step-on-twitter-creating-an-account/"><u>In 2024, Your First Step on Twitter Creating an Account</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/secure-and-speedy-download-of-official-acer-bluetooth-drivers-get-started/"><u>Secure & Speedy Download of Official Acer Bluetooth Drivers - Get Started!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/sending-direct-tweets-share-photosvideos-on-twitter-without-retweeting/"><u>Sending Direct Tweets Share Photos/Videos on Twitter without Retweeting</u></a></li>
-<li><a href="https://techidaily.com/troubleshooting-gaming-solving-gameplay-latency-issues-with-your-second-display-on-windows-11/"><u>Troubleshooting Gaming: Solving Gameplay Latency Issues with Your Second Display on Windows 11</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-revolutionize-channel-wrapping-with-expert-templates-and-how-tos/"><u>[New] 2024 Approved Revolutionize Channel Wrapping with Expert Templates & How-Tos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-complete-guide-to-twitters-paid-reach-and-impressions/"><u>[New] 2024 Approved The Complete Guide to Twitter's Paid Reach and Impressions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-affordable-mic-picks-for-aspiring-yt-bands/"><u>[New] In 2024, Affordable Mic Picks for Aspiring YT Bands</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-find-my-playlist-on-youtube/"><u>[New] In 2024, How to Find My Playlist on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-lifecast-your-show-a-basic-podcast-streaming-strategy/"><u>[New] Lifecast Your Show A Basic Podcast Streaming Strategy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-mkv-mastery-top-mac-apps-for-2024/"><u>[New] MKV Mastery Top Mac Apps for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-drone-buying-basics-must-know-points-before-shopping-for-2024/"><u>[Updated] Drone Buying Basics Must-Know Points Before Shopping for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-simple-steps-to-curve-an-image-in-photoshop/"><u>[Updated] In 2024, Simple Steps to Curve an Image in Photoshop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-2023-top-10-trending-videos-on-twitter/"><u>2024 Approved 2023 | Top 10 Trending Videos on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-optimize-your-tweeted-videos-aspect-ratio-checklist/"><u>2024 Approved Optimize Your Tweeted Videos Aspect Ratio Checklist</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hashtags-in-harmony-twitter-and-tiktoks-10-viral-vids/"><u>Hashtags in Harmony Twitter and TikTok's 10 Viral Vids</u></a></li>
+<li><a href="https://network-issues.techidaily.com/industrial-grade-secure-data-clearance-get-insight-into-bitrasers-erasure-suite-for-enterprises/"><u>Industrial-Grade Secure Data Clearance: Get Insight Into BitRaser’s Erasure Suite for Enterprises</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/iphone-geolocation-tips-pinpointing-user-location-with-precision/"><u>IPhone Geolocation Tips: Pinpointing User Location with Precision</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-11-28T12:27:03.838Z
-updated: 2024-12-04T22:46:08.916Z
+date: 2024-12-06T11:03:08.037Z
+updated: 2024-12-11T09:30:29.825Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -14,16 +14,12 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -47,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -94,10 +98,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
 
  Assuming you’ve carefully placed the M MOOCK in a spot where it can securely clamp onto the battery yet not fall out of the engine bay, you’ll find that the unit does a good job of jump starting a car. The test vehicle had a battery depleted down to 10V, and while the vehicle did momentarily struggle to start initially, it started just fine after double-checking the connections. It’s hard to say if that initial struggle was due to the unit’s relatively lower start and peak output currents, or if it truly just boiled down to a connectivity issue.
@@ -109,7 +109,7 @@ An inexpensive option considering what it can do.
 Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
@@ -121,6 +121,10 @@ Lifewire / Tony Mitera
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -139,10 +143,6 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,19 +174,22 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-your-platforms-posting-tiktok-content-on-twitter/"><u>[New] 2024 Approved Maximizing Your Platforms Posting TikTok Content on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-elevate-your-social-media-game-post-tiktoks-on-twitter-for-2024/"><u>[New] Elevate Your Social Media Game Post TikToks on Twitter for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-ensure-audible-vids-on-tweet-platform/"><u>[New] In 2024, Ensure Audible Vids on Tweet Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-instant-sharing-convert-tweets-to-snaps-users/"><u>[New] In 2024, Instant Sharing Convert Tweets to Snaps Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-visual-vanguard-the-top-videoviral-tweets/"><u>[Updated] 2024 Approved Visual Vanguard The Top #VideoViral Tweets</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-mastering-the-science-proven-methods-for-effective-hashtagging-on-fb-for-2024/"><u>[Updated] Mastering the Science Proven Methods for Effective Hashtagging on FB for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-unhindered-movie-enjoyment-no-cost-video-player-pcmac-for-2024/"><u>[Updated] Unhindered Movie Enjoyment - No Cost VIDEO Player (PC/Mac) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-innovative-broadcasting-a-guide-to-chroma-key-excellence/"><u>2024 Approved Innovative Broadcasting A Guide to Chroma Key Excellence</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-friendly-hydrophobic-cameras-for-young-explorers/"><u>Budget-Friendly Hydrophobic Cameras for Young Explorers</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/deciphering-the-purpose-and-use-of-microsofts-phone-link-app/"><u>Deciphering the Purpose and Use of Microsoft's 'Phone Link' App</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exploring-the-implications-of-tandem-oled-tech-in-upcoming-devices-as-seen-on-the-latest-ipad-pro/"><u>Exploring the Implications of Tandem OLED Tech in Upcoming Devices as Seen on the Latest iPad Pro</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-deleted-iphone-8-plus-whatsapp-attachments-on-mac-and-windows-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Deleted iPhone 8 Plus WhatsApp Attachments on Mac and Windows | Stellar</u></a></li>
-<li><a href="https://article-tips.techidaily.com/total-gaze-coverage-camera-analysis/"><u>Total Gaze Coverage Camera Analysis</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unlocking-cross-compatibility-running-your-favorite-android-apps-on-windows-10-machines/"><u>Unlocking Cross-Compatibility: Running Your Favorite Android Apps on Windows 10 Machines</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-step-by-step-approach-to-crafting-shareable-facebook-slideshows/"><u>[New] In 2024, Step-by-Step Approach to Crafting Shareable Facebook Slideshows</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-crafting-compelling-videos-the-instagram-editors-playbook/"><u>[Updated] 2024 Approved Crafting Compelling Videos The Instagram Editor's Playbook</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-androids-most-reliable-cloud-vault-apps-2024-edition/"><u>[Updated] Android's Most Reliable Cloud Vault Apps - 2024 Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-backstage-pass-creating-content-that-works/"><u>[Updated] The Backstage Pass Creating Content That Works</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/amazon-fire-or-ipad-a-comprehensive-guide-to-selecting-yours/"><u>Amazon Fire or iPad: A Comprehensive Guide to Selecting Yours</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/comprehensive-guide-to-utilizing-the-new-andes-1500-by-ampaq-for-effortless-power-anywhere/"><u>Comprehensive Guide to Utilizing the New Andes 1500 by Ampaq for Effortless Power Anywhere</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/experience-ultimate-gaming-at-169-a-month-premium-nzxt-pcs-with-rtx-4070-ti-and-intel-i7-up-for-grabs/"><u>Experience Ultimate Gaming at $169 a Month – Premium NZXT PCs with RTX 4070 Ti and Intel I7 Up for Grabs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/exploring-the-high-power-value-proposition-of-ibuypowers-bespoke-gaming-pcs-a-detailed-analysis/"><u>Exploring the High-Power, Value Proposition of iBuyPower’s Bespoke Gaming PCs – A Detailed Analysis</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/hands-on-analysis-discovering-the-power-and-comfort-of-cycwagens-latest-e-bike-model/"><u>Hands-On Analysis: Discovering the Power and Comfort of CycWagen's Latest E-Bike Model</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-realme-c55-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Realme C55</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-disabling-youtube-ads-across-chrome-firefox-android-and-ios-browsers/"><u>In 2024, Disabling YouTube Ads Across Chrome, Firefox, Android & iOS Browsers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/inside-toms-electronics-hub-what-you-need-to-know/"><u>Inside Tom's Electronics Hub: What You Need To Know</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/intel-xeons-new-era-micron-launches-high-capacity-256gb-ddr5-8800-mrdimms/"><u>Intel Xeon's New Era: Micron Launches High-Capacity 256GB DDR5-8800 MRDIMMs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/next-level-performance-awaits-in-the-dell-alienware-aurora-r9-an-in-depth-look-at-tomorrows-gaming-pc/"><u>Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-premier-selection-2023s-best-programming-notebook-computers-pcmag/"><u>The Premier Selection: 2023'S Best Programming Notebook Computers | PCMag</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316764-9781401929480-waking-from-sleep/"><u>Waking From Sleep | Free Book</u></a></li>
 </ul></div>
 

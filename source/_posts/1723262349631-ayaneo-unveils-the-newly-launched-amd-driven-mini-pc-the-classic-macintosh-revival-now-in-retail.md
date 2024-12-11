@@ -1,7 +1,7 @@
 ---
 title: "Ayaneo Unveils the Newly Launched AMD-Driven Mini PC: The Classic Macintosh Revival - Now in Retail!"
-date: 2024-12-01T20:07:17.727Z
-updated: 2024-12-04T19:16:14.773Z
+date: 2024-12-05T18:59:16.086Z
+updated: 2024-12-10T21:16:11.742Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,24 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-why-is-there-no-sound-on-twitter-videos-fixes/"><u>[New] 2024 Approved Why Is There No Sound on Twitter Videos? | Fixes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-elevating-vlogging-to-new-heights-yi-hero-reviewed-for-2024/"><u>[New] Elevating Vlogging to New Heights Yi Hero Reviewed for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-secrets-to-successful-twitpicingvideo-edition-for-2024/"><u>[New] Secrets to Successful Twitpicing—Video Edition for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-rhythm-revivers-guide-to-distorted-beats/"><u>[Updated] 2024 Approved The Rhythm Reviver's Guide to Distorted Beats</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-top-independent-game-apps-for-screen-free-android-playing/"><u>[Updated] 2024 Approved Top Independent Game Apps for Screen-Free Android Playing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-whats-winning-in-the-world-of-2023-tweets/"><u>[Updated] 2024 Approved What's Winning in the World of 2023 Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-from-tweets-to-tomes-the-full-year-in-video/"><u>[Updated] In 2024, From Tweets to Tomes The Full Year in Video</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-integrating-twitter-promotions-into-your-digital-strategy/"><u>[Updated] Integrating Twitter Promotions Into Your Digital Strategy</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-sculpt-social-shares/"><u>[Updated] Sculpt Social Shares</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat-for-2024/"><u>[Updated] Streamline Your Content Posting Twitter Videos on Snapchat for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-win10-video-capture-pro-professional-edition-for-2024/"><u>[Updated] Win10 Video Capture Pro - Professional Edition for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/(3-on-screen-effortless-ways-to-type-a-heart-on-your-computer/"><u><3 On Screen: Effortless Ways to Type a Heart on Your Computer</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pioneering-scripts-reflecting-diverse-genre-themes/"><u>2024 Approved Pioneering Scripts Reflecting Diverse Genre Themes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/audio-take-from-twitter-video-sources/"><u>Audio Take From Twitter Video Sources</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/does-chatgpt-adhere-to-a-maximum-character-or-word-count-in-its-replies/"><u>Does ChatGPT Adhere to a Maximum Character or Word Count in Its Replies?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-loops-crafting-comical-content-for-brevity-based-videos-for-2024/"><u>Laugh Loops Crafting Comical Content for Brevity-Based Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/perfecting-the-art-of-twitter-broadcasts/"><u>Perfecting the Art of Twitter Broadcasts</u></a></li>
-<li><a href="https://driver-error.techidaily.com/smooth-sailing-with-elan-touchpad-on-new-windows-11/"><u>Smooth Sailing with Elan Touchpad on New Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-buyers-best-guide-to-virtual-reality-cameras/"><u>[New] 2024 Approved Buyer's Best Guide to Virtual Reality Cameras</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-comprehensive-list-of-vimeo-downloader-utilities/"><u>[New] In 2024, Comprehensive List of Vimeo Downloader Utilities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-implementing-cross-browser-compatibility-in-web-development/"><u>[New] In 2024, Implementing Cross-Browser Compatibility in Web Development</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-proven-strategies-for-masterful-fisheye-photography-for-2024/"><u>[New] Proven Strategies for Masterful Fisheye Photography for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-2023-comprehensive-grip-on-visualcutter-software-review/"><u>[Updated] 2024 Approved 2023 Comprehensive Grip on VisualCutter Software Review</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-solution-for-twitter-videos-not-playing-in-chrome/"><u>[Updated] In 2024, Solution for Twitter Videos Not Playing in Chrome</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-spotlight-on-snapchat-a-step-by-step-guide/"><u>[Updated] In 2024, Spotlight on Snapchat A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-ultimate-checklist-for-solo-online-stream-success/"><u>[Updated] In 2024, The Ultimate Checklist for Solo Online Stream Success</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-interactive-media-exchange-twitter-to-snapchat-videos/"><u>[Updated] Interactive Media Exchange Twitter to Snapchat Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-vivo-t2-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Vivo T2 5G?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-quintessential-toptiktok-tweets-in-popularity/"><u>In 2024, The Quintessential #TopTikTok Tweets in Popularity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-transitioning-from-standard-to-custom-thumbnails-in-twitter-videos/"><u>In 2024, Transitioning From Standard to Custom Thumbnails in Twitter Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/sony-xbr65x850f-4k-television-stunning-visuals-at-an-unbelievable-price-point-review/"><u>Sony XBR65X850F 4K Television: Stunning Visuals at an Unbelievable Price Point Review!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>The Connected World Sharing Twitter Media in WhatsApp Chat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-peak-of-primes-amazons-hot-tweets-and-shows-23-for-2024/"><u>The Peak of Primes Amazon’s Hot Tweets & Shows, '23 for 2024</u></a></li>
 </ul></div>
 
