@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2024-12-05T13:29:58.690Z
-updated: 2024-12-11T14:04:56.830Z
+date: 2024-12-16T17:10:21.487Z
+updated: 2024-12-17T18:52:55.603Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,19 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-integrating-external-websites-into-instagrams-ecosystem/"><u>[New] 2024 Approved Integrating External Websites Into Instagram's Ecosystem</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-top-20-best-twitter-unfollowers-and-tools/"><u>[Updated] 2024 Approved Top 20 Best Twitter Unfollowers & Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-echoes-in-the-stream-full-year-tweet-video-analysis/"><u>[Updated] In 2024, Echoes in the Stream - Full Year Tweet Video Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-top-jokesters/"><u>[Updated] In 2024, Twitter's Top Jokesters</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-nostalgia-frame-portraits-on-the-x-phone/"><u>[Updated] Nostalgia Frame Portraits on the X Phone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-a-guide-to-tiktoks-pfp-acronym-explained/"><u>2024 Approved A Guide to TikTok's PFP Acronym Explained</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-professional-streaming-the-premier-6-zoom-webcam-picks/"><u>2024 Approved Professional Streaming The Premier #6 Zoom Webcam Picks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/amazons-all-star-series-most-retweeted-and-watched-originals-for-2024/"><u>Amazon's All-Star Series Most Retweeted & Watched Originals for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-and-installation-guide-dell-g15-graphics-driver-for-windows/"><u>Download and Installation Guide: Dell G15 Graphics Driver for Windows</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/end-audio-blackout-vocalize-tweet-videos/"><u>End Audio Blackout Vocalize Tweet Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/gifify-your-twit-making-vids-free-and-flashy/"><u>Gifify Your Twit Making Vids Free & Flashy</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-reestablish-disconnected-network-on-windows-pcs/"><u>How to Reestablish Disconnected Network on Windows PCs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-discovering-the-ultimate-set-of-text-tools-for-ae-artistry/"><u>In 2024, Discovering the Ultimate Set of Text Tools for AE Artistry</u></a></li>
-<li><a href="https://games-able.techidaily.com/tackling-troublesome-display-driver-failed-error-on-windows-1111-update/"><u>Tackling Troublesome Display Driver Failed Error on Windows 11/11 Update</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-efficiency-in-social-media-sharing-tweets-with-snapchat-for-2024/"><u>[New] Efficiency in Social Media Sharing Tweets with Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-from-tweets-to-device-storage-android-and-iphone-gif-steps/"><u>[New] In 2024, From Tweets to Device Storage Android & iPhone GIF Steps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-sync-twitch-with-snapchat-a-step-by-step-guide-for-2024/"><u>[New] Sync Twitch with Snapchat A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-top-10-giggle-generators/"><u>[New] Twitter's Top 10 Giggle Generators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-listing-from-the-tail-reordering-videos-in-a-reverse-sequence/"><u>[Updated] In 2024, Listing From the Tail Reordering Videos in a Reverse Sequence</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-premier-iphone-watermark-apps-reviewed/"><u>[Updated] In 2024, Premier iPhone Watermark Apps Reviewed</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-path-to-perfect-sims-video-sessions/"><u>[Updated] In 2024, The Path to Perfect Sims Video Sessions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twittomp4maker-social-streaming-solution/"><u>[Updated] TwitToMP4Maker Social Streaming Solution</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-gifify-it-free-method-for-twitter-videos/"><u>2024 Approved Gifify It Free Method for Twitter Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-video-perfection-choosing-the-ultimate-5-enhancers/"><u>In 2024, Video Perfection Choosing the Ultimate 5 Enhancers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/solving-premiere-pro-buffering-issues-discover-over-10-effective-fixes/"><u>Solving Premiere Pro Buffering Issues: Discover Over 10 Effective Fixes</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/wechseln-von-festplatte-zu-samsung-evo-850-ssd-in-windows-os-einfach-und-effektiv-erklart/"><u>Wechseln Von Festplatte Zu Samsung EVO ^ 850 SSD in Windows OS - Einfach Und Effektiv Erklärt!</u></a></li>
 </ul></div>
 

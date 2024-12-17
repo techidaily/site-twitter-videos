@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2024-12-08T12:20:08.381Z
-updated: 2024-12-11T08:40:15.456Z
+date: 2024-12-10T18:06:25.341Z
+updated: 2024-12-17T16:11:55.784Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,24 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-customizing-twitter-video-thumbnails/"><u>[New] In 2024, Mastering the Art of Customizing Twitter Video Thumbnails</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-laugh-ledger-the-ultimate-list-of-hilarious-tweets-for-2024/"><u>[New] Laugh Ledger The Ultimate List of Hilarious Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-adjust-twitter-video-compact-summary-for-2024/"><u>[Updated] Adjust Twitter Video Compact Summary for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-quick-witness-youtube-techniques-for-rapid-rendering/"><u>[Updated] In 2024, Quick-Witness YouTube Techniques for Rapid Rendering</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-gathering-the-good-times-easy-steps-to-download-and-store-twitters-animated-tweets/"><u>2024 Approved Gathering the Good Times Easy Steps to Download and Store Twitter's Animated Tweets</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-harness-ease-of-video-editing-on-windows-11/"><u>2024 Approved Harness Ease of Video Editing on Windows 11</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-mp4mpl2s-creation-from-twitter-videos/"><u>2024 Approved MP4/MPL2S Creation From Twitter Videos</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/effective-strategies-for-saving-iphone-6-contact-information/"><u>Effective Strategies for Saving iPhone 6 Contact Information</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-new-horizons-a-guide-to-top-6-nft-innovators/"><u>Exploring New Horizons A Guide to Top 6 NFT Innovators</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/guide-to-hosting-channels-with-real-time-video-streaming-for-2024/"><u>Guide to Hosting Channels with Real-Time Video Streaming for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-realme-11x-5g-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Realme 11X 5G</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-mp4-and-webm-extraction-from-social-media-streams/"><u>In 2024, MP4 & WebM Extraction From Social Media Streams</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-shock-free-footage-leading-smartphones-with-superior-ois-features/"><u>In 2024, Shock-Free Footage Leading Smartphones with Superior OIS Features</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-stream-talent-twitter-live-broadcast-basics/"><u>In 2024, Stream Talent Twitter Live Broadcast Basics</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/leveraging-past-conversations-on-twitter/"><u>Leveraging Past Conversations on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/streamlined-method-keeping-and-capturing-twitters-videomedia/"><u>Streamlined Method Keeping and Capturing Twitters Video/Media</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-recommended-tools-for-downloading-content-from-myvidster-a-comprehensive-guide/"><u>Top Recommended Tools for Downloading Content From MyVidster: A Comprehensive Guide</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/ultimate-guide-fixing-logitech-g933-microphone-issues/"><u>Ultimate Guide: Fixing Logitech G933 Microphone Issues</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unboxing-the-capabilities-of-photoscape-your-free-editing-tool-reviewed/"><u>Unboxing the Capabilities of PhotoScape - Your FREE Editing Tool Reviewed!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-extract-youtube-media-directly/"><u>[New] 2024 Approved How to Extract YouTube Media Directly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-pc-screenshot-wizardry-unveiling-apowersoft-screen-recorder/"><u>[New] 2024 Approved PC Screenshot Wizardry Unveiling Apowersoft Screen Recorder</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-amazons-social-stardom-liking-and-viewing-leaderships/"><u>[New] Amazon's Social Stardom Liking and Viewing Leaderships</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-comedy-kings-the-most-popular-memes/"><u>[New] In 2024, Comedy Kings The Most Popular Memes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unlocking-data-in-twitter-archives/"><u>[New] In 2024, Unlocking Data in Twitter Archives</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-universal-iptv-broadcasting-for-2024/"><u>[New] Universal IPTV Broadcasting for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-sound-reconstruction-with-ffmpeg-preserving-format-integrity/"><u>[Updated] 2024 Approved Sound Reconstruction with FFmpeg Preserving Format Integrity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-enhancing-engagement-tweeting-for-fb-exposure-for-2024/"><u>[Updated] Enhancing Engagement Tweeting for FB Exposure for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/cameras-stand-against-mirrorless-for-videographers/"><u>DSLR Camera's Stand Against Mirrorless for Videographers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/gathering-the-good-times-easy-steps-to-download-and-store-twitters-animated-tweets/"><u>Gathering the Good Times Easy Steps to Download and Store Twitter's Animated Tweets</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-run-adobe-ps-in-windows-without-trouble-or-failure/"><u>How to Run Adobe PS in Windows without Trouble or Failure</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/maintaining-the-right-video-aspect-on-twitters-for-2024/"><u>Maintaining the Right Video Aspect on Twitters for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-new-tongues-without-spending-a-penny-check-out-these-9-favorite-websites-for-learning-languages/"><u>Mastering New Tongues Without Spending a Penny? Check Out These 9 Favorite Websites for Learning Languages</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/securing-a-seamless-srt-upload-experience-on-social-networks-for-2024/"><u>Securing a Seamless SRT Upload Experience on Social Networks for 2024</u></a></li>
 </ul></div>
 

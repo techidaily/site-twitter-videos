@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-12-09T08:03:27.578Z
-updated: 2024-12-10T19:49:34.115Z
+date: 2024-12-12T18:02:41.473Z
+updated: 2024-12-17T17:15:01.492Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,24 +56,22 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitsnap-secure-effortless-methods-for-downloading-tweets-videos/"><u>[New] 2024 Approved TwitSnap Secure Effortless Methods for Downloading Tweets' Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-understanding-ip-rules-for-instasongs/"><u>[New] 2024 Approved Understanding IP Rules for InstaSongs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-best-gear-for-comprehensively-filmed-action/"><u>[New] Best Gear for Comprehensively Filmed Action</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-the-art-of-twitters-live-video-engagement/"><u>[New] In 2024, Mastering the Art of Twitter's Live Video Engagement</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-twitter-cleanup-top-apps-for-efficient-management/"><u>[New] In 2024, Mastering Twitter Cleanup Top Apps for Efficient Management</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-prime-17-background-eradication-software-reviews/"><u>[New] Prime 17 Background Eradication Software Reviews</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-professional-perception-pioneering-hdr-art-with-photoshop/"><u>[New] Professional Perception Pioneering HDR Art with PhotoShop</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficient-iphoneandroid-guide-for-tweets-as-visuals/"><u>[Updated] 2024 Approved Efficient iPhone/Android Guide for Tweets as Visuals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-champs-twitters-humor-heap/"><u>[Updated] Chuckle-Champs Twitter’s Humor Heap</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-connect-your-tiktok-creativity-to-twitter/"><u>2024 Approved Connect Your TikTok Creativity to Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/alleviate-problem-buffering-tweets-in-chromebook/"><u>Alleviate Problem Buffering Tweets in Chromebook</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/choosing-between-vlc-and-mx-for-video-enjoyment-for-2024/"><u>Choosing Between VLC and MX for Video Enjoyment for 2024</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/how-to-reach-more-users-by-using-instagram-live-shopping/"><u>How To Reach More Users by Using Instagram Live Shopping</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-comedy-cornucopia-twitters-best/"><u>In 2024, Comedy Cornucopia Twitter's Best</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-creating-accessibility-your-guide-to-an-intuitive-youtube-signup/"><u>In 2024, Creating Accessibility Your Guide to an Intuitive YouTube Signup</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-the-art-of-attracting-more-youtube-admirers-for-2024/"><u>Mastering the Art of Attracting More YouTube Admirers for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/navigating-and-utilizing-steams-creative-workshop-space/"><u>Navigating and Utilizing Steam’s Creative Workshop Space</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/quick-technique-downloading-tweet-videos-to-your-phone/"><u>Quick Technique Downloading Tweet Videos to Your Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-3-top-notch-smartphones-excelling-at-video-capture/"><u>[New] 3 Top-Notch Smartphones Excelling at Video Capture</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-gopro-and-ghost-s-face-off-in-racing-realities/"><u>[Updated] 2024 Approved GoPro and Ghost-S Face Off in Racing Realities</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-laugh-ledger-the-ultimate-list-of-hilarious-tweets/"><u>[Updated] 2024 Approved Laugh Ledger The Ultimate List of Hilarious Tweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-3-tactics-to-grab-twitter-gifs-on-pc/"><u>[Updated] 3 Tactics to Grab Twitter GIFs on PC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-year-in-the-market-top-15-finance-videos/"><u>[Updated] In 2024, A Year in the Market Top 15 Finance Videos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/jpegmtsmp4/"><u>「JPEG画像から動画形式への変換法：MTSファイルをMP4へ」</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-accessing-and-saving-tweets-visuals-in-your-android-device/"><u>2024 Approved Accessing and Saving Tweets' Visuals in Your Android Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweeting-and-blogging-videos-integration-guide/"><u>2024 Approved Tweeting & Blogging Videos Integration Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essence-extractor-capturing-and-saving-the-soul-of-twitter-gifs/"><u>Essence Extractor Capturing & Saving the Soul of Twitter GIFs</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-integrate-chatgpt-with-whatsapp-for-customer-support/"><u>How to Integrate ChatGPT With WhatsApp for Customer Support</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-cinematic-basics-unveiled-fundamental-shots-explained-clearly/"><u>In 2024, Cinematic Basics Unveiled Fundamental Shots Explained Clearly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c55-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Realme C55 Bootloader Easily</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-online-video-editing-essentials-download-edit-and-publish-like-a-pro/"><u>In 2024, Online Video Editing Essentials Download, Edit, and Publish Like a Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitter-archive-mastery-a-guide-to-gif-download-success/"><u>In 2024, Twitter Archive Mastery A Guide to GIF Download Success</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitters-top-picks-most-retweeted-and-binge-watched-series/"><u>In 2024, Twitters' Top Picks Most Retweeted & Binge-Watched Series</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/transforming-discord-chats-into-lasting-memories/"><u>Transforming Discord Chats Into Lasting Memories</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitta-to-trackable-audio-transitions/"><u>Twitta to Trackable Audio Transitions</u></a></li>
 </ul></div>
 
