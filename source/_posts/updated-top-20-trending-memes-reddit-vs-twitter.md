@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Top 20 Trending Memes  Reddit Vs. Twitter\""
-date: 2024-12-14T16:07:54.353Z
-updated: 2024-12-17T18:02:56.662Z
+date: 2024-12-19T06:33:13.318Z
+updated: 2024-12-26T05:43:54.817Z
 tags:
   - ai video
   - ai twitter
@@ -34,11 +34,19 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 
 ## Part 1: The Most Popular Memes on Reddit
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Manning Face
 
 This is a meme featuring Peyton Manning wearing a black hood and kneeling on a football field during practice. It is usually used as what is called a “bait and switch” meme. People will click on a link and expect it to be something interesting or important, and it just ends up being Manning Face.
 
 ![Manning Face](https://images.wondershare.com/filmora/article-images/Manning-Face-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. That's The Joke
 
@@ -58,21 +66,25 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. This is Fine
 
 4his is Fine” is based on a cartoon where a dog is sitting in a chair, drinking out of a coffee mug and stating “This is Fine” while the entire house is burning down around him. This is usually posted as a response to a news story or information where something chaotic is happening and no one seems to be reacting as they should be.
 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Smug Frog
 
 Smug Frog, who is usually known as Pepe the Frog, is a meme where a strange looking anthropomorphic frog is looking at the user, offering a cocky, smug grin. Before it was stolen by groups that many people don’t wish to be associated with, Smug Frog was often used as a response to people, either to represent “I told you so” or “Tell Me More.”
 
 ![Smug Frog](https://images.wondershare.com/filmora/article-images/Smug-Frog-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Roll Safe
 
@@ -86,25 +98,21 @@ Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or so
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Make America Great Again
 
 Used as Trump’s campaign slogan, nowadays this is used as satire when pointing out things that are going on around the United States that aren’t so great.
 
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Fake CCG Cards
 
 CCG’s like Magic the Gathering are still popular, and fake CCG cards are used as image parodies for almost anything imaginable, from people, to animals, to other memes.
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The Most Popular Memes on Twitter
 
@@ -114,19 +122,11 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Evil Kermit
 
 Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the frog from one of the Muppet films). This picture is usually accompanied by a conversation between the user and their “evil self” about a decision that they’re trying to make.
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Nut Button
 
@@ -134,11 +134,19 @@ Nut Button started as a sexual meme, but it’s commonly used as a picture of so
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Spongebob Mock
 
 Spongebob Mocking is a screen capture of Spongebob making a strange face and walking like a chicken. It is usually accompanied by a reply written like this: ExAmPlE tExT, which is mocking the person who said the same sentence.
 
 ![Spongebob Mock](https://images.wondershare.com/filmora/article-images/Spongebob-Mock-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Reaction Images
 
@@ -146,21 +154,25 @@ These images vary, but they’re usually a person with a specific expression on 
 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Expanding Brain
 
 Expanding Brain is a picture with three images of the brain; one ordinary, one slightly lit up, and then one that appears to be exploding in light. On the right hand side of the image, it’s usually something about the user’s evolving thoughts or ideas relating to a topic or how they do things.
 
 ![Expanding Brain](https://images.wondershare.com/filmora/article-images/Expanding-Brain-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Demotivational Posters
 
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Cash Me Outside/Howbow Dah
 
@@ -169,7 +181,7 @@ From a Dr. Phil episode, this picture is of an angry girl who told the audience 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 9\. Conceited Reaction
@@ -177,14 +189,6 @@ From a Dr. Phil episode, this picture is of an angry girl who told the audience 
 The rapper Conceited is captured in this meme, looking off camera and pursing his lips in a disapproving look. Now people use it to show their disapproval or anxiety around a topic.
 
 ![Conceited Reaction](https://images.wondershare.com/filmora/article-images/Conceited-Reaction-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. Computer Reaction Faces
 
@@ -199,10 +203,6 @@ There are so many different types of memes out there, and it’s really interest
 If you want to make memes right now, Filmora meme maker can help you easily create memes quickly. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to find more.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -219,22 +219,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2023-top-10-trending-videos-on-twitter/"><u>[New] 2023 | Top 10 Trending Videos on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-youtube-to-twitter-share-videos-without-twitting/"><u>[New] 2024 Approved YouTube to Twitter Share Videos Without Twitting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-primepickings-top-twitters-and-top-viewers-favorites/"><u>[New] In 2024, PrimePickings Top Twitters & Top Viewers’ Favorites</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unlocking-flawless-youtube-twitplay/"><u>[Updated] 2024 Approved Unlocking Flawless YouTube Twitplay</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-your-quick-path-to-multimedia-tweeting/"><u>[Updated] 2024 Approved Your Quick Path to Multimedia Tweeting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>[Updated] Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-digest-your-facebook-memories/"><u>[Updated] Digest Your Facebook Memories</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-unlocking-apowersofts-zero-cost-screen-recording/"><u>[Updated] Unlocking Apowersoft's Zero-Cost Screen Recording</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-3-step-formula-how-to-check-youtube-income/"><u>2024 Approved [3-Step Formula] How To Check YouTube Income</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-six-super-simple-free-fb-downloader-tools/"><u>2024 Approved Six Super Simple Free FB Downloader Tools</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/flash-facts-how-videos-captivate-twitters-audience/"><u>Flash Facts How Videos Captivate Twitter's Audience</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-social-media-twitters-guiding-principles-adapted-by-facebook/"><u>Harnessing Social Media: Twitter's Guiding Principles Adapted by Facebook</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-streamlined-video-submission-mmc-to-vimeo-journey-explained/"><u>In 2024, Streamlined Video Submission MMC to Vimeo Journey Explained</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/leveraging-influencers-in-your-twitter-marketing-plan/"><u>Leveraging Influencers in Your Twitter Marketing Plan</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/professional-techniques-for-sims-4-live-action-for-2024/"><u>Professional Techniques for Sims 4 Live-Action for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/simple-tips-to-seamlessly-sync-your-samsung-remote-with-your-flat-screen-tv/"><u>Simple Tips to Seamlessly Sync Your Samsung Remote with Your Flat Screen TV</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-rated-ssd-models-expert-reviews-by-techradar/"><u>Top-Rated SSD Models - Expert Reviews by TechRadar</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mastering-aspect-ratio-compliance-in-micro-video-tweets/"><u>[New] 2024 Approved Mastering Aspect Ratio Compliance in Micro-Video Tweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-video-transmission-from-twitters-to-whatsapp/"><u>[New] In 2024, Direct Video Transmission From Twitters to WhatsApp</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-8-best-free-srt-translators-online-tips-to-choose/"><u>[New] In 2024, Top 8 Best Free SRT Translators Online (Tips to Choose)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-natures-set-pieces-a-collection-of-easy-to-download-templates-for-pros-and-beginners/"><u>[New] Nature's Set Pieces A Collection of Easy-to-Download Templates for Pros & Beginners</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-crown-jewels-the-most-liked-and-binge-watched-content-for-2024/"><u>[New] Twitter's Crown Jewels The Most Liked & Binge-Watched Content for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-best-of-the-best-10-recorders-for-your-device/"><u>[Updated] Best of the Best #10 Recorders for Your Device</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-best-replacements-for-twitters-massive-network-for-2024/"><u>[Updated] Best Replacements for Twitter's Massive Network for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-free-frame-flip-converting-tweets-into-tweenish-movies/"><u>[Updated] In 2024, Free Frame Flip Converting Tweets Into Tweenish Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-key-to-a-successful-tweet-including-aspect-ratio-details-for-2024/"><u>[Updated] The Key to a Successful Tweet Including Aspect Ratio Details for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-checklist-of-essential-equipment-for-2024/"><u>[Updated] The Ultimate Checklist of Essential Equipment for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-snippet-collection-mastery-efficient-method-for-downloading-animated-tweet-graphics/"><u>2024 Approved Social Snippet Collection Mastery Efficient Method for Downloading Animated Tweet Graphics</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-s24plus-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Samsung Galaxy S24+?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-apple-iphone-12-pro-max-is-off-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track You When Your Apple iPhone 12 Pro Max is off? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-to-resolve-google-chrome-hanging-issues-and-restart-promptly/"><u>Expert Tips to Resolve Google Chrome Hanging Issues and Restart Promptly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-achieve-peak-performance-with-win11-and-zoom-integration/"><u>In 2024, Achieve Peak Performance with Win11 & Zoom Integration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-snapchat-for-twitter-vids-distribution-for-2024/"><u>Navigating Snapchat for Twitter Vids Distribution for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-reaction-video-mastery-tips-and-tricks-with-filmora/"><u>New Reaction Video Mastery Tips and Tricks with Filmora</u></a></li>
+<li><a href="https://driver-download.techidaily.com/razer-driver-downloads-and-updates-handbook-for-windows-users-of-all-ages-from-windows-11-to-vista/"><u>Razer Driver Downloads & Updates Handbook for Windows Users of All Ages: From Windows 11 to Vista</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-shortcut-to-share-tiktoks-and-twitters-integration-for-2024/"><u>The Shortcut to Share TikToks & Twitters Integration for 2024</u></a></li>
 </ul></div>
 

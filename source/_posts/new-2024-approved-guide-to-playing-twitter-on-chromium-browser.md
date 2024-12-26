@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Guide to Playing Twitter on Chromium Browser\""
-date: 2024-07-27T15:45:48.815Z
-updated: 2024-07-28T15:45:48.815Z
+date: 2024-12-18T22:57:46.842Z
+updated: 2024-12-25T17:46:43.097Z
 tags:
   - ai video
   - ai twitter
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/1b366750108562524d82d4ae59a489c50fa84a81f
 
 # Solution for Twitter Videos Not Playing in Chrome
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -50,9 +47,6 @@ One of the most important aspects to consider while fixing this problem is check
 
 If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
 
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
@@ -119,9 +113,6 @@ Follow @Liza Brown
 
 Social Media Platforms without videos seem to be a horrifying thought. Videos are one of the most engaging and eye-catching sources of information. Human nature prefers an easy and convenient way to get the required information such as videos instead of reading an entire article or post. Unfortunately, there is a common problem of Twitter videos not playing in Chrome for most Twitter users. There can so many distinct reasons that might be causing such a problem. If you are the one who is facing the issue of Twitter videos not playing in Chrome, then this article is for you. By following the methods discussed in this article, the videos will start to auto-play while you scroll through the Twitter Feed.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/download-gif-from-twitter.gif)
 
 There could be so many reasons for Twitter videos not playing in Chrome. We will go through each reason one by one and try to solve all those reasons to see which one works for you.
@@ -158,26 +149,10 @@ Clearing cookies and cache can solve multiple problems related to web browsers. 
 
 Under the setting panel find and choose 'Clear Browsing Data'.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
 
 This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
@@ -200,9 +175,6 @@ After disabling all the extensions, reload the page and see if the videos are pl
 
 Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix9](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix9.jpg)
 
 Now try to play the Twitter videos. Hopefully, it will work now. If not then you can try the last step.
@@ -213,9 +185,6 @@ Are you still facing the same problem with Twitter videos after all the changes?
 
 All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -262,23 +231,14 @@ This will allow Twitter to use flash to play videos. If this was the reason behi
 
 Clearing cookies and cache can solve multiple problems related to web browsers. If the above method didn't work for you, try clearing your Chrome browser's cookies and cache. This method will restore any changes or settings that were saved and make your browser load the website in its original form. To do that, go to the setting of Chrome.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
 
 Under the setting panel find and choose 'Clear Browsing Data'.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
 
 This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
@@ -295,9 +255,6 @@ It will open a new window that contains all the extensions that are installed in
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
 1. #### Disable Hardware Acceleration
@@ -314,10 +271,6 @@ Are you still facing the same problem with Twitter videos after all the changes?
 
 All the above methods are tested and proven to fix Twitter videos not playing in Chrome by many users. All these methods can be applied easily to your browser and don't need technical skills or expertise. Check all the ways to see which method works best for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -332,9 +285,6 @@ Follow @Liza Brown
 
 Social Media Platforms without videos seem to be a horrifying thought. Videos are one of the most engaging and eye-catching sources of information. Human nature prefers an easy and convenient way to get the required information such as videos instead of reading an entire article or post. Unfortunately, there is a common problem of Twitter videos not playing in Chrome for most Twitter users. There can so many distinct reasons that might be causing such a problem. If you are the one who is facing the issue of Twitter videos not playing in Chrome, then this article is for you. By following the methods discussed in this article, the videos will start to auto-play while you scroll through the Twitter Feed.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![ Convert WebP to JPG](https://images.wondershare.com/filmora/article-images/download-gif-from-twitter.gif)
 
 There could be so many reasons for Twitter videos not playing in Chrome. We will go through each reason one by one and try to solve all those reasons to see which one works for you.
@@ -355,9 +305,6 @@ One of the most important aspects to consider while fixing this problem is check
 
 If you have checked the above aspect and it is not the case with your Twitter videos and non of the video is playing, you should try enabling the flash for Twitter. If the flash is not enabled in your Chrome browser, it will not play videos. To enable flash for Twitter, after visiting Twitter, click on the 'Lock' icon placed on the left side of the address bar and go to 'Site Settings.'
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix2](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix2.jpg)
 
 In the window of settings, you will find flash in this list. Click the drop-down in front of flash and select 'Allow'.
@@ -370,25 +317,14 @@ This will allow Twitter to use flash to play videos. If this was the reason behi
 
 Clearing cookies and cache can solve multiple problems related to web browsers. If the above method didn't work for you, try clearing your Chrome browser's cookies and cache. This method will restore any changes or settings that were saved and make your browser load the website in its original form. To do that, go to the setting of Chrome.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix4](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix4.jpg)
 
 Under the setting panel find and choose 'Clear Browsing Data'.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix5](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix5.jpg)
 
 Now select the time range, you should select the 'All time' for the required result and click "Clear Data".
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix6](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix6.jpg)
 
 This will definitely solve the problem of videos not playing by returning the website to its original form and restoring all the settings that you might have made.
@@ -405,18 +341,12 @@ It will open a new window that contains all the extensions that are installed in
 
 After disabling all the extensions, reload the page and see if the videos are playing or not.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix8](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix8.jpg)
 
 1. #### Disable Hardware Acceleration
 
 Is it still not working? Try disabling Hardware Acceleration in your Chrome browser, this might help you play Twitter videos. To Disable Hardware Acceleration, go to the settings of Chrome. In this window of settings, scroll down to advance settings. Under the "System", you disable the "Use Hardware Acceleration When Available". Relaunch the browser after disabling this.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![twitter-video-not-playing-fix9](https://images.wondershare.com/filmora/article-images/twitter-video-not-playing-fix9.jpg)
 
 Now try to play the Twitter videos. Hopefully, it will work now. If not then you can try the last step.
@@ -446,8 +376,6 @@ Follow @Liza Brown
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -456,7 +384,30 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-cutting-edge-tactics-for-sharing-video-content-from-twitter-and-whatsapp/"><u>[New] Cutting-Edge Tactics for Sharing Video Content From Twitter and WhatsApp</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-breaking-into-twitter-live-your-strategy/"><u>[New] In 2024, Breaking Into Twitter Live Your Strategy</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-syncing-platforms-for-video-upload/"><u>[New] In 2024, Syncing Platforms for Video Upload</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-dissecting-haptic-feedback-in-digital-environments/"><u>[Updated] 2024 Approved Dissecting Haptic Feedback in Digital Environments</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-fix-disruption-chromium-and-tweeted-videos/"><u>[Updated] 2024 Approved Fix Disruption Chromium and Tweeted Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-eliminating-frame-drops-in-obs-broadcasts/"><u>[Updated] Eliminating Frame Drops in OBS Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>[Updated] In 2024, Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-effortless-capture-winmac-tools-to-record-desktop-screens/"><u>[Updated] In 2024, Effortless Capture Win/Mac Tools to Record Desktop Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-key-iphone-photography-utilities-for-watermarking/"><u>[Updated] In 2024, Key iPhone Photography Utilities for Watermarking</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-permanent-name-shift-on-google-meet-devices-for-2024/"><u>[Updated] Permanent Name Shift on Google Meet Devices for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ustream-evaluation-find-alternates/"><u>[Updated] Ustream Evaluation, Find Alternates</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unveiling-the-process-of-making-a-twitter-account/"><u>2024 Approved Unveiling the Process of Making a Twitter Account</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/crafting-a-streamlined-media-route-from-twitter-vids-on-snapchat-for-2024/"><u>Crafting a Streamlined Media Route From Twitter Vids on Snapchat for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-advice-on-how-to-recover-from-d3dx926dll-not-found-errors/"><u>Expert Advice on How to Recover From d3dx9_26.dll Not Found Errors</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-gateway-to-gpt-4s-power-four-approaches-explained/"><u>Free Gateway to GPT-4's Power: Four Approaches Explained</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1723807892825-identify-your-motherboard-quickly-and-effortlessly/"><u>Identify Your Motherboard Quickly and Effortlessly!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-connecting-twitters-vids-with-fb-audience/"><u>In 2024, Connecting Twitter's Vids with FB Audience</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/leading-platforms-mimicking-twitters-network/"><u>Leading Platforms Mimicking Twitter's Network</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-samsung-galaxy-a54-5g-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Samsung Galaxy A54 5G</u></a></li>
+</ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Shared Humor  Top 20 Memes Across Social Networks for 2024\""
-date: 2024-12-10T10:29:47.342Z
-updated: 2024-12-10T21:32:15.484Z
+date: 2024-12-21T00:13:36.035Z
+updated: 2024-12-25T22:10:58.435Z
 tags:
   - ai video
   - ai twitter
@@ -34,10 +34,6 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 
 ## Part 1: The Most Popular Memes on Reddit
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Manning Face
 
 This is a meme featuring Peyton Manning wearing a black hood and kneeling on a football field during practice. It is usually used as what is called a “bait and switch” meme. People will click on a link and expect it to be something interesting or important, and it just ends up being Manning Face.
@@ -51,7 +47,7 @@ From a line spoken by comedian Rainier Wolfcastle in a Simpsons episode, it’s 
 ![The Joke](https://images.wondershare.com/filmora/article-images/The-Joke-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Feels Bad Man / Sad Frog
@@ -73,11 +69,7 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Smug Frog
@@ -93,7 +85,7 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 ![Roll Safe](https://images.wondershare.com/filmora/article-images/roll-safe-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Rage Guy
@@ -101,6 +93,10 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or something similar. It’s usually used when the person posting is exasperated about something stupid that is being discussed.
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Make America Great Again
 
@@ -114,15 +110,7 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: The Most Popular Memes on Twitter
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Arthur’s Fist
 
@@ -130,15 +118,15 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Evil Kermit
 
 Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the frog from one of the Muppet films). This picture is usually accompanied by a conversation between the user and their “evil self” about a decision that they’re trying to make.
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Nut Button
 
@@ -152,6 +140,10 @@ Spongebob Mocking is a screen capture of Spongebob making a strange face and wal
 
 ![Spongebob Mock](https://images.wondershare.com/filmora/article-images/Spongebob-Mock-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Reaction Images
 
 These images vary, but they’re usually a person with a specific expression on their face, and someone posts it as their response to something that another Twitter user has said.
@@ -159,7 +151,7 @@ These images vary, but they’re usually a person with a specific expression on 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Expanding Brain
@@ -168,21 +160,25 @@ Expanding Brain is a picture with three images of the brain; one ordinary, one s
 
 ![Expanding Brain](https://images.wondershare.com/filmora/article-images/Expanding-Brain-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Demotivational Posters
 
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Conceited Reaction
 
@@ -195,6 +191,10 @@ The rapper Conceited is captured in this meme, looking off camera and pursing hi
 Usually represented by a stick figure, it’s someone looking at a computer with some sort of emotion on their face, related to the person’s reaction to something being said or discussed on a thread.
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -219,18 +219,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-revolutionize-channel-wrapping-with-expert-templates-and-how-tos/"><u>[New] 2024 Approved Revolutionize Channel Wrapping with Expert Templates & How-Tos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-complete-guide-to-twitters-paid-reach-and-impressions/"><u>[New] 2024 Approved The Complete Guide to Twitter's Paid Reach and Impressions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-affordable-mic-picks-for-aspiring-yt-bands/"><u>[New] In 2024, Affordable Mic Picks for Aspiring YT Bands</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-find-my-playlist-on-youtube/"><u>[New] In 2024, How to Find My Playlist on YouTube</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-lifecast-your-show-a-basic-podcast-streaming-strategy/"><u>[New] Lifecast Your Show A Basic Podcast Streaming Strategy</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mkv-mastery-top-mac-apps-for-2024/"><u>[New] MKV Mastery Top Mac Apps for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-drone-buying-basics-must-know-points-before-shopping-for-2024/"><u>[Updated] Drone Buying Basics Must-Know Points Before Shopping for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-simple-steps-to-curve-an-image-in-photoshop/"><u>[Updated] In 2024, Simple Steps to Curve an Image in Photoshop</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-2023-top-10-trending-videos-on-twitter/"><u>2024 Approved 2023 | Top 10 Trending Videos on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-optimize-your-tweeted-videos-aspect-ratio-checklist/"><u>2024 Approved Optimize Your Tweeted Videos Aspect Ratio Checklist</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/hashtags-in-harmony-twitter-and-tiktoks-10-viral-vids/"><u>Hashtags in Harmony Twitter and TikTok's 10 Viral Vids</u></a></li>
-<li><a href="https://network-issues.techidaily.com/industrial-grade-secure-data-clearance-get-insight-into-bitrasers-erasure-suite-for-enterprises/"><u>Industrial-Grade Secure Data Clearance: Get Insight Into BitRaser’s Erasure Suite for Enterprises</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/iphone-geolocation-tips-pinpointing-user-location-with-precision/"><u>IPhone Geolocation Tips: Pinpointing User Location with Precision</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-social-image-saver-stealing-and-storing-gif-images-from-twitter/"><u>[New] 2024 Approved The Social Image Saver Stealing and Storing GIF Images From Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-inside-out-how-to-react-on-twitter-vids/"><u>[New] In 2024, Inside Out How to React on Twitter Vids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-top-eight-video-recording-apps-reviewed/"><u>[New] In 2024, Top Eight Video Recording Apps Reviewed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-ultimate-2023-tweet-video-roundup/"><u>[New] In 2024, Ultimate 2023 Tweet Video Roundup</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streamline-capturing-and-saving-tweets-visuals-on-android-for-2024/"><u>[New] Streamline Capturing and Saving Tweets' Visuals on Android for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-ideal-episodic-unveiling-schedule/"><u>[Updated] 2024 Approved Ideal Episodic Unveiling Schedule</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amplify-youtube-twits-with-superior-hd-views/"><u>[Updated] Amplify YouTube Twits with Superior HD Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-earning-edge-reached-for-subscribers-above-500/"><u>2024 Approved Earning Edge Reached for Subscribers Above 500</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-understanding-your-twitter-archives-potential/"><u>2024 Approved Understanding Your Twitter Archive's Potential</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/discover-the-10-leading-no-cost-webcalls-for-businesses/"><u>Discover the 10 Leading No-Cost Webcalls for Businesses</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-tips-for-simple-hdr-mastery/"><u>Essential Tips for Simple HDR Mastery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-import-photos-and-videos-in-windows-10-deepest-secret-for-2024/"><u>How to Import Photos and Videos in Windows 10 (Deepest Secret) for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/imageslice-cutter-for-2024/"><u>ImageSlice Cutter for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-sony-xperia-1-v-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Sony Xperia 1 V Is Unlocked</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/pixels-in-perfection-tweeting-at-full-hd-quality/"><u>Pixels in Perfection Tweeting at Full HD Quality</u></a></li>
 </ul></div>
 

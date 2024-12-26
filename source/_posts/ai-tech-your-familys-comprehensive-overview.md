@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-12-16T19:57:14.931Z
-updated: 2024-12-17T17:41:21.327Z
+date: 2024-12-20T05:11:17.004Z
+updated: 2024-12-25T21:44:19.252Z
 tags:
   - chatgpt
   - open-ai
@@ -17,12 +17,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Large language models (LLMs) come in all shapes and sizes, and will assist you in any way you see fit. But which is best? We put the dominant AIs from Alphabet, OpenAI, and Meta to the test.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Know About AI Chatbots
 
 ![AI robot using a virtual touch screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/ai-robot-using-a-virtual-touch-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Artificial general intelligence has been a goal of computer scientists for decades, and AI has served as a mainstay for science fiction writers and moviemakers for even longer.
@@ -49,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![Lego police surrounding a Lego person sitting at a desk.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/eliminating-human-error.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Both Bard and ChatGPT have extensive privacy policies, and Google repeatedly stresses in its documents that you should "not include information that can be used to identify you or others in your Bard conversations."
 
  By default, Google collects your conversations and your general location based on your IP address, your feedback, and usage information. This information is stored in your Google account for up to 18 months. Although you can pause saving your Bard activity, you should be aware that "to help with quality and improve our products, human reviewers read, annotate, and process your Bard conversations."
@@ -67,6 +67,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to test which LLM has the best general knowledge, we asked three questions.
 
  The first question, "Which national flag has five sides?" was only correctly answered by Bard, which identified the national flag of Nepal as having five sides.
@@ -78,10 +82,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  None of our models could respond that the correct term for a pea-shaped object is "pisiform," with ChatGPT going so far as to suggest that peas have a "three-dimensional geometric shape that is perfectly round and symmetrical."
 
  All three chatbots correctly identified Franco Malerba as an Italian astronaut and member of the European Parliament, with Bard giving an answer worded identically to a section of Malerba's Wikipedia entry.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Which LLM Is Good for Technical Instructions?
 
@@ -107,16 +107,12 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
@@ -130,6 +126,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -154,17 +154,22 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-most-popular-amazon-originals-in-2e23/"><u>[New] 2024 Approved Twitter's Most Popular Amazon Originals in 2E'23</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-snaptweet-transporter-swiftly-grab-social-media-vids/"><u>[New] SnapTweet Transporter Swiftly Grab Social Media Vids</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-traversing-the-timeline-of-facebook-narratives-mobile-plus-laptop/"><u>[New] Traversing the Timeline of Facebook Narratives (Mobile + Laptop)</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-reactivate-lost-chatter-in-social-media-clips/"><u>[Updated] 2024 Approved Reactivate Lost Chatter in Social Media Clips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-link-up-titles-video-upload-to-twittertumblr-for-2024/"><u>[Updated] Link-Up Titles Video Upload to Twitter/Tumblr for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-essentials-of-video-format-transformation-using-vlc/"><u>2024 Approved The Essentials of Video Format Transformation Using VLC</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-avoiding-mishaps-tips-to-enhance-google-meet-chats/"><u>In 2024, Avoiding Mishaps Tips to Enhance Google Meet Chats</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-change-twitter-video-box-art/"><u>In 2024, Change Twitter Video Box Art</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-realme-12-proplus-5g-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Realme 12 Pro+ 5G Is Unlocked</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/is-av1-video-encoding-and-decoding-compatible-with-adobe-premiere-pro-for-importingexporting/"><u>Is AV1 Video Encoding and Decoding Compatible with Adobe Premiere Pro for Importing/Exporting?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-when-your-computers-touchpad-fails/"><u>Troubleshooting Steps When Your Computer's Touchpad Fails</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-samsung-galaxy-s21-ultra-leading-choice-in-android-phones/"><u>Ultimate Guide to the Samsung Galaxy S21 Ultra - Leading Choice in Android Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-reach-sharing-twitters-vids-via-snapchat/"><u>[New] 2024 Approved Maximizing Reach Sharing Twitters' Vids via Snapchat</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-a-step-by-step-to-achieving-realism-in-photoshop-artwork-for-2024/"><u>[New] A Step-by-Step to Achieving Realism in Photoshop Artwork for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweettracker-monitor-and-grab-visuals-from-social-feeds/"><u>[New] In 2024, TweetTracker Monitor & Grab Visuals From Social Feeds</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streamline-youtube-tweets-on-chrome-performance-for-2024/"><u>[New] Streamline YouTube Tweets on Chrome Performance for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-building-brands-through-innovative-design-work-for-2024/"><u>[Updated] Building Brands Through Innovative Design Work for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[Updated] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-necessary-details-for-twitter-video-submissions-aspect-ratio/"><u>[Updated] Necessary Details for Twitter Video Submissions (Aspect Ratio)</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-secure-and-convenient-content-with-funimate-tools/"><u>[Updated] Secure and Convenient Content with Funimate Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-essential-guide-to-iphone-voice-recording-techniques/"><u>2024 Approved Essential Guide to iPhone Voice Recording Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-note-30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-honor-x9b-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Honor X9b System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-the-requires-elevation-error-in-windows-11-devices/"><u>Eliminating the Requires Elevation Error in Windows 11 Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-launch-your-twitter-adventure/"><u>How to Launch Your Twitter Adventure</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/smartphones-how-often-should-you-update/"><u>Smartphones: How Often Should You Update?</u></a></li>
+<li><a href="https://fox-place.techidaily.com/troubleshooting-complete-document-scans-solutions-by-yl-software-experts/"><u>Troubleshooting Complete Document Scans: Solutions by YL Software Experts</u></a></li>
 </ul></div>
 

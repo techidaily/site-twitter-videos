@@ -1,7 +1,7 @@
 ---
 title: "Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
-date: 2024-12-14T19:46:06.650Z
-updated: 2024-12-17T18:09:57.930Z
+date: 2024-12-18T17:25:28.418Z
+updated: 2024-12-25T17:04:23.544Z
 categories:
   - BestProducts
 description: "This Article Describes Next-Level Performance Awaits in the Dell Alienware Aurora R9: An In-Depth Look at Tomorrow's Gaming PC"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/facaba7a5fd4b37097e51780f00827156432b8b7f
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WDbYK32TR0KZYkaW6A8K51jQSpU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -42,12 +46,16 @@ Lifewire / Emily Isaacs
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fellowes Microban Split Design Keyboard
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/R-TJH8gjH_22LNpYu9lLA2lDwyg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_HeroSquare-bca4a6a05ceb40108462ddaf4575d3ed.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -76,6 +84,10 @@ Lifewire / Emily Isaacs
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/WPjeQmKmzof_KVFE5_fIwN92cXc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_05-24f7f07146ae45cd86d2c5bdd4791ee5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Isaacs
 
  Unfortunately, some larger keyboards can trade wrist injuries for shoulder injuries as their users overreach for mice, which brings a whole new set of problems to the table. While it may be a bit of a space hog, and not a terribly sleek or attractive one at that, the Fellowes Microban Split Wired Keyboard has solved both of these issues. What’s more, its ergonomic split design is easy to use and surprisingly comfortable.
@@ -85,10 +97,6 @@ Lifewire / Emily Isaacs
  We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
  Unlike competitor models which often use a mix of fabric, plastics, and in some instances, metals, the entirety of this keyboard is plastic—even down to the[wrist pad](https://www.lifewire.com/best-keyboard-wrist-rests-4172684) . While we did wish that the wrist pad was made of a more comfortable material, it wasn’t uncomfortable during use. Plus, a different material would likely impact the keyboard’s longevity, since the Microban antimicrobial coating needs to be put on an acrylic, non-porous surface in order to protect against common bacteria, yeasts, molds, and fungi.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
 
@@ -102,10 +110,6 @@ Lifewire / Emily Isaacs
 
  The Fellowes features seven hotkeys for multimedia playback. These keys are located along the top of the keyboard and offer such functionality as mute, volume up, volume down, sleep, email, search, and one-touch internet access. We were disappointed that it didn’t include hotkeys for pausing, skipping forward, or skipping backward in multimedia.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Connectivity: A wired connection for reliability**
 
  The Fellowes connects to a PC via a USB cord. We couldn’t help but appreciate the simplicity of this design choice, especially as more and more companies are looking for ways to cut cords. Cutting down on cables is great when it makes sense, but the corded connection here allows for a dependable product, since you never have to worry about a low battery, and also means that the keyboard is more reliable for[faster typists](https://www.lifewire.com/typing-speed-tests-1356663) . It’s equipped with a 16-character buffer, which means that it can hold onto that many typed characters before they’re processed. This is useful if you type faster than conventional keyboards can keep up with, making it less likely for you to lose a stroke.
@@ -117,7 +121,7 @@ Lifewire / Emily Isaacs
  Ergonomic keyboards tend to retail anywhere from $50-$200\. The Fellowes Microban Split Wired Keyboard tends to retail for around $50, which puts this well at the budget end. Its low price point makes it a great introductory ergonomic keyboard, particularly if you’re unsure of what you want and are experimenting with different design choices.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Fellowes Microban Split Design Wired Keyboard vs. Microsoft Sculpt Ergonomic Keyboard**
@@ -127,10 +131,6 @@ Lifewire / Emily Isaacs
 [Microsoft Sculpt Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-sculpt-ergonomic-keyboard-review-4780274)
 
 ![Fellowes Microban Split Design Wired Keyboard](https://www.lifewire.com/thmb/9Ei30bgFst4sw8SynCxgEI_b-9I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Fellowes_ErgoKeyboard_3LW4147386_04-eff22d3b32274568890dd291e56daab5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -175,17 +175,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-broadcasting-tweeted-videos-to-facebook-friends/"><u>[New] 2024 Approved Broadcasting Tweeted Videos to Facebook Friends</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-ultimate-guide-to-best-internet-recording-tools-2023/"><u>[New] 2024 Approved Ultimate Guide to Best Internet Recording Tools 2023</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-comprehensive-list-best-screenshot-and-video-grabbers-for-windows-10-for-2024/"><u>[New] Comprehensive List Best Screenshot & Video Grabbers for Windows 10 for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-internet-flip-chart/"><u>[New] In 2024, Internet Flip Chart</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-meme-masterpiece-wave-for-2024/"><u>[New] Meme Masterpiece Wave for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/cyber-sensation-the-rise-of-videoviral-tweets-for-2024/"><u>Cyber Sensation The Rise of #VideoViral Tweets for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/gratuit-conversion-dvd-a-mp4avi-pour-iphone-android-avec-winx-dvd/"><u>Gratuit: Conversion DVD À MP4/AVI Pour iPhone, Android Avec WinX DVD</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/high-definition-one-punch-man-wallpapers-bundle-by-yl-computing-ultimate-digital-artwork-collection/"><u>High-Definition One Punch Man Wallpapers Bundle by YL Computing: Ultimate Digital Artwork Collection</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-can-i-use-twitter-archive-for-2024/"><u>How Can I Use Twitter Archive for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevate-views-a-guide-to-best-youtube-hash-tags/"><u>In 2024, Elevate Views A Guide to Best YouTube Hash Tags</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unforgettable-gadget-antics-ingenious-apple-prank-ideas-for-friends/"><u>Unforgettable Gadget Antics: Ingenious Apple Prank Ideas for Friends</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2023-how-to-share-a-tiktok-video-on-twitter-for-2024/"><u>[New] 2023 | How to Share A Tiktok Video on Twitter for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-pros-guide-to-uploading-twitter-videos-to-snapchat/"><u>[New] 2024 Approved The Pro's Guide to Uploading Twitter Videos to Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-viral-video-conversion-turning-tweets-into-free-gifs/"><u>[Updated] 2024 Approved Viral Video Conversion Turning Tweets Into Free GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-direct-video-sync-from-twitter-to-tumblr/"><u>[Updated] In 2024, Direct Video Sync From Twitter to Tumblr</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-7-dslr-gear-for-professional-influencers-live-demonstrations/"><u>[Updated] In 2024, Top 7 DSLR Gear For Professional Influencers' Live Demonstrations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-prime-selector-20-twitters-animated-treasure-chest-for-2024/"><u>[Updated] Prime Selector 2.0 Twitter's Animated Treasure Chest for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-playlist-wizard-youtube-music-edition/"><u>[Updated] The Playlist Wizard YouTube Music Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-itop-review-necessary-for-quality-recordings/"><u>2024 Approved ITop Review Necessary for Quality Recordings?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-thriving-as-an-online-gaming-content-creator/"><u>2024 Approved Thriving as an Online Gaming Content Creator</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/essential-tips-and-insights-before-acquiring-an-unrestricted-cellphone/"><u>Essential Tips and Insights Before Acquiring an Unrestricted Cellphone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-13-pro-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 13 Pro without the Previous Owner?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/launch-troubles-behind-you-rainbow-six-siege-now-working-perfectly/"><u>Launch Troubles Behind You: Rainbow Six Siege Now Working Perfectly</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-for-stabilizing-psychonauts-2-performance-on-personal-computers/"><u>Troubleshooting Tips for Stabilizing Psychonauts 2 Performance on Personal Computers</u></a></li>
 </ul></div>
 

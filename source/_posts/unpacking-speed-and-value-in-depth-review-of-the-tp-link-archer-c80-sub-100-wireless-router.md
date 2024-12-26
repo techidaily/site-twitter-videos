@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-12-11T19:54:55.739Z
-updated: 2024-12-17T17:07:06.079Z
+date: 2024-12-24T20:12:31.817Z
+updated: 2024-12-25T16:56:29.055Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -14,12 +14,16 @@ thumbnail: https://thmb.techidaily.com/d01c44a9ae23f7efe9fb5e1960e68d56b4d2035c8
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/pK3yHfIPyy6ONdVABJArg4CtaV0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -39,10 +43,6 @@ Lifewire / Todd Braylor
 [View On Amazon $140](https://www.amazon.com/dp/B07MM5W7Q8?tag=lifewire-onsite-prod-20&ascsubtag=4768656%7Cn86d0302178f542a3a3e6f141913f57d715%7CB07MM5W7Q8) [View On Walmart $120](https://www.walmart.com/ip/Fitbit-Inspire-HR-Fitness-Tracker-Heart-Rate-Black-Small-and-Large-Wristbands/730616397) [View On Verizon](https://www.verizon.com/products/fitbit-inspire-hr/?slpfid=3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Fitbit Inspire HR
 
@@ -74,10 +74,6 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
 
 ## **Design: Low-profile, comfortable, and intuitive**
@@ -94,17 +90,21 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
 
  The Fitbit Inspire HR is simple to set up. You’ll need to connect it to the Fitbit app, which is available on both iOS and Android platforms, and the pairing process is very straightforward.
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: However you exercise, there's an app for that**
 
@@ -144,10 +144,6 @@ Lifewire / Todd Braylor
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A host of insights at a good price**
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
@@ -165,6 +161,10 @@ Lifewire / Todd Braylor
  **A motivating and wallet-friendly way to achieve wellness and performance goals.**
 
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -201,17 +201,16 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-comparative-study-vidma-vs-standard-screen-recording/"><u>[New] Comparative Study Vidma vs Standard Screen Recording</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-game-on-securing-your-playthroughs-in-win10/"><u>[New] In 2024, Game On Securing Your Playthroughs in Win10</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-smile-spectrum-ranking-jokes-from-reddit-and-twitter/"><u>[New] Smile Spectrum Ranking Jokes From Reddit & Twitter</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-the-vloggers-selection-premium-camera-lenses-compared/"><u>[New] The Vlogger's Selection Premium Camera Lenses Compared</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-guide-downloading-twitters-videos-on-android-devices/"><u>[Updated] Guide Downloading Twitters Videos on Android Devices</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-master-tweet-management-ultimate-list-of-unfollow-aids/"><u>[Updated] Master Tweet Management Ultimate List of Unfollow Aids</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/craft-professional-videos-with-free-intros/"><u>Craft Professional Videos with Free Intros</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-vivo-v30-lite-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Vivo V30 Lite 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-vivo-y200e-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-launch-your-twitter-adventure/"><u>In 2024, How to Launch Your Twitter Adventure</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/refining-the-look-of-windows-11s-basic-writing-tool/"><u>Refining the Look of Windows 11'S Basic Writing Tool</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/videotoaudiotweeter-direct-output/"><u>VideoToAudioTweeter Direct Output</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-accessing-the-apex-high-definition-media-from-facebooks-realm/"><u>[New] 2024 Approved Accessing the Apex High-Definition Media From Facebook's Realm</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-bringing-back-tunes-to-twitters-video-posts/"><u>[New] In 2024, Bringing Back Tunes to Twitter's Video Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweaked-sound-from-video-to-mp3aac-for-2024/"><u>[New] Tweaked Sound From Video to MP3/AAC for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-navigating-full-hd-display-on-twitter-videos/"><u>[Updated] 2024 Approved Navigating Full HD Display on Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-backlog-utilizing-past-tweets-for-2024/"><u>[Updated] Twitter Backlog Utilizing Past Tweets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-for-free-how-to-convert-twitter-videos-to-gifs/"><u>2024 Approved For Free! How to Convert Twitter Videos to GIFS?</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/how-to-fix-game-stuttering-a-comprehensive-guide-with-focused-examples-on-cyberpunk-2077/"><u>How to Fix Game Stuttering? A Comprehensive Guide with Focused Examples on Cyberpunk 2077</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-camon-20-premier-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Camon 20 Premier 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-the-wait-is-over-filmora-x-unveils-arm-support/"><u>In 2024, The Wait Is Over Filmora X Unveils ARM Support</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-intensify-visual-soundscapes-for-optimal-engagement/"><u>Updated Intensify Visual Soundscapes for Optimal Engagement</u></a></li>
 </ul></div>
 
