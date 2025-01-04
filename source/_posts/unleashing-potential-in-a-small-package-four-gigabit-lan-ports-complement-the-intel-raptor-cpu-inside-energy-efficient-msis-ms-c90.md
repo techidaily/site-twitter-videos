@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2024-12-20T20:32:53.826Z
-updated: 2024-12-25T18:13:07.910Z
+date: 2025-01-02T19:40:11.329Z
+updated: 2025-01-04T17:01:06.706Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,19 +56,19 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-smirk-spectacle-catching-the-funniest-twitter-talents/"><u>[New] 2024 Approved Smirk Spectacle Catching the Funniest Twitter Talents</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweet-town-ranking-the-trending-threads/"><u>[New] 2024 Approved Tweet Town Ranking the Trending Threads</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-directly-delivering-tiktok-videos-to-twitters-feed-for-2024/"><u>[Updated] Directly Delivering TikTok Videos to Twitter's Feed for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-to-stunning-photomontages/"><u>2024 Approved Step-by-Step to Stunning Photomontages</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/best-flac-audio-players-compatible-with-windows-10/"><u>Best FLAC Audio Players Compatible with Windows 10</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/cannot-play-mkv-files-on-motorola-moto-g04-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Cannot play MKV files on Motorola Moto G04</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/creating-your-ideal-intelligent-abode-top-5-initial-choices-revealed-tech-insights/"><u>Creating Your Ideal Intelligent Abode: Top 5 Initial Choices Revealed | Tech Insights</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-ultimate-encyclopedia-reacting-effectively-on-youtube-vids/"><u>In 2024, The Ultimate Encyclopedia Reacting Effectively on YouTube Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-the-viral-power-couple-tiktok-and-twitter-trends/"><u>In 2024, The Viral Power Couple TikTok & Twitter Trends</u></a></li>
-<li><a href="https://fox-within.techidaily.com/is-it-possible-to-use-windows-defender-alongside-third-party-antivirus-programs-effectively-expert-insights-by-cybertech-consultants/"><u>Is It Possible to Use Windows Defender Alongside Third-Party Antivirus Programs Effectively? Expert Insights by CyberTech Consultants</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/saving-gifs-from-twitter-ios-and-android-guide/"><u>Saving GIFs From Twitter IOS & Android Guide</u></a></li>
-<li><a href="https://os-tips.techidaily.com/simple-guide-to-saving-your-sms-conversations-with-secure-text-message-backups/"><u>Simple Guide to Saving Your SMS Conversations with Secure Text Message Backups</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Hot 40 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-when-your-nvidia-control-center-wont-launch-or-freezes/"><u>Troubleshooting Guide: When Your NVIDIA Control Center Won't Launch or Freezes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-simplifying-the-screen-recording-process-for-dell-users/"><u>[New] 2024 Approved Simplifying the Screen-Recording Process for Dell Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-syncing-voice-with-images-online/"><u>[New] In 2024, Syncing Voice with Images Online</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-interlinked-upload-sharing-content-via-twt-plus-tumble/"><u>[Updated] 2024 Approved Interlinked Upload Sharing Content via Twt + Tumble</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-guide-to-best-android-video-capture-software-5/"><u>[Updated] 2024 Approved Ultimate Guide to Best Android Video Capture Software #5</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-7-top-ranked-apps-for-horizontal-and-vertical-igtv-editing-for-2024/"><u>[Updated] 7 Top-Ranked Apps for Horizontal and Vertical IGTV Editing for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-share-it-all-video-watchlist/"><u>[Updated] Share-It-All Video Watchlist</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-podcast-outros-and-examples-for-2024/"><u>[Updated] The Ultimate Guide to Podcast Outros & Examples for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweetaudioextractor-quick-sound-maker/"><u>[Updated] TweetAudioExtractor Quick Sound Maker</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-video-voyaging-navigating-twittersphere-and-tumbleverse/"><u>2024 Approved Video Voyaging Navigating Twittersphere & Tumbleverse</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-visual-vault-safeguarding-the-artistry-of-twitters-gifs/"><u>2024 Approved Visual Vault - Safeguarding the Artistry of Twitter's GIFs</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-c300-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia C300?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/overcome-youtube-tweet-buffer-in-chromebook-for-2024/"><u>Overcome YouTube Tweet Buffer in Chromebook for 2024</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/telecharger-et-jouer-gratuitement-la-playlist-en-4k-avec-le-telechargement-video-4k-optimal/"><u>Télécharger Et Jouer Gratuitement La Playlist en 4K Avec Le Téléchargement Vidéo 4K Optimal</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723001916025-trouble-with-a-non-reactive-utorrent-here-are-7-effective-remedies/"><u>Trouble with a Non-Reactive Utorrent? Here Are 7 Effective Remedies</u></a></li>
 </ul></div>
 

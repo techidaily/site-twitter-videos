@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2024-12-24T16:10:02.297Z
-updated: 2024-12-26T04:20:52.050Z
+date: 2025-01-02T16:02:28.514Z
+updated: 2025-01-04T19:20:57.967Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,22 +88,22 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-2023-techniques-posting-tiktoks-on-twitter/"><u>[Updated] 2023 Techniques Posting TikToks on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-emoji-essentials-top-twitter-tools-with-perfect-gifs-2024/"><u>[Updated] Emoji Essentials - Top Twitter Tools with Perfect GIFs, 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-hunters-top-5-video-tools-of-today/"><u>[Updated] Hunters' Top 5 Video Tools of Today</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-animation-amalgamator-a-top-choice-for-saving-and-storing-your-tweeted-gifs/"><u>[Updated] In 2024, Animation Amalgamator A Top Choice for Saving and Storing Your Tweeted GIFs</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-the-sweet-spot-optimal-youtube-video-upload-rates-for-growth/"><u>[Updated] In 2024, Finding the Sweet Spot Optimal YouTube Video Upload Rates for Growth</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mi-drones-sky-views-unveiled-in-full-hd-quality-check/"><u>[Updated] Mi Drone's Sky Views Unveiled in Full HD Quality Check</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-celebrating-families-this-years-top-10-movie-gems/"><u>2024 Approved Celebrating Families This Year’s Top 10 Movie Gems</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-bluetooth-solutions-exploring-truckers-earpiece-choices/"><u>Budget Bluetooth Solutions: Exploring Truckers’ Earpiece Choices</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/engaging-eyesight-navigating-high-definition-tweets-for-2024/"><u>Engaging Eyesight Navigating High-Definition Tweets for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/immersive-escapes-delving-into-jaunt-vr-for-2024/"><u>Immersive Escapes Delving Into Jaunt VR for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-enhance-your-footage-perfect-aspect-ratio-selection/"><u>In 2024, Enhance Your Footage Perfect Aspect Ratio Selection</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-social-media-synopsis-top-trending-twitvideos/"><u>In 2024, Social Media Synopsis Top Trending TwitVideos</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-mp4-to-mp3-conversion-made-easy-best-software-for-2024/"><u>New MP4 to MP3 Conversion Made Easy Best Software for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tailoring-twitter-video-thumbnails-a-step-by-step-guide-for-2024/"><u>Tailoring Twitter Video Thumbnails A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-must-know-aspect-ratio-for-tweeting-videos/"><u>The Must-Know Aspect Ratio for Tweeting Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweetvidcutter-mp4webm-extractor/"><u>TweetVidCutter MP4/WebM Extractor</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-selecting-a-top-screen-recorder-obsfraps/"><u>[New] 2024 Approved The Ultimate Guide to Selecting a Top Screen Recorder (OBS/Fraps)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pioneering-clear-high-definition-on-twitter-videos/"><u>[New] Pioneering Clear, High-Definition on Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pioneering-successful-twitter-promotions-for-2024/"><u>[New] Pioneering Successful Twitter Promotions for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-pixel-perfection-your-guide-to-youtube-twitters-and-hd/"><u>[Updated] 2024 Approved Pixel Perfection Your Guide to YouTube, Twitters, and HD</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-fix-audio-loop-in-tweeted-visual-media-links/"><u>[Updated] Fix Audio Loop in Tweeted Visual Media Links</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maintaining-the-right-video-aspect-on-twitters/"><u>[Updated] Maintaining the Right Video Aspect on Twitters</u></a></li>
+<li><a href="https://games-able.techidaily.com/best-five-text-escapades-online-only/"><u>Best Five Text Escapades Online-Only</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/elevate-your-social-media-game-post-tiktoks-on-twitter-for-2024/"><u>Elevate Your Social Media Game Post TikToks on Twitter for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-superior-20-anime-song-intros/"><u>In 2024, Superior 20 Anime Song Intros</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/no-cost-macripper-software-rip-dvd-movies-in-mp4hevc-h264-format-for-iphone-compatibility/"><u>No Cost Macripper Software - Rip DVD Movies in MP4/HEVC H.264 Format for iPhone Compatibility</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/reaching-more-posting-tiktok-videos-on-twitter-for-2024/"><u>Reaching More Posting TikTok Videos on Twitter for 2024</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/stability/"><u>Stability</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-social-sphere-spotlight-this-years-popular-tweets/"><u>The Social Sphere Spotlight This Year's Popular Tweets</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-guide-to-additional-payments-for-games/"><u>The Ultimate Guide to Additional Payments for Games</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-rated-magsafe-chargers-and-batteries-ultimate-guide-for-2e24-zdnet/"><u>Top-Rated MagSafe Chargers & Batteries - Ultimate Guide for 2E24 | ZDNET</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/transforming-dvd-files-into-mp4-on-windows-and-macos-effortlessly-a-guide-with-10-proven-strategies/"><u>Transforming DVD Files Into MP4 on Windows and macOS Effortlessly: A Guide with 10 Proven Strategies</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/why-electric-vehicles-excel-over-gas-cars-unveiling-the-superior-performance/"><u>Why Electric Vehicles Excel Over Gas Cars: Unveiling the Superior Performance</u></a></li>
 </ul></div>
 

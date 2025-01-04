@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-12-18T21:59:40.140Z
-updated: 2024-12-25T20:15:05.767Z
+date: 2024-12-31T18:25:25.210Z
+updated: 2025-01-04T20:00:47.032Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -18,7 +18,7 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -46,10 +46,6 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -95,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -108,12 +104,16 @@ An inexpensive option considering what it can do.
 
 Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
@@ -121,10 +121,6 @@ Lifewire / Tony Mitera
  You can pick up this model for about $70, which makes the M MOOCK Jump Starter an inexpensive option considering what it can do. The case doesn’t feel like it can take too much of a beating, but protects the starter well, and the included accessory kit is generously provisioned.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: A good showing against close competition**
 
@@ -143,6 +139,10 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,16 +174,22 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-chuckle-champions-twitters-comedy-corner/"><u>[Updated] In 2024, Chuckle-Champions Twitter’s Comedy Corner</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-tricks-to-document-league-of-legends-games-efficiently/"><u>[Updated] In 2024, Top Tricks to Document League of Legends Games Efficiently</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-breaking-barriers-to-sound-in-twitters-visual-share/"><u>2024 Approved Breaking Barriers to Sound in Twitter's Visual Share</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-quick-tips-sending-tweets-content-via-whatsapp-app/"><u>2024 Approved Quick Tips Sending Tweets' Content via WhatsApp App</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-the-secrets-of-youtubes-content-hub-for-2024/"><u>Decoding the Secrets of YouTube's Content Hub for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-motorola-edge-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-15-pro-max-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 15 Pro Max when Phone is Broken?</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-tying-the-story-together-expert-techniques-for-inshots-seamless-segments/"><u>In 2024, Tying the Story Together Expert Techniques for Inshot's Seamless Segments</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Vivo Y02T? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-youtube-phenomenon-forecast/"><u>In 2024, YouTube Phenomenon Forecast</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-revised-video-standards-aspect-ratios-included/"><u>Twitter's Revised Video Standards Aspect Ratios Included</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-memes-to-your-device-iosandroid-gif-collection-tips/"><u>[New] 2024 Approved From Memes to Your Device IOS/Android GIF Collection Tips</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-crafting-curve-concepts-for-text-visualization/"><u>[New] In 2024, Crafting Curve Concepts for Text Visualization</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-navigating-video-uploads-on-social-platforms/"><u>[New] Navigating Video Uploads on Social Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-seamless-social-sharing-upload-a-twt-for-2024/"><u>[Updated] Seamless Social Sharing Upload a Twt for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamline-capturing-and-saving-tweets-visuals-on-android-for-2024/"><u>[Updated] Streamline Capturing and Saving Tweets' Visuals on Android for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/comprehensive-solutions-addressing-the-synaptics-smbus-driver-conflict-on-windows-11-systems/"><u>Comprehensive Solutions: Addressing the Synaptics SMBus Driver Conflict on Windows 11 Systems</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-motorola-edge-40-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Motorola Edge 40.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-realme-11-proplus-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Realme 11 Pro+?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-guide-to-launching-your-own-product-critique-network/"><u>In 2024, A Step-by-Step Guide to Launching Your Own Product Critique Network</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>In 2024, Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-perfecting-the-art-of-twitter-broadcasts/"><u>In 2024, Perfecting the Art of Twitter Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/master-tweet-management-ultimate-list-of-unfollow-aids-for-2024/"><u>Master Tweet Management Ultimate List of Unfollow Aids for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-resource-compendium-for-optimizing-on-screen-captioning-for-2024/"><u>The Ultimate Resource Compendium for Optimizing On-Screen Captioning for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unlock-content-creation-uploading-videos/"><u>Unlock Content Creation Uploading Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/youtubes-guide-to-the-best-gaming-tech-for-2024/"><u>YouTube's Guide to the Best Gaming Tech for 2024</u></a></li>
 </ul></div>
 

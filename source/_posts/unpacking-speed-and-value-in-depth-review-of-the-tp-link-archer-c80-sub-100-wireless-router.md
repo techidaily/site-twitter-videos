@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2024-12-24T20:12:31.817Z
-updated: 2024-12-25T16:56:29.055Z
+date: 2024-12-29T17:37:18.451Z
+updated: 2025-01-04T19:04:46.545Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -13,16 +13,12 @@ thumbnail: https://thmb.techidaily.com/d01c44a9ae23f7efe9fb5e1960e68d56b4d2035c8
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Fitbit Inspire HR
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/pK3yHfIPyy6ONdVABJArg4CtaV0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -74,6 +70,10 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
 ## **Design: Low-profile, comfortable, and intuitive**
@@ -91,13 +91,13 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/0gwdaOIQKIt8c8pet5IIsJQo0a8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-04-149ffa04853d425587e8b38d80542ed7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Sync with the Fitbit app and you're ready to wear**
@@ -144,6 +144,10 @@ Lifewire / Todd Braylor
 
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A host of insights at a good price**
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
@@ -161,10 +165,6 @@ Lifewire / Todd Braylor
  **A motivating and wallet-friendly way to achieve wellness and performance goals.**
 
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -201,16 +201,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-accessing-the-apex-high-definition-media-from-facebooks-realm/"><u>[New] 2024 Approved Accessing the Apex High-Definition Media From Facebook's Realm</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-bringing-back-tunes-to-twitters-video-posts/"><u>[New] In 2024, Bringing Back Tunes to Twitter's Video Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweaked-sound-from-video-to-mp3aac-for-2024/"><u>[New] Tweaked Sound From Video to MP3/AAC for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-navigating-full-hd-display-on-twitter-videos/"><u>[Updated] 2024 Approved Navigating Full HD Display on Twitter Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-backlog-utilizing-past-tweets-for-2024/"><u>[Updated] Twitter Backlog Utilizing Past Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-for-free-how-to-convert-twitter-videos-to-gifs/"><u>2024 Approved For Free! How to Convert Twitter Videos to GIFS?</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Itel P55T | Dr.fone</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/how-to-fix-game-stuttering-a-comprehensive-guide-with-focused-examples-on-cyberpunk-2077/"><u>How to Fix Game Stuttering? A Comprehensive Guide with Focused Examples on Cyberpunk 2077</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-tecno-camon-20-premier-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Tecno Camon 20 Premier 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-the-wait-is-over-filmora-x-unveils-arm-support/"><u>In 2024, The Wait Is Over Filmora X Unveils ARM Support</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/updated-intensify-visual-soundscapes-for-optimal-engagement/"><u>Updated Intensify Visual Soundscapes for Optimal Engagement</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-compre-cooked-tweets-the-complete-tweet-vids-guide/"><u>[New] 2024 Approved Compre Cooked Tweets The Complete Tweet Vids Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-an-in-depth-look-at-video-apps-for-iphone-and-android-users-for-2024/"><u>[New] An In-Depth Look at Video Apps for iPhone & Android Users for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-youtube-channel-art-templates-find-them-here/"><u>[New] In 2024, Free YouTube Channel Art Templates - Find Them Here</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streamlining-your-zoom-recordings-a-comprehensive-workshop/"><u>[New] In 2024, Streamlining Your Zoom Recordings A Comprehensive Workshop</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-quick-technique-downloading-tweet-videos-to-your-phone/"><u>[New] Quick Technique Downloading Tweet Videos to Your Phone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweettide-surge-video-waves-gain-momentum-for-2024/"><u>[New] TweetTide Surge Video Waves Gain Momentum for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-guide-adding-videos/"><u>[New] Twitter's Guide Adding Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-amplify-volume-for-twitters-silent-videos/"><u>[Updated] 2024 Approved Amplify Volume for Twitter's Silent Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-navigating-through-best-youtube-extractors/"><u>[Updated] 2024 Approved Navigating Through Best YouTube Extractors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-ensuring-your-tweets-meet-aspect-ratio-norms-for-2024/"><u>[Updated] Ensuring Your Tweets Meet Aspect Ratio Norms for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-voice-memo-creation-on-ios-devices/"><u>[Updated] Step-by-Step Voice Memo Creation on iOS Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-pinnacle-of-live-tweeting-on-social-media/"><u>[Updated] The Pinnacle of Live Tweeting on Social Media</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-luminous-leadership-elevating-content-through-insta-hits/"><u>2024 Approved Luminous Leadership Elevating Content Through Insta Hits</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/easy-step-by-step-guide-to-convert-avi-videos-to-wmv-utilize-the-power-of-movavis-free-tool/"><u>Easy Step-by-Step Guide to Convert AVI Videos to WMV - Utilize the Power of Movavi's Free Tool!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-cutting-through-platform-barriers-sharing-tweets-videos-to-snapchat/"><u>In 2024, Cutting Through Platform Barriers Sharing Tweets' Videos to Snapchat</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/netflix-troubleshooting-on-windows-10-effective-solutions-for-common-app-malfunctions/"><u>Netflix Troubleshooting on Windows 10: Effective Solutions for Common App Malfunctions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-10-essential-animated-text-makers-for-unbeatable-engagement/"><u>Updated In 2024, 10 Essential Animated Text Makers for Unbeatable Engagement</u></a></li>
 </ul></div>
 

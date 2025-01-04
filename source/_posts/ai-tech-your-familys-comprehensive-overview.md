@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-12-20T05:11:17.004Z
-updated: 2024-12-25T21:44:19.252Z
+date: 2024-12-28T16:29:23.941Z
+updated: 2025-01-04T19:01:25.564Z
 tags:
   - chatgpt
   - open-ai
@@ -17,17 +17,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Large language models (LLMs) come in all shapes and sizes, and will assist you in any way you see fit. But which is best? We put the dominant AIs from Alphabet, OpenAI, and Meta to the test.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What You Need to Know About AI Chatbots
 
 ![AI robot using a virtual touch screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/ai-robot-using-a-virtual-touch-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Artificial general intelligence has been a goal of computer scientists for decades, and AI has served as a mainstay for science fiction writers and moviemakers for even longer.
 
@@ -43,6 +35,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Which Is the Easiest Large Language Model to Use?
 
  Both Bard and ChatGPT require an account to use the service. Both Google and OpenAI accounts are easy and free to create, and you can immediately start asking questions.
@@ -52,6 +48,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which Is the Most Private Large Language Model?
 
 ![Lego police surrounding a Lego person sitting at a desk.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/eliminating-human-error.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Both Bard and ChatGPT have extensive privacy policies, and Google repeatedly stresses in its documents that you should "not include information that can be used to identify you or others in your Bard conversations."
 
@@ -67,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
 ![man at the base of a flagpole flying the flag of nepal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/man-at-the-base-of-a-flagpole-flying-the-flag-of-nepal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In order to test which LLM has the best general knowledge, we asked three questions.
 
  The first question, "Which national flag has five sides?" was only correctly answered by Bard, which identified the national flag of Nepal as having five sides.
@@ -82,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  None of our models could respond that the correct term for a pea-shaped object is "pisiform," with ChatGPT going so far as to suggest that peas have a "three-dimensional geometric shape that is perfectly round and symmetrical."
 
  All three chatbots correctly identified Franco Malerba as an Italian astronaut and member of the European Parliament, with Bard giving an answer worded identically to a section of Malerba's Wikipedia entry.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which LLM Is Good for Technical Instructions?
 
@@ -99,9 +99,17 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Python is a useful programming language](https://www.makeuseof.com/what-is-python-used-for/) that runs on most modern platforms. We instructed our models to use Python and "Build a basic calculator program that can perform arithmetic operations like addition, subtraction, multiplication, and division. It should take user input and display the result." This is one of the[best programming projects for beginners](https://www.makeuseof.com/tag/beginner-programming-projects/) .
 
@@ -110,10 +118,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
@@ -126,10 +130,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -154,22 +154,19 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-maximizing-reach-sharing-twitters-vids-via-snapchat/"><u>[New] 2024 Approved Maximizing Reach Sharing Twitters' Vids via Snapchat</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-a-step-by-step-to-achieving-realism-in-photoshop-artwork-for-2024/"><u>[New] A Step-by-Step to Achieving Realism in Photoshop Artwork for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-tweettracker-monitor-and-grab-visuals-from-social-feeds/"><u>[New] In 2024, TweetTracker Monitor & Grab Visuals From Social Feeds</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-streamline-youtube-tweets-on-chrome-performance-for-2024/"><u>[New] Streamline YouTube Tweets on Chrome Performance for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-building-brands-through-innovative-design-work-for-2024/"><u>[Updated] Building Brands Through Innovative Design Work for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-convert-twitter-vids-to-customized-soundtracks-for-2024/"><u>[Updated] Convert Twitter Vids to Customized Soundtracks for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-extracting-and-saving-tweets-video-files-in-android/"><u>[Updated] Expert Advice Extracting & Saving Tweets' Video Files in Android</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-necessary-details-for-twitter-video-submissions-aspect-ratio/"><u>[Updated] Necessary Details for Twitter Video Submissions (Aspect Ratio)</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-secure-and-convenient-content-with-funimate-tools/"><u>[Updated] Secure and Convenient Content with Funimate Tools</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-essential-guide-to-iphone-voice-recording-techniques/"><u>2024 Approved Essential Guide to iPhone Voice Recording Techniques</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-infinix-note-30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-honor-x9b-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Honor X9b System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/eliminating-the-requires-elevation-error-in-windows-11-devices/"><u>Eliminating the Requires Elevation Error in Windows 11 Devices</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-launch-your-twitter-adventure/"><u>How to Launch Your Twitter Adventure</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smartphones-how-often-should-you-update/"><u>Smartphones: How Often Should You Update?</u></a></li>
-<li><a href="https://fox-place.techidaily.com/troubleshooting-complete-document-scans-solutions-by-yl-software-experts/"><u>Troubleshooting Complete Document Scans: Solutions by YL Software Experts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-10-best-webcams-a-buyers-guide/"><u>[New] 2024 Approved 10 Best Webcams | A Buyer’s Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pinnacle-edition-tweets-transformed-into-timeless-gifs/"><u>[New] 2024 Approved Pinnacle Edition - Tweets Transformed Into Timeless GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-new-rule-include-aspect-ratio-in-video-posts/"><u>[New] Twitter's New Rule Include Aspect Ratio in Video Posts</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-storytelling-game-on-snapchat-top-15-ideas/"><u>[Updated] 2024 Approved Elevate Your Storytelling Game on Snapchat (Top 15 Ideas)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-highlight-hubs-choosing-the-right-online-aids/"><u>[Updated] 2024 Approved Highlight Hubs Choosing the Right Online Aids</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-of-breed-pages-for-sparkling-3d-text/"><u>[Updated] In 2024, Best of Breed Pages for Sparkling 3D Text</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pro-video-mastery-with-iphone-unveiling-top-8-tips-for-success/"><u>[Updated] Pro Video Mastery with iPhone Unveiling Top 8 Tips for Success</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-to-whatsapp-video-broadcasting-guide-for-2024/"><u>[Updated] Twitter-to-WhatsApp Video Broadcasting Guide for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-iphone-android-which-has-the-better-youtube-experience/"><u>In 2024, IPhone, Android Which Has the Better YouTube Experience?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-seamless-acquisition-of-twitters-jokes-for-pc/"><u>In 2024, Seamless Acquisition of Twitter's Jokes for PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-video-upload-bridging-twitter-tumblr-guide/"><u>In 2024, Video Upload Bridging Twitter-Tumblr Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-page-personalize-the-url-notify-friends/"><u>Revamp Your Page: Personalize the URL, Notify Friends</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/securing-your-audio-library-the-top-5-steps-for-internet-radio-storage/"><u>Securing Your Audio Library The Top 5 Steps for Internet Radio Storage</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unveiling-the-power-of-srt-in-broadcasting/"><u>Unveiling the Power of SRT in Broadcasting</u></a></li>
 </ul></div>
 

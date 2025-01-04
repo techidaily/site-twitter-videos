@@ -1,7 +1,7 @@
 ---
 title: Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth
-date: 2024-12-21T22:32:09.248Z
-updated: 2024-12-26T00:11:49.756Z
+date: 2025-01-01T19:41:26.337Z
+updated: 2025-01-04T17:51:57.167Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,20 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-breaking-down-2023s-most-sharing-videos-on-twitter/"><u>[New] 2024 Approved Breaking Down 2023'S Most Sharing Videos on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-immediate-sharing-from-twitter-vids-to-whatsapp/"><u>[New] 2024 Approved Immediate Sharing From Twitter Vids to WhatsApp</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweetvidsoundscape-instant-video-to-sound/"><u>[New] TweetVidSoundscape Instant Video-to-Sound</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-amazon-prime-and-tweet-fandom-most-appreciated-videos-2023/"><u>[Updated] Amazon Prime and Tweet Fandom - Most Appreciated Videos, 2023</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-global-music-stream-service/"><u>[Updated] Best Global Music Stream Service</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-convert-audio-online-mp3-to-youtube-live-upload-guide-for-2024/"><u>[Updated] Convert Audio Online MP3 to YouTube Live Upload Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-navigating-to-superior-websites-for-tamil-ringtone-saves/"><u>[Updated] In 2024, Navigating to Superior Websites for Tamil Ringtone Saves</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-guide-to-posting-twitter-clips-on-facebook-platform/"><u>[Updated] In 2024, The Guide to Posting Twitter Clips on Facebook Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitters-aspect-ratio-policies/"><u>[Updated] Navigating Twitter's Aspect Ratio Policies</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-direct-hit-the-techno-friendly-way-to-upload-your-short-clips/"><u>2024 Approved Direct Hit The Techno-Friendly Way to Upload Your Short Clips</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-channel-appeal-with-free-professional-banner-designs/"><u>2024 Approved Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-become-an-instagram-star-9-tips/"><u>In 2024, Become an Instagram Star [9 Tips]</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-oneplus-12-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best OnePlus 12 Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-hp-officejet-3830-printer-drivers-on-your-pc-with-windows-os/"><u>Install HP OfficeJet 3830 Printer Drivers on Your PC with Windows OS</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-extracting-still-moments-top-10-video-to-photo-converters/"><u>Updated 2024 Approved Extracting Still Moments Top 10 Video to Photo Converters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xplore-8-mirrorless-cameras-that-make-great-video-content/"><u>[New] Explore 8 Mirrorless Cameras That Make Great Video Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-harness-the-power-of-obs-on-android-gadgets-for-2024/"><u>[New] How to Harness the Power of OBS on Android Gadgets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-essential-steps-for-saving-tweets-visuals-in-android-app/"><u>[Updated] Essential Steps for Saving Tweets' Visuals in Android App</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-effective-twitter-de-following/"><u>[Updated] In 2024, The Ultimate Guide to Effective Twitter De-Following</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-dual-drive-approach-video-uploads-to-twitter-plus-tumblr-for-2024/"><u>[Updated] The Dual-Drive Approach Video Uploads to Twitter + Tumblr for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-essential-guide-to-cooler-mini-house-creations-for-2024/"><u>[Updated] The Essential Guide to Cooler Mini-House Creations for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-10-most-retweeted-tiktok-sensations/"><u>2024 Approved 10 Most Retweeted TikTok Sensations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-snaptwit-sucker-snatch-social-media-vids-with-ease/"><u>2024 Approved SnapTwit Sucker Snatch Social Media Vids with Ease</u></a></li>
+<li><a href="https://win-bits.techidaily.com/adjust-book-layout-and-format-with-flexibility-on-flipbuildercom/"><u>Adjust Book Layout & Format with Flexibility on FlipBuilder.com</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-hashtag-hits-top-10-viral-tiktoks-on-twitter/"><u>In 2024, Hashtag Hits Top 10 Viral TikToks on Twitter</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-play-7t-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Honor Play 7T PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-understanding-browser-caching-and-its-effect-on-performance/"><u>In 2024, Understanding Browser Caching and Its Effect on Performance</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/industry-standard-guide-implementing-stopwatches-in-video-streaming-software-for-2024/"><u>Industry Standard Guide Implementing Stopwatches in Video Streaming Software for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/note-taking-done-right-gpts-approach-explained/"><u>Note-Taking Done Right - GPT's Approach Explained</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-5-linux-distributions-optimized-for-developers-a-comprehensive-guide-by-zdnet/"><u>Top 5 Linux Distributions Optimized for Developers: A Comprehensive Guide by ZDNet</u></a></li>
 </ul></div>
 

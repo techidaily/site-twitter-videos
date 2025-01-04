@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2024-12-20T10:05:50.258Z
-updated: 2024-12-25T17:31:52.164Z
+date: 2024-12-29T19:11:02.365Z
+updated: 2025-01-04T18:07:42.819Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -13,17 +13,9 @@ thumbnail: https://www.lifewire.com/thmb/vYbnZlpvct2QsxYMi5alja-F-10=/400x300/fi
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -50,6 +42,10 @@ Lifewire / Emily Ramirez
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -81,13 +77,25 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -99,15 +107,7 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -117,11 +117,11 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
 
@@ -130,10 +130,6 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -158,6 +154,10 @@ Lifewire / Emily Ramirez
 **A good card that’s showing its age.**
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -202,22 +202,24 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-sound-streaming-showdown-which-is-the-better-choice-podcast-or-youtube/"><u>[New] 2024 Approved Sound Streaming Showdown Which Is the Better Choice, Podcast or YouTube?</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-the-best-tools-and-tips-to-accurately-tag-your-videos/"><u>[New] In 2024, Discover the Best Tools & Tips to Accurately Tag Your Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-vidcache-101-step-by-step-on-saving-tweets-videos-for-2024/"><u>[New] VidCache 101 Step-by-Step on Saving Tweets' Videos for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-winning-approach-to-saving-twitters-humor-for-2024/"><u>[New] Winning Approach to Saving Twitter's Humor for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-prime-video-the-twitterspheres-favorite-shows-of-23/"><u>[Updated] Prime Video The Twittersphere's #Favorite Shows of '23</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-efficient-ways-to-download-and-store-youtube-like-tweet-videos/"><u>2024 Approved Efficient Ways to Download and Store YouTube-Like Tweet Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-visual-vaults-expert-tips-on-capturing-and-storing-twitter-video/"><u>2024 Approved Visual Vaults Expert Tips on Capturing and Storing Twitter Video</u></a></li>
-<li><a href="https://fox-links.techidaily.com/dji-drones-entry-plus-and-4k-visionaries/"><u>DJI Drones Entry, Plus, and 4K Visionaries</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y77t-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y77t with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-twitter-videos-at-full-hd-your-watchful-pathway/"><u>In 2024, Twitter Videos at Full HD - Your Watchful Pathway</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-uniting-platforms-sharing-vids-on-twtplustumblr-space/"><u>In 2024, Uniting Platforms Sharing Vids on Twt+Tumblr Space</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/ingenious-ai-photo-masterclass/"><u>Ingenious AI Photo Masterclass</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/laugh-riot-twitters-funniest-moments-for-2024/"><u>Laugh Riot Twitter's Funniest Moments for 2024</u></a></li>
-<li><a href="https://win-lab.techidaily.com/losungen-fur-die-fehlerhafte-entdeckungsfunktion-von-wd-schnellstart/"><u>Lösungen Für Die Fehlerhafte Entdeckungsfunktion Von WD - Schnellstart</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/solving-the-opengl32dll-file-not-present-issue-a-step-by-step-guide/"><u>Solving the OpenGL32.dll File Not Present Issue: A Step-by-Step Guide</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/streamlining-laser-troubleshooting/"><u>Streamlining Laser Troubleshooting</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-how-to-fix-chatgpt-application-issues-on-iphone/"><u>Troubleshooting Guide: How to Fix ChatGPT Application Issues on iPhone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-streamline-the-spectacle-exploring-hd-video-on-twitter/"><u>[New] 2024 Approved Streamline the Spectacle Exploring HD Video on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-streamlining-social-sharing-coordinating-vids-on-tweets-plus-tumbles/"><u>[New] 2024 Approved Streamlining Social Sharing Coordinating Vids on Tweets + Tumbles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unrivaled-5-non-twitter-communities-online/"><u>[New] In 2024, Unrivaled 5 Non-Twitter Communities Online</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-the-complete-guide-to-generating-profits-vimeo-monetization-mastery/"><u>[New] The Complete Guide to Generating Profits Vimeo Monetization Mastery</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-wizardry-of-images-elevate-your-snapchat-with-edits/"><u>[New] The Wizardry of Images Elevate Your Snapchat with Edits</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-viral-hit-list-tiktok-edition-for-2024/"><u>[New] Twitter's Viral Hit List TikTok Edition for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-elevate-your-twitter-presence-essential-unfollowing-apps-guide-for-2024/"><u>[Updated] Elevate Your Twitter Presence Essential Unfollowing Apps Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-stop-buffer-tweet-vids-in-chromium-browser/"><u>[Updated] In 2024, Stop Buffer Tweet Vids in Chromium Browser</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twittersphere-treasures-primes-top-watchers-and-likes/"><u>[Updated] In 2024, Twittersphere Treasures Prime’s Top Watchers & Likes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pioneering-macstreaming-avoiding-common-pitfalls-in-mixer/"><u>2024 Approved Pioneering MacStreaming Avoiding Common Pitfalls in Mixer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/exclusive-access-to-premium-playlists-on-mobile-devices/"><u>Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-samsung-galaxy-a05-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Samsung Galaxy A05 Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-apple-iphone-xsipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked Apple iPhone XS/iPad/iPod</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-gif-galore-converting-tweet-videos-at-zero-cost/"><u>In 2024, GIF Galore Converting Tweet Videos at Zero Cost</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-unmute-tracks-from-muted-video-tweets/"><u>In 2024, Unmute Tracks From Muted Video Tweets</u></a></li>
+<li><a href="https://fox-links.techidaily.com/prime-selection-highest-quality-stands/"><u>Prime Selection Highest Quality Stands</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-avi-video-editor-for-windows-8-effortless-editing-made-easy/"><u>Updated In 2024, Best AVI Video Editor for Windows 8 Effortless Editing Made Easy</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unleash-dynamic-text-top-motion-tracking-software-for-2024/"><u>Updated Unleash Dynamic Text Top Motion Tracking Software for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-dimensions-demystified-a-complete-aspect-ratio-handbook-for-2024/"><u>YouTube Dimensions Demystified A Complete Aspect Ratio Handbook for 2024</u></a></li>
 </ul></div>
 

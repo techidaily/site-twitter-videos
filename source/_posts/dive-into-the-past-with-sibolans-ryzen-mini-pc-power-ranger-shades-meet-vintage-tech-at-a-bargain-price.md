@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2024-12-19T23:58:33.391Z
-updated: 2024-12-26T01:39:50.314Z
+date: 2025-01-02T18:35:24.222Z
+updated: 2025-01-04T16:44:09.855Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,21 +89,14 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-maximizing-impact-on-insta-story-with-multiple-images/"><u>[New] 2024 Approved Maximizing Impact on Insta Story with Multiple Images</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-does-instant-subscription-strategy-improve-user-engagement/"><u>[Updated] 2024 Approved Does Instant Subscription Strategy Improve User Engagement?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-advanced-6-private-film-repositories-for-2024/"><u>[Updated] Advanced 6 Private Film Repositories for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-ensure-audible-vids-on-tweet-platform/"><u>[Updated] In 2024, Ensure Audible Vids on Tweet Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-ultimate-amazon-prime-series-most-liked-and-watched-on-twitter/"><u>[Updated] In 2024, The Ultimate Amazon Prime Series Most Liked & Watched on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-integrate-twitter-and-snapchat-posting-tweets-as-snaps-for-2024/"><u>[Updated] Integrate Twitter & Snapchat Posting Tweets as Snaps for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-integrating-twitter-content-with-facebook-networks/"><u>[Updated] Integrating Twitter Content with Facebook Networks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mend-error-non-playing-vids-in-chrome-for-2024/"><u>[Updated] Mend Error Non-Playing Vids in Chrome for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comparing-laptops-macbook-air-vs-macbook-pro-unveiling-key-distinctions/"><u>Comparing Laptops: MacBook Air Vs. MacBook Pro - Unveiling Key Distinctions</u></a></li>
-<li><a href="https://solve-info.techidaily.com/convert-photos-to-editable-pdfsjpeg-files-using-iocr-scanner-streamline-reading-on-ios-devices/"><u>Convert Photos to Editable PDFs/JPEG Files Using iOCR Scanner | Streamline Reading on iOS Devices</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/effortless-epson-driver-download-and-update-for-windows-users/"><u>Effortless Epson Driver Download & Update for Windows Users</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-oppo-a18-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo A18 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-3-tactics-to-grab-twitter-gifs-on-pc/"><u>In 2024, 3 Tactics to Grab Twitter GIFs on PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-x-fold-2-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo X Fold 2</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-tweeted-content-across-facebook-for-2024/"><u>Navigating Tweeted Content Across Facebook for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-tv-shows-streaming-on-discovery-plus-in-july-2024-our-picks/"><u>Top TV Shows Streaming on Discovery Plus in July 2024 - Our Picks!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>[New] In 2024, Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>[Updated] In 2024, Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-pioneering-successful-twitter-promotions/"><u>[Updated] Pioneering Successful Twitter Promotions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-innovative-ideas-for-fb-slideshow-creations/"><u>2024 Approved Innovative Ideas for FB Slideshow Creations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>2024 Approved Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/navigating-windows-10-like-a-tech-wizard-for-2024/"><u>Navigating Windows 10 Like a Tech Wizard for 2024</u></a></li>
+<li><a href="https://win-data.techidaily.com/toshiba-external-hdd-troubleshooting-solutions-when-your-drive-wont-appear/"><u>Toshiba External HDD Troubleshooting: Solutions When Your Drive Won't Appear</u></a></li>
 </ul></div>
 
