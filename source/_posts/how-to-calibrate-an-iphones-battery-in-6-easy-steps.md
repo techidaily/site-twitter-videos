@@ -1,7 +1,7 @@
 ---
 title: How to Calibrate an iPhone's Battery in 6 Easy Steps
-date: 2024-12-30T17:54:11.724Z
-updated: 2025-01-04T18:06:11.278Z
+date: 2025-01-04T08:32:40.407Z
+updated: 2025-01-11T01:47:30.266Z
 tags:
   - iphone
   - apple
@@ -36,10 +36,6 @@ thumbnail: https://thmb.techidaily.com/72d9cc19f5dd74f14cb9e7915834c6357e497aa75
 
  This will help lead to an accurate reading later in the process. After you've reset the battery, you can re-enable all of these options. It's also worth ensuring you haven't accidentally enabled Low Power Mode by going to**Settings > Battery** .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Disable Location Services
 
 To disable location services on your iPhone, follow these steps:
@@ -51,13 +47,13 @@ To disable location services on your iPhone, follow these steps:
 
 ![privacy settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/privacy-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![location services settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/location-services-settings.jpg)
 
 ![location services on off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/location-services-on-off.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Close
 
@@ -90,10 +86,14 @@ Here's how to lower the screen brightness on an iPhone:
 
 ![ios brightness slider](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Close
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Turn Off Automatic App Updates
@@ -109,10 +109,14 @@ Finally, to turn off automatic updates, follow these three steps:
 ![app updates off](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/app-updates-off.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Close
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Calibrate Your iPhone's Battery
 
@@ -125,7 +129,7 @@ Close
  The first step is to completely drain your iPhone's battery. You can do so during normal usage. If you want to speed up the process, you can play a long video on YouTube with the volume turned up to the maximum level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Wait Three Hours
@@ -142,25 +146,17 @@ Close
 * Ideally, use an official Apple charger. At the very least, make sure you [use a trusted Lightning cable](https://www.makeuseof.com/tag/5-great-lightning-cables-charge-iphone-ipad/) or a [high-quality USB-C cable](https://www.makeuseof.com/tag/micro-usb-cables-charge/) if you have an iPhone 15 (or later) and not a cheap knockoff.
 * Continue to charge for a couple of hours even after your phone shows the battery as 100 percent full. You need to ensure you squeeze in every drop of power to ensure the calibration works correctly.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 4: Drain Your iPhone
 
  Now, you need to repeat the whole process a second time. It's the same drill as before: completely drain the power out of your device. Either use it as you normally would or play videos on loop to move it along faster.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 5: Wait Another Three Hours
 
  It's getting repetitive by now but stick with it. Once again, you need to ensure you drain that last bit of battery power from your iPhone. Like before, the longer you can leave it, the better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 6: Charge Your iPhone Again
 
@@ -171,7 +167,7 @@ Close
 And that's it. Now, your iPhone's battery has been recalibrated.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Enable Optimized Battery Charging After Calibration
@@ -181,6 +177,10 @@ And that's it. Now, your iPhone's battery has been recalibrated.
  The best way to do this is by turning on [Optimized Battery Charging on your iPhone](https://www.makeuseof.com/what-is-optimized-battery-charging/) . When this is on, your iPhone learns from your typical charging routine and won't charge past 80% until you're about to use it.
 
 ![battery settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-settings-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![battery health settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-health-settings-iphone.jpg)
 
@@ -211,22 +211,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/irect-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[New] Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-framed-to-impress-your-guide-to-tweets-in-high-definition/"><u>[New] Framed to Impress Your Guide to Tweets in High Definition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-screen-captures-galore-expert-techniques-for-twitter-visuals/"><u>[New] In 2024, Screen Captures Galore Expert Techniques for Twitter Visuals</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tiktok-hits-twitters-viral-top-10-list-for-2024/"><u>[New] TikTok Hits Twitter's Viral Top 10 List for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-mastering-the-art-of-efficient-workflow-capturing-mac-screens-with-just-shortcuts/"><u>2024 Approved Mastering the Art of Efficient Workflow Capturing Mac Screens with Just Shortcuts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-snap-a-story-sharing-photos-and-videos-without-retweet/"><u>2024 Approved Snap a Story Sharing Photos & Videos Without Retweet</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-zero-price-techniques-for-online-educational-recordings/"><u>2024 Approved Zero Price Techniques for Online Educational Recordings</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/1725290561587-imgburn/"><u>理解すべきImgBurnウイルスについて - 予防策</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/in-2024-become-a-better-self-the-20-best-exercising-soundtracks/"><u>In 2024, Become a Better Self The 20 Best Exercising Soundtracks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-comedy-kings-and-queens-of-2023/"><u>In 2024, Comedy Kings & Queens of 2023</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-disabling-apple-iphone-se-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone SE Parental Restrictions With/Without Password | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-hot-40-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Hot 40 Pro to New Android? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-copyright-laws-when-turning-social-media-videos-into-gifs-for-educational-purposes/"><u>In 2024, Navigating Copyright Laws When Turning Social Media Videos Into GIFS for Educational Purposes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/sharing-videos-on-tweet-no-retweets-just-phones-for-2024/"><u>Sharing Videos on Tweet No Retweets, Just Phones for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-buzz-on-twitter-top-10-viral-tweets/"><u>The Buzz on Twitter Top 10 Viral Tweets</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/transform-your-brand-with-powerful-fb-video-messaging-for-2024/"><u>Transform Your Brand with Powerful FB Video Messaging for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unleashing-the-full-power-of-the-m4-ipad-pro-how-ai-integration-at-wwdc-could-transform-user-experience-zdnet-insights/"><u>Unleashing the Full Power of the M4 iPad Pro: How AI Integration at WWDC Could Transform User Experience | ZDNet Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-beginning-with-tweets-your-new-twitter-journey/"><u>[New] 2024 Approved Beginning with Tweets Your New Twitter Journey</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-mp4twitterstreamer-sound-tweet-tool/"><u>[New] 2024 Approved MP4TwitterStreamer Sound Tweet Tool</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-top-10-tiktok-viral-videos-on-twitter/"><u>[New] In 2024, Top 10 TikTok Viral Videos on Twitter</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-shooter-synergy-crafting-a-list-of-top-7-game-battles/"><u>[New] Shooter Synergy Crafting a List of Top 7 Game Battles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-fix-quiet-tweets-with-youtube-links/"><u>[Updated] 2024 Approved Fix Quiet Tweets with YouTube Links</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-hilarity-highway-the-funniest-youtube-videos-on-twitter/"><u>[Updated] Hilarity Highway The Funniest YouTube Videos on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-seamless-tiktok-content-for-twitter-audience/"><u>[Updated] In 2024, Seamless TikTok Content for Twitter Audience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-spotting-the-top-10-discreet-instagram-story-followers/"><u>[Updated] In 2024, Spotting the Top 10 Discreet Instagram Story Followers</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unveiling-youtube-pros-tubebuddys-edge/"><u>2024 Approved Unveiling YouTube Pros TubeBuddy's Edge</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhancing-twits-visuals-to-fhd-standards-for-2024/"><u>Enhancing Twit's Visuals to FHD Standards for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/giggle-galore-twitters-top-10-joke-threads-for-2024/"><u>Giggle Galore Twitter's Top 10 Joke Threads for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-igniting-conversations-fostering-a-supportive-youtube-environment/"><u>In 2024, Igniting Conversations Fostering a Supportive YouTube Environment</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-oppo-reno-8t-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Oppo Reno 8T Phone Network-Ready</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-diablo-immortal-effective-solutions-for-pc-stability-and-crash-prevention-in-the-latest-update/"><u>Master Diablo Immortal: Effective Solutions for PC Stability & Crash Prevention in the Latest Update</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-your-epson-wf-ebody-printers-drivers-in-windows/"><u>Step-by-Step Guide: Updating Your Epson WF-Ebody Printer's Drivers in Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweeting-visuals-integrating-youtube-and-snapchat-for-2024/"><u>Tweeting Visuals Integrating YouTube and Snapchat for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/win-11-update-leads-to-non-printer-functionality/"><u>Win 11 Update Leads to Non-Printer Functionality</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-in-the-classroom-best-practices-and-tips-for-educators-for-2024/"><u>YouTube in the Classroom Best Practices and Tips for Educators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/be-thumbnails-demystified-mac-edition-for-2024/"><u>YouTube Thumbnails Demystified - Mac Edition for 2024</u></a></li>
 </ul></div>
 

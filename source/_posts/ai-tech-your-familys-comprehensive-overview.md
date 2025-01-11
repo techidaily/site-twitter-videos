@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2024-12-28T16:29:23.941Z
-updated: 2025-01-04T19:01:25.564Z
+date: 2025-01-05T13:01:38.932Z
+updated: 2025-01-11T01:50:41.321Z
 tags:
   - chatgpt
   - open-ai
@@ -36,7 +36,7 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  The following comparisons and tests are not meant to be exhaustive but rather give you an indication of key points and capabilities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Which Is the Easiest Large Language Model to Use?
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ![Lego police surrounding a Lego person sitting at a desk.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/eliminating-human-error.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Both Bard and ChatGPT have extensive privacy policies, and Google repeatedly stresses in its documents that you should "not include information that can be used to identify you or others in your Bard conversations."
@@ -62,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  OpenAI's Privacy policy is broadly similar and collects IP address and usage data. In contrast with Google's time-limited retention, OpenAI will "retain your Personal Information for only as long as we need in order to provide our Service to you, or for other legitimate business purposes such as resolving disputes, safety and security reasons, or complying with our legal obligations."
 
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Which LLM Has the Best General Knowledge?
 
@@ -80,7 +84,7 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  All three chatbots correctly identified Franco Malerba as an Italian astronaut and member of the European Parliament, with Bard giving an answer worded identically to a section of Malerba's Wikipedia entry.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Which LLM Is Good for Technical Instructions?
@@ -99,17 +103,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Python is a useful programming language](https://www.makeuseof.com/what-is-python-used-for/) that runs on most modern platforms. We instructed our models to use Python and "Build a basic calculator program that can perform arithmetic operations like addition, subtraction, multiplication, and division. It should take user input and display the result." This is one of the[best programming projects for beginners](https://www.makeuseof.com/tag/beginner-programming-projects/) .
 
@@ -118,6 +114,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
@@ -154,19 +154,16 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-10-best-webcams-a-buyers-guide/"><u>[New] 2024 Approved 10 Best Webcams | A Buyer’s Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-pinnacle-edition-tweets-transformed-into-timeless-gifs/"><u>[New] 2024 Approved Pinnacle Edition - Tweets Transformed Into Timeless GIFs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitters-new-rule-include-aspect-ratio-in-video-posts/"><u>[New] Twitter's New Rule Include Aspect Ratio in Video Posts</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-elevate-your-storytelling-game-on-snapchat-top-15-ideas/"><u>[Updated] 2024 Approved Elevate Your Storytelling Game on Snapchat (Top 15 Ideas)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-highlight-hubs-choosing-the-right-online-aids/"><u>[Updated] 2024 Approved Highlight Hubs Choosing the Right Online Aids</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-best-of-breed-pages-for-sparkling-3d-text/"><u>[Updated] In 2024, Best of Breed Pages for Sparkling 3D Text</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-pro-video-mastery-with-iphone-unveiling-top-8-tips-for-success/"><u>[Updated] Pro Video Mastery with iPhone Unveiling Top 8 Tips for Success</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-to-whatsapp-video-broadcasting-guide-for-2024/"><u>[Updated] Twitter-to-WhatsApp Video Broadcasting Guide for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-iphone-android-which-has-the-better-youtube-experience/"><u>In 2024, IPhone, Android Which Has the Better YouTube Experience?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-seamless-acquisition-of-twitters-jokes-for-pc/"><u>In 2024, Seamless Acquisition of Twitter's Jokes for PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-video-upload-bridging-twitter-tumblr-guide/"><u>In 2024, Video Upload Bridging Twitter-Tumblr Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamp-your-page-personalize-the-url-notify-friends/"><u>Revamp Your Page: Personalize the URL, Notify Friends</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/securing-your-audio-library-the-top-5-steps-for-internet-radio-storage/"><u>Securing Your Audio Library The Top 5 Steps for Internet Radio Storage</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/unveiling-the-power-of-srt-in-broadcasting/"><u>Unveiling the Power of SRT in Broadcasting</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-redesign-twitter-video-header/"><u>[New] 2024 Approved Redesign Twitter Video Header</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-overcome-youtube-tweet-buffer-in-chromebook/"><u>[New] In 2024, Overcome YouTube Tweet Buffer in Chromebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-connect-optimizing-your-tiktok-content/"><u>[New] Twitter Connect Optimizing Your TikTok Content</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-cost-effective-high-performance-asmr-microphones-guide/"><u>[Updated] Cost-Effective, High-Performance ASMR Microphones Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-use-jump-cuts-in-your-vlog/"><u>[Updated] In 2024, How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-action-camera-showdown-sj-cam-s6-takes-the-spotlight/"><u>In 2024, Action Camera Showdown SJ-CAM S6 Takes the Spotlight</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-alleviate-chromes-video-viewing-problem/"><u>In 2024, Alleviate Chrome's Video Viewing Problem</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/integrating-twitter-feed-into-your-whatsapp-conversations-for-2024/"><u>Integrating Twitter Feed Into Your WhatsApp Conversations for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/symphony-of-syntax-musics-impact-on-learning-languages/"><u>Symphony of Syntax: Music's Impact on Learning Languages</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-complete-mac-book-on-srt-file-handling-for-2024/"><u>The Complete Mac Book on SRT File Handling for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-iphone-x-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your iPhone X</u></a></li>
 </ul></div>
 

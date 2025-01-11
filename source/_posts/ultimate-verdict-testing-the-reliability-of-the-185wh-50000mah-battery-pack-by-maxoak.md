@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
-date: 2024-12-31T18:25:25.210Z
-updated: 2025-01-04T20:00:47.032Z
+date: 2025-01-06T23:40:18.640Z
+updated: 2025-01-10T22:53:03.521Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Verdict: Testing the Reliability of the 185Wh / 50,000mAh Battery Pack by MaxOak"
@@ -13,13 +13,13 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## M MOOCK Car Jump Starter
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/KCvyWCCSvwCtAvcRekce_ETLqRE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 [View On Amazon](https://www.amazon.com/dp/B01J5G8PF6?tag=lifewire-onsite-prod-20&ascsubtag=4784187%7Cn5b3e21016e6a46bd90a6c5a5191206c707%7C)
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
 
@@ -72,6 +76,10 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
 
  Lifewire / Tony Mitera
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -91,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/36b09f7ccaa9c81816aab7eda16cf8f7440a1a40a
  To charge other devices there’s a lot less fuss involved. You simply need to plug the device into the USB or DC power port and turn the unit on. A Micro USB cable is provided, so if you have a device that uses a more modern charging port, you'll want to put an extra cable for it in the MOOCK case as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A nice jolt of power to start even the most drained of vehicles**
@@ -105,16 +113,12 @@ An inexpensive option considering what it can do.
 Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
  The built-in flashlight in the M MOOCK Jump Starter puts out a lot of light but only in a relatively narrow band. Luckily, the full unit's basically handheld and therefore it's easy to point the flashlight at what you need. Once you start connecting cables it becomes much harder to aim the light properly. The flashlight can also be set to rapidly blink to draw attention to your situation, or to blink in the standard pattern for “SOS” to really drive home the fact that you need assistance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Some of the best value to be found in jump starters**
 
@@ -139,10 +143,6 @@ Lifewire / Tony Mitera
 A good choice with just a few nagging flaws.
 
  The M Moock 1000A Peak 18000mAh Car Jump Starter is a surprisingly solid choice in jump starters. It has few glaring flaws, and the ones that it does have (like the short cables) just make it marginally more difficult to use, as opposed to being true deal breakers. That said, there are other units available on the market that share some or all the same features but have fewer drawbacks. Overall, the unit's successful but flawed, yet very reliable when you need it most.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -174,22 +174,14 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-from-memes-to-your-device-iosandroid-gif-collection-tips/"><u>[New] 2024 Approved From Memes to Your Device IOS/Android GIF Collection Tips</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-crafting-curve-concepts-for-text-visualization/"><u>[New] In 2024, Crafting Curve Concepts for Text Visualization</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-navigating-video-uploads-on-social-platforms/"><u>[New] Navigating Video Uploads on Social Platforms</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-seamless-social-sharing-upload-a-twt-for-2024/"><u>[Updated] Seamless Social Sharing Upload a Twt for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-streamline-capturing-and-saving-tweets-visuals-on-android-for-2024/"><u>[Updated] Streamline Capturing and Saving Tweets' Visuals on Android for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comprehensive-solutions-addressing-the-synaptics-smbus-driver-conflict-on-windows-11-systems/"><u>Comprehensive Solutions: Addressing the Synaptics SMBus Driver Conflict on Windows 11 Systems</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-motorola-edge-40-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Motorola Edge 40.</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-realme-11-proplus-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Realme 11 Pro+?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-a-step-by-step-guide-to-launching-your-own-product-critique-network/"><u>In 2024, A Step-by-Step Guide to Launching Your Own Product Critique Network</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat/"><u>In 2024, Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-perfecting-the-art-of-twitter-broadcasts/"><u>In 2024, Perfecting the Art of Twitter Broadcasts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/master-tweet-management-ultimate-list-of-unfollow-aids-for-2024/"><u>Master Tweet Management Ultimate List of Unfollow Aids for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/the-ultimate-resource-compendium-for-optimizing-on-screen-captioning-for-2024/"><u>The Ultimate Resource Compendium for Optimizing On-Screen Captioning for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unlock-content-creation-uploading-videos/"><u>Unlock Content Creation Uploading Videos</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/youtubes-guide-to-the-best-gaming-tech-for-2024/"><u>YouTube's Guide to the Best Gaming Tech for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-highlighting-twitvideos-twitters-viral-video-trends/"><u>[Updated] 2024 Approved Highlighting TwitVideos Twitter's Viral Video Trends</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-plant-and-play-stardew-esque-gaming-winners/"><u>[Updated] 2024 Approved Plant and Play Stardew-Esque Gaming Winners</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-secret-for-instantaneous-deletion-of-youtube-feedbacks-for-2024/"><u>[Updated] Unveiling the Secret for Instantaneous Deletion of Youtube Feedbacks for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-a-stepwise-approach-to-twitter-archive-utilization/"><u>2024 Approved A Stepwise Approach to Twitter Archive Utilization</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-expert-tips-for-twitter-video-interactions/"><u>2024 Approved Expert Tips for Twitter Video Interactions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-live-feeds-skip-the-retweet-tactics/"><u>2024 Approved Share Live Feeds Skip the Retweet Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-a-profitable-youtube-content-strategy/"><u>Crafting a Profitable YouTube Content Strategy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-uniting-viewers-mastering-interactive-dialogue-online/"><u>In 2024, Uniting Viewers Mastering Interactive Dialogue Online</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-full-hd-display-on-twitter-videos-for-2024/"><u>Navigating Full HD Display on Twitter Videos for 2024</u></a></li>
 </ul></div>
 

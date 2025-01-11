@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2025-01-03T16:18:17.376Z
-updated: 2025-01-04T17:28:19.477Z
+date: 2025-01-03T18:07:46.306Z
+updated: 2025-01-11T02:55:03.143Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,17 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-audiofromtwitsounds-instant-audio-download-for-2024/"><u>[New] AudioFromTwitSounds Instant Audio Download for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-create-a-personalized-broadcasting-experience-record-webcam-with-vlc/"><u>[New] In 2024, Create a Personalized Broadcasting Experience Record Webcam with VLC</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-the-ultimate-checklist-for-video-quality-boost-version-22-for-2024/"><u>[New] The Ultimate Checklist for Video Quality Boost Version 2.2 for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-reversing-silent-trends-adding-voice-to-twitters-media/"><u>[Updated] 2024 Approved Reversing Silent Trends Adding Voice to Twitter's Media</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[Updated] In 2024, Pinnacle Platforms Alternatives to the Oldest Birdcalls</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-mastering-fair-use-navigating-youtube-copyright-challenges/"><u>[Updated] Mastering Fair Use Navigating YouTube Copyright Challenges</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mobile-methods-download-gifs-from-twitter-on-devices/"><u>[Updated] Mobile Methods Download GIFs From Twitter on Devices</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/excellence-in-audio-the-finest-wired-headphones-of-2024/"><u>Excellence in Audio: The Finest Wired Headphones of 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-top-tweet-talent-social-medias-10-gems/"><u>In 2024, Top Tweet Talent Social Media’s 10 Gems</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/strategies-for-enhancing-your-apple-podcast-visibility-for-2024/"><u>Strategies for Enhancing Your Apple Podcast Visibility for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-future-of-ai-with-google-an-insight-into-project-geminis-current-endeavors-and-ambitions/"><u>The Future of AI with Google: An Insight Into Project Gemini's Current Endeavors and Ambitions</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-unleash-the-power-of-transitions-in-final-cut-pro-3-expert-methods/"><u>Updated Unleash the Power of Transitions in Final Cut Pro 3 Expert Methods</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitsnap-secure-effortless-methods-for-downloading-tweets-videos/"><u>[New] 2024 Approved TwitSnap Secure Effortless Methods for Downloading Tweets' Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-flawless-pixel-processor-windowsmac/"><u>[New] Flawless Pixel Processor (Windows/Mac)</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-step-by-step-ps4-recording-techniques-for-gamers-for-2024/"><u>[New] Step-by-Step PS4 Recording Techniques for Gamers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficient-iphoneandroid-guide-for-tweets-as-visuals/"><u>[Updated] 2024 Approved Efficient iPhone/Android Guide for Tweets as Visuals</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-ideal-choice-12-superior-clicking-adventures-on-your-pc-for-2024/"><u>[Updated] Ideal Choice 12 Superior Clicking Adventures on Your PC for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-premium-podcast-partners-in-academia/"><u>[Updated] Premium Podcast Partners in Academia</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-connect-your-tiktok-creativity-to-twitter/"><u>2024 Approved Connect Your TikTok Creativity to Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/alleviate-problem-buffering-tweets-in-chromebook/"><u>Alleviate Problem Buffering Tweets in Chromebook</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oneplus-12-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to OnePlus 12 FRP Bypass Instantly</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-comedy-cornucopia-twitters-best/"><u>In 2024, Comedy Cornucopia Twitter's Best</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/maximizing-computer-speed-and-stability-expert-strategies-by-yl-software-experts/"><u>Maximizing Computer Speed & Stability: Expert Strategies by YL Software Experts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/prime-18-webcam-recorders-your-ultimate-tech-companion/"><u>Prime 18 Webcam Recorders Your Ultimate Tech Companion</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/simple-guide-to-safeguard-your-data-4-step-process-for-computer-file-backups/"><u>Simple Guide to Safeguard Your Data: 4-Step Process for Computer File Backups</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/splitcam-examination-camera-quality-showdown/"><u>SplitCam Examination - Camera Quality Showdown?</u></a></li>
 </ul></div>
 

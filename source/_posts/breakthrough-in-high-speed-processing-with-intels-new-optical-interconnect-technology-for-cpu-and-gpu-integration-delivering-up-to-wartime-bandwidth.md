@@ -1,7 +1,7 @@
 ---
 title: Breakthrough in High-Speed Processing with Intel's New Optical Interconnect Technology for CPU and GPU Integration, Delivering up to Wartime Bandwidth
-date: 2025-01-01T19:41:26.337Z
-updated: 2025-01-04T17:51:57.167Z
+date: 2025-01-10T02:37:57.278Z
+updated: 2025-01-11T03:21:38.188Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,20 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/xplore-8-mirrorless-cameras-that-make-great-video-content/"><u>[New] Explore 8 Mirrorless Cameras That Make Great Video Content</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-harness-the-power-of-obs-on-android-gadgets-for-2024/"><u>[New] How to Harness the Power of OBS on Android Gadgets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-essential-steps-for-saving-tweets-visuals-in-android-app/"><u>[Updated] Essential Steps for Saving Tweets' Visuals in Android App</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-effective-twitter-de-following/"><u>[Updated] In 2024, The Ultimate Guide to Effective Twitter De-Following</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-dual-drive-approach-video-uploads-to-twitter-plus-tumblr-for-2024/"><u>[Updated] The Dual-Drive Approach Video Uploads to Twitter + Tumblr for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-essential-guide-to-cooler-mini-house-creations-for-2024/"><u>[Updated] The Essential Guide to Cooler Mini-House Creations for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-10-most-retweeted-tiktok-sensations/"><u>2024 Approved 10 Most Retweeted TikTok Sensations</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-snaptwit-sucker-snatch-social-media-vids-with-ease/"><u>2024 Approved SnapTwit Sucker Snatch Social Media Vids with Ease</u></a></li>
-<li><a href="https://win-bits.techidaily.com/adjust-book-layout-and-format-with-flexibility-on-flipbuildercom/"><u>Adjust Book Layout & Format with Flexibility on FlipBuilder.com</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-hashtag-hits-top-10-viral-tiktoks-on-twitter/"><u>In 2024, Hashtag Hits Top 10 Viral TikToks on Twitter</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-play-7t-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Honor Play 7T PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-understanding-browser-caching-and-its-effect-on-performance/"><u>In 2024, Understanding Browser Caching and Its Effect on Performance</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/industry-standard-guide-implementing-stopwatches-in-video-streaming-software-for-2024/"><u>Industry Standard Guide Implementing Stopwatches in Video Streaming Software for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/note-taking-done-right-gpts-approach-explained/"><u>Note-Taking Done Right - GPT's Approach Explained</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-5-linux-distributions-optimized-for-developers-a-comprehensive-guide-by-zdnet/"><u>Top 5 Linux Distributions Optimized for Developers: A Comprehensive Guide by ZDNet</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-enrich-tweets-with-videos-your-quick-reference-for-2024/"><u>[New] Enrich Tweets with Videos Your Quick Reference for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-flashy-flights-prime-pc-and-mobile-game-hits/"><u>[New] In 2024, Flashy Flights Prime PC and Mobile Game Hits</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-invisible-strategies-to-avoid-home-school-vids/"><u>[Updated] 2024 Approved Invisible Strategies to Avoid Home School Vids</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-solution-for-twitter-videos-not-playing-in-chrome/"><u>[Updated] In 2024, Solution for Twitter Videos Not Playing in Chrome</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-interactive-media-exchange-twitter-to-snapchat-videos/"><u>[Updated] Interactive Media Exchange Twitter to Snapchat Videos</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unlocking-the-power-of-photo-editing-in-ps-novice-style-for-2024/"><u>[Updated] Unlocking the Power of Photo Editing in PS, Novice Style for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-videos-directly-on-twitter-via-mobile-devices-only/"><u>2024 Approved Share Videos Directly on Twitter via Mobile Devices Only</u></a></li>
+<li><a href="https://fox-links.techidaily.com/7-leading-budget-4k-mirrorless-cameras-(1k/"><u>7 Leading Budget 4K Mirrorless Cameras (<$1K)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevate-your-reading-experience-top-5-ai-infused-literary-apps/"><u>Elevate Your Reading Experience - Top 5 AI-Infused Literary Apps</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premium-top-5-ultra-hd-capture-gear/"><u>In 2024, Premium Top 5 Ultra HD Capture Gear</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-quintessential-toptiktok-tweets-in-popularity/"><u>In 2024, The Quintessential #TopTikTok Tweets in Popularity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-transitioning-from-standard-to-custom-thumbnails-in-twitter-videos/"><u>In 2024, Transitioning From Standard to Custom Thumbnails in Twitter Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/rediscovering-the-riches-delving-into-literary-masterpieces-of-yore-for-2024/"><u>Rediscovering the Riches Delving Into Literary Masterpieces of Yore for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-connected-world-sharing-twitter-media-in-whatsapp-chat/"><u>The Connected World Sharing Twitter Media in WhatsApp Chat</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-pioneers-guide-to-vr-terminology-for-2024/"><u>The Pioneer's Guide to VR Terminology for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-5-platforms-for-active-engagement-outside-of-twitter/"><u>Top 5 Platforms For Active Engagement Outside of Twitter</u></a></li>
 </ul></div>
 

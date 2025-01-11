@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Laughing Matters  The Viral Meme Scoreboard\""
-date: 2025-01-03T17:09:49.162Z
-updated: 2025-01-04T18:54:42.307Z
+date: 2025-01-09T00:24:31.210Z
+updated: 2025-01-10T22:14:35.430Z
 tags:
   - ai video
   - ai twitter
@@ -64,6 +64,10 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Smug Frog
 
 Smug Frog, who is usually known as Pepe the Frog, is a meme where a strange looking anthropomorphic frog is looking at the user, offering a cocky, smug grin. Before it was stolen by groups that many people don’t wish to be associated with, Smug Frog was often used as a response to people, either to represent “I told you so” or “Tell Me More.”
@@ -81,10 +85,6 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or something similar. It’s usually used when the person posting is exasperated about something stupid that is being discussed.
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9\. Make America Great Again
 
@@ -111,6 +111,10 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the frog from one of the Muppet films). This picture is usually accompanied by a conversation between the user and their “evil self” about a decision that they’re trying to make.
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Nut Button
 
@@ -142,6 +146,10 @@ These posters, at first glance, look like motivational posters, with images of n
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
@@ -154,15 +162,15 @@ The rapper Conceited is captured in this meme, looking off camera and pursing hi
 
 ![Conceited Reaction](https://images.wondershare.com/filmora/article-images/Conceited-Reaction-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\. Computer Reaction Faces
 
 Usually represented by a stick figure, it’s someone looking at a computer with some sort of emotion on their face, related to the person’s reaction to something being said or discussed on a thread.
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -277,10 +285,6 @@ Spongebob Mocking is a screen capture of Spongebob making a strange face and wal
 
 ![Spongebob Mock](https://images.wondershare.com/filmora/article-images/Spongebob-Mock-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Reaction Images
 
 These images vary, but they’re usually a person with a specific expression on their face, and someone posts it as their response to something that another Twitter user has said.
@@ -298,10 +302,6 @@ Expanding Brain is a picture with three images of the brain; one ordinary, one s
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Cash Me Outside/Howbow Dah
 
@@ -367,7 +367,7 @@ This meme, which consists of a sad frog with tears in his eyes and sometimes has
 ![Sad Frog](https://images.wondershare.com/filmora/article-images/Sad-Frog-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Confession Bear
@@ -375,10 +375,6 @@ This meme, which consists of a sad frog with tears in his eyes and sometimes has
 Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, leaning against a log. Usually, Confession Bear is accompanied by some sort of confession that people normally wouldn’t admit in polite company – things that are seen as taboo.
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. This is Fine
 
@@ -418,19 +414,11 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 
 ## Part 2: The Most Popular Memes on Twitter
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Arthur’s Fist
 
 This is a picture of a fist from Arthur, the animated cartoon featuring the anteater from kid’s books; it’s usually posted in response to frustrating or infuriating situations that are posted.
 
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Evil Kermit
 
@@ -438,11 +426,19 @@ Evil Kermit, covered in a black cloak, is talking to traditional Kermit (the fro
 
 ![Evil Kermit](https://images.wondershare.com/filmora/article-images/Evil-Kermit-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Nut Button
 
 Nut Button started as a sexual meme, but it’s commonly used as a picture of someone hitting a blue or red button with a word on it. It’s accompanied by text explaining why you would want to hit that button in that context.
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Spongebob Mock
 
@@ -461,6 +457,10 @@ These images vary, but they’re usually a person with a specific expression on 
 Expanding Brain is a picture with three images of the brain; one ordinary, one slightly lit up, and then one that appears to be exploding in light. On the right hand side of the image, it’s usually something about the user’s evolving thoughts or ideas relating to a topic or how they do things.
 
 ![Expanding Brain](https://images.wondershare.com/filmora/article-images/Expanding-Brain-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Demotivational Posters
 
@@ -485,10 +485,6 @@ The rapper Conceited is captured in this meme, looking off camera and pursing hi
 Usually represented by a stick figure, it’s someone looking at a computer with some sort of emotion on their face, related to the person’s reaction to something being said or discussed on a thread.
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -535,6 +531,10 @@ This meme, which consists of a sad frog with tears in his eyes and sometimes has
 
 ![Sad Frog](https://images.wondershare.com/filmora/article-images/Sad-Frog-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Confession Bear
 
 Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, leaning against a log. Usually, Confession Bear is accompanied by some sort of confession that people normally wouldn’t admit in polite company – things that are seen as taboo.
@@ -579,10 +579,6 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 
 ## Part 2: The Most Popular Memes on Twitter
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Arthur’s Fist
 
 This is a picture of a fist from Arthur, the animated cartoon featuring the anteater from kid’s books; it’s usually posted in response to frustrating or infuriating situations that are posted.
@@ -624,6 +620,10 @@ Expanding Brain is a picture with three images of the brain; one ordinary, one s
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Cash Me Outside/Howbow Dah
 
@@ -678,20 +678,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfect-pan-and-tilt-for-clearer-captures/"><u>[New] 2024 Approved Perfect Pan & Tilt for Clearer Captures</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-transform-your-mac-with-the-latest-macos-11-big-sur-overview/"><u>[New] 2024 Approved Transform Your Mac with the Latest MacOS 11 Big Sur Overview</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-audiblefromtwitvid-direct-audio-conversion/"><u>[New] AudibleFromTwitVid Direct Audio Conversion</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-how-to-make-asmr-videos-all-you-need-to-know/"><u>[New] In 2024, How to Make ASMR Videos All You Need to Know</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-smartphone-strategies-launching-successful-youtubers-from-the-start/"><u>[New] Smartphone Strategies Launching Successful YouTubers From the Start</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-bypass-issue-twitter-video-on-chrome-freeze/"><u>[Updated] In 2024, Bypass Issue Twitter Video on Chrome Freeze</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-insightful-guide-to-sharex-critiques-and-counterparts/"><u>[Updated] Insightful Guide to ShareX Critiques & Counterparts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweetpic-puller-extract-visuals-from-twitter-feed-for-2024/"><u>[Updated] TweetPic Puller Extract Visuals From Twitter Feed for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-smirk-spectacle-catching-the-funniest-twitter-talents/"><u>2024 Approved Smirk Spectacle Catching the Funniest Twitter Talents</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-free-intel-network-adapters-drivers-now-for-windows-11107-supported-systems/"><u>Get Your Free Intel Network Adapters Drivers Now for Windows 11/10/7 Supported Systems!</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-aces-cache-the-premier-choice-for-twitterscape-animation-preservation/"><u>In 2024, Ace's Cache The Premier Choice for Twitterscape Animation Preservation</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-motorola-moto-e13-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Motorola Moto E13?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-discover-the-undiscovered-top-social-media-memes/"><u>In 2024, Discover the Undiscovered Top Social Media Memes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/maintain-proper-aspect-ratio-for-tweeted-movies/"><u>Maintain Proper Aspect Ratio for Tweeted Movies</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/pivotal-data-analysis-excel-delivers-no-ai-matches/"><u>Pivotal Data Analysis Excel Delivers No AI Matches</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-2023-complete-guide-twitter-reaction-videos/"><u>[New] 2024 Approved 2023 Complete Guide | Twitter Reaction Videos</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-elevating-listeners-a-comprehensive-guide-to-podcast-seo/"><u>[New] Elevating Listeners A Comprehensive Guide to Podcast SEO</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-2023-trend-analysis-twitters-top-video-shares/"><u>[New] In 2024, 2023 Trend Analysis Twitter's Top Video Shares</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-mastering-snapchat-share-tweets-via-video/"><u>[New] Mastering Snapchat Share Tweets via Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-how-to-use-twitter-archive/"><u>[Updated] 2024 Approved How to Use Twitter Archive?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-share-your-tweets-as-snaps-easy-tutorials/"><u>[Updated] 2024 Approved Share Your Tweets as Snaps - Easy Tutorials</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-your-youtube-presence-with-ideal-video-formats/"><u>[Updated] Elevating Your YouTube Presence with Ideal Video Formats</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-tiktok-to-twitter-a-2023-blueprint-for-2024/"><u>[Updated] From TikTok to Twitter A 2023 Blueprint for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-expand-your-online-presence-with-larger-youtube-content/"><u>[Updated] In 2024, Expand Your Online Presence with Larger YouTube Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-capture-twitter-gifs-on-your-computer-quickly/"><u>2024 Approved Capture Twitter Gifs on Your Computer Quickly</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-picture-driven-journey-maker/"><u>2024 Approved Premier Picture-Driven Journey Maker</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-iphone-12-mini-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On iPhone 12 mini</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-optimal-strategies-for-enhancing-vhs-photos-digitally/"><u>In 2024, Optimal Strategies for Enhancing VHS Photos Digitally</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-remedying-silent-tweets-with-audio-integration/"><u>In 2024, Remedying Silent Tweets with Audio Integration</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-michael-kors-access-gen-5e-premium-design-meets-intelligent-functionality/"><u>In-Depth Analysis of the Michael Kors Access Gen 5E - Premium Design Meets Intelligent Functionality</u></a></li>
+<li><a href="https://win11.techidaily.com/reclaiming-the-clicks-defeating-silent-spaces-on-pc/"><u>Reclaiming the Clicks: Defeating Silent Spaces on PC</u></a></li>
+<li><a href="https://some-tips.techidaily.com/smartwatch-showdown-elite-picks-of-2astock-marketing-campaigns-for-consumer-engagement/"><u>Smartwatch Showdown: Elite Picks of 2Astock Marketing Campaigns for Consumer Engagement?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/sound-easy-essential-17-relatable-spanish-sayings/"><u>Sound Easy: Essential 17 Relatable Spanish Sayings</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-media-mashup-a-how-to-guide/"><u>Twitter's Media Mashup A How-To Guide</u></a></li>
 </ul></div>
 

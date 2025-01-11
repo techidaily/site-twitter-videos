@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2025-01-02T19:40:11.329Z
-updated: 2025-01-04T17:01:06.706Z
+date: 2025-01-07T02:31:22.581Z
+updated: 2025-01-11T10:37:06.988Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,19 +56,24 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-simplifying-the-screen-recording-process-for-dell-users/"><u>[New] 2024 Approved Simplifying the Screen-Recording Process for Dell Users</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-syncing-voice-with-images-online/"><u>[New] In 2024, Syncing Voice with Images Online</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-interlinked-upload-sharing-content-via-twt-plus-tumble/"><u>[Updated] 2024 Approved Interlinked Upload Sharing Content via Twt + Tumble</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-guide-to-best-android-video-capture-software-5/"><u>[Updated] 2024 Approved Ultimate Guide to Best Android Video Capture Software #5</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-7-top-ranked-apps-for-horizontal-and-vertical-igtv-editing-for-2024/"><u>[Updated] 7 Top-Ranked Apps for Horizontal and Vertical IGTV Editing for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-share-it-all-video-watchlist/"><u>[Updated] Share-It-All Video Watchlist</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-guide-to-podcast-outros-and-examples-for-2024/"><u>[Updated] The Ultimate Guide to Podcast Outros & Examples for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweetaudioextractor-quick-sound-maker/"><u>[Updated] TweetAudioExtractor Quick Sound Maker</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-video-voyaging-navigating-twittersphere-and-tumbleverse/"><u>2024 Approved Video Voyaging Navigating Twittersphere & Tumbleverse</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-visual-vault-safeguarding-the-artistry-of-twitters-gifs/"><u>2024 Approved Visual Vault - Safeguarding the Artistry of Twitter's GIFs</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-nokia-c300-by-drfone-android/"><u>In 2024, How to Bypass FRP from Nokia C300?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/overcome-youtube-tweet-buffer-in-chromebook-for-2024/"><u>Overcome YouTube Tweet Buffer in Chromebook for 2024</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/telecharger-et-jouer-gratuitement-la-playlist-en-4k-avec-le-telechargement-video-4k-optimal/"><u>Télécharger Et Jouer Gratuitement La Playlist en 4K Avec Le Téléchargement Vidéo 4K Optimal</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723001916025-trouble-with-a-non-reactive-utorrent-here-are-7-effective-remedies/"><u>Trouble with a Non-Reactive Utorrent? Here Are 7 Effective Remedies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/remium-sound-picks-for-content-creators-for-2024/"><u>[New] Premium Sound Picks for Content Creators for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-redesign-twitter-video-header-for-2024/"><u>[Updated] Redesign Twitter Video Header for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-secure-transfer-of-twitter-video-files-to-android/"><u>[Updated] Secure Transfer of Twitter Video Files to Android</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-strategies-to-navigate-and-thrive-with-product-sponsors-on-youtube/"><u>[Updated] Strategies to Navigate and Thrive with Product Sponsors on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-streamline-your-content-posting-twitter-videos-on-snapchat/"><u>[Updated] Streamline Your Content Posting Twitter Videos on Snapchat</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-syncing-tiktok-content-with-twitter-for-2024/"><u>[Updated] Syncing TikTok Content with Twitter for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-smoothest-gameplay-with-lg-27uhd68-freesync-tv-for-2024/"><u>[Updated] The Smoothest Gameplay with LG 27UHD68 FreeSync TV for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitch-your-way-mastering-twitter-video-livestreaming-for-2024/"><u>[Updated] Twitch Your Way Mastering Twitter Video Livestreaming for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hilarious-highlights-for-2024/"><u>[Updated] Twitter's Hilarious Highlights for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twittrek-toolkit-a-comprehensive-approach-to-saving-tweets-visuals-for-2024/"><u>[Updated] TwitTrek Toolkit A Comprehensive Approach to Saving Tweets' Visuals for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitvidsync-ios-tool-to-seamlessly-save-twitter-vids-for-2024/"><u>[Updated] TwitVidsync IOS Tool to Seamlessly Save Twitter Vids for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-transforming-simple-sessions-into-high-end-audacity-recordings/"><u>2024 Approved Transforming Simple Sessions Into High-End Audacity Recordings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ensuring-your-privacy-unveiling-apples-strategies-for-secure-ai-processing-in-the-cloud-insights/"><u>Ensuring Your Privacy: Unveiling Apple's Strategies for Secure AI Processing in the Cloud - Insights</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-f54-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-13-pro-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone 13 Pro Device from iCloud</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-cutting-edge-6-urban-designs-in-mc/"><u>In 2024, Cutting-Edge 6 Urban Designs in MC</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfersync-notes-from-apple-iphone-se-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer/Sync Notes from Apple iPhone SE to iPad | Dr.fone</u></a></li>
+<li><a href="https://win-premium.techidaily.com/reinstating-your-windows-11-start-menu-a-step-by-step-guide-techsolutions/"><u>Reinstating Your Windows 11 Start Menu: A Step-by-Step Guide | TechSolutions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/vidoetwitter-fetcher-gather-twitter-videos-effortlessly/"><u>VidoeTwitter Fetcher Gather Twitter Videos Effortlessly</u></a></li>
 </ul></div>
 

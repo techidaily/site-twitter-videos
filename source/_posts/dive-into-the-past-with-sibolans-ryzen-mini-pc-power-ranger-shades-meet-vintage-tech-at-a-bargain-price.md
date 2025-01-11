@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2025-01-02T18:35:24.222Z
-updated: 2025-01-04T16:44:09.855Z
+date: 2025-01-05T22:55:53.030Z
+updated: 2025-01-10T22:40:46.529Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,14 +89,19 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>[New] In 2024, Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-integrate-twitter-and-snapchat-posting-tweets-as-snaps/"><u>[Updated] In 2024, Integrate Twitter & Snapchat Posting Tweets as Snaps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-pioneering-successful-twitter-promotions/"><u>[Updated] Pioneering Successful Twitter Promotions</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-innovative-ideas-for-fb-slideshow-creations/"><u>2024 Approved Innovative Ideas for FB Slideshow Creations</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>2024 Approved Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-honor-magic-5-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Honor Magic 5 Lite | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
-<li><a href="https://fox-links.techidaily.com/navigating-windows-10-like-a-tech-wizard-for-2024/"><u>Navigating Windows 10 Like a Tech Wizard for 2024</u></a></li>
-<li><a href="https://win-data.techidaily.com/toshiba-external-hdd-troubleshooting-solutions-when-your-drive-wont-appear/"><u>Toshiba External HDD Troubleshooting: Solutions When Your Drive Won't Appear</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-prime-binge-worthy-hits-highest-tweets-and-view-counts/"><u>[New] 2024 Approved Prime Binge-Worthy Hits Highest Tweets & View Counts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-guide-for-broadcasting-gopro-videos-to-periscope-and-facebook/"><u>[New] 2024 Approved The Ultimate Guide for Broadcasting GoPro Videos to Periscope & Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-3-tactics-to-grab-twitter-gifs-on-pc-for-2024/"><u>[New] 3 Tactics to Grab Twitter GIFs on PC for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-grids-that-wow-discover-the-top-apps-for-pics/"><u>[New] Grids That Wow Discover the Top Apps for Pics</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mobile-sharing-strategies-bytes-and-vids-not-retweets/"><u>[New] In 2024, Mobile Sharing Strategies Bytes & Vids, Not Retweets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[New] In 2024, Pinnacle Platforms Alternatives to the Oldest Birdcalls</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>[Updated] In 2024, Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-innovative-8-upgrades-for-webcam-visual-quality-for-2024/"><u>[Updated] Innovative 8 Upgrades for Webcam Visual Quality for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-x100-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo X100 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/decision-time-for-codecs-are-you-with-av1-or-vp9/"><u>Decision Time for Codecs Are You with Av1 or VP9?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/digital-dialogue-diaries-the-full-year-tweets-summary-for-2024/"><u>Digital Dialogue Diaries The Full-Year Tweets Summary for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-reactivate-a-nonfunctional-nvidia-cp-on-windows-11/"><u>How to Reactivate a Nonfunctional Nvidia CP on Windows 11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-s24-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speaking-and-listening-to-create-better-decks/"><u>Speaking and Listening to Create Better Decks</u></a></li>
 </ul></div>
 
