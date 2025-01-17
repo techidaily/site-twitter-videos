@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2025-01-05T22:55:53.030Z
-updated: 2025-01-10T22:40:46.529Z
+date: 2025-01-14T23:41:42.443Z
+updated: 2025-01-16T23:05:07.144Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,19 +89,20 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-prime-binge-worthy-hits-highest-tweets-and-view-counts/"><u>[New] 2024 Approved Prime Binge-Worthy Hits Highest Tweets & View Counts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-ultimate-guide-for-broadcasting-gopro-videos-to-periscope-and-facebook/"><u>[New] 2024 Approved The Ultimate Guide for Broadcasting GoPro Videos to Periscope & Facebook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-3-tactics-to-grab-twitter-gifs-on-pc-for-2024/"><u>[New] 3 Tactics to Grab Twitter GIFs on PC for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-grids-that-wow-discover-the-top-apps-for-pics/"><u>[New] Grids That Wow Discover the Top Apps for Pics</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mobile-sharing-strategies-bytes-and-vids-not-retweets/"><u>[New] In 2024, Mobile Sharing Strategies Bytes & Vids, Not Retweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pinnacle-platforms-alternatives-to-the-oldest-birdcalls/"><u>[New] In 2024, Pinnacle Platforms Alternatives to the Oldest Birdcalls</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>[Updated] In 2024, Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-innovative-8-upgrades-for-webcam-visual-quality-for-2024/"><u>[Updated] Innovative 8 Upgrades for Webcam Visual Quality for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-x100-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo X100 Pro to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/decision-time-for-codecs-are-you-with-av1-or-vp9/"><u>Decision Time for Codecs Are You with Av1 or VP9?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/digital-dialogue-diaries-the-full-year-tweets-summary-for-2024/"><u>Digital Dialogue Diaries The Full-Year Tweets Summary for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-reactivate-a-nonfunctional-nvidia-cp-on-windows-11/"><u>How to Reactivate a Nonfunctional Nvidia CP on Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-s24-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy S24? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/speaking-and-listening-to-create-better-decks/"><u>Speaking and Listening to Create Better Decks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-livestreaming-a-comprehensive-guide/"><u>[New] Twitter Livestreaming A Comprehensive Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-video-upload-insights-aspect-ratio-for-twitters-platform/"><u>[New] Video Upload Insights Aspect Ratio for Twitter's Platform</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-alter-twitter-video-glimpse-artwork-for-2024/"><u>[Updated] Alter Twitter Video Glimpse Artwork for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-nine-key-approaches-for-storing-mov-in-windows-environments-for-2024/"><u>[Updated] Nine Key Approaches for Storing .mov in Windows Environments for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-complete-guide-to-compliant-twitter-videos/"><u>[Updated] The Complete Guide to Compliant Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twittervidstowebm-direct-media-conversion-for-2024/"><u>[Updated] TwitterVidsToWebM Direct Media Conversion for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-adhering-to-correct-aspect-ratio-in-twitter-videos/"><u>2024 Approved Adhering to Correct Aspect Ratio in Twitter Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-music-merging-techniques-for-premiere-pro-editors/"><u>2024 Approved Music Merging Techniques for Premiere Pro Editors</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/from-memes-to-your-device-iosandroid-gif-collection-tips/"><u>From Memes to Your Device IOS/Android GIF Collection Tips</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-eliminating-the-suggestions-for-you-feature-in-instagram/"><u>Guide: Eliminating the 'Suggestions for You' Feature in Instagram</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-sonic-layers-in-reels-weaving-audio-into-visuals/"><u>In 2024, Sonic Layers in Reels Weaving Audio Into Visuals</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/synergy-unleashed-how-ai-and-5g-are-revolutionizing-tech-innovations-insights-from-zdnet/"><u>Synergy Unleashed: How AI & 5G Are Revolutionizing Tech Innovations | Insights From ZDNet</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-the-new-era-of-ai-with-gpt-4/"><u>Understanding the New Era of AI with GPT-4</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/y-a-t-il-un-moyen-pour-la-restauration-de-systemes-de-recuperation-permanente-des-fichiers-supprimes/"><u>Y A-T-Il Un Moyen Pour La Restauration De Systèmes De Récupération Permanente Des Fichiers Supprimés ?</u></a></li>
 </ul></div>
 

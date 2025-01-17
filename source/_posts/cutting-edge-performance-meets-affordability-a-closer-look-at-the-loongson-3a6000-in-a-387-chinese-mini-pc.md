@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2025-01-03T18:07:46.306Z
-updated: 2025-01-11T02:55:03.143Z
+date: 2025-01-10T16:59:04.803Z
+updated: 2025-01-16T20:19:57.766Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,19 +88,18 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitsnap-secure-effortless-methods-for-downloading-tweets-videos/"><u>[New] 2024 Approved TwitSnap Secure Effortless Methods for Downloading Tweets' Videos</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-flawless-pixel-processor-windowsmac/"><u>[New] Flawless Pixel Processor (Windows/Mac)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-step-by-step-ps4-recording-techniques-for-gamers-for-2024/"><u>[New] Step-by-Step PS4 Recording Techniques for Gamers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficient-iphoneandroid-guide-for-tweets-as-visuals/"><u>[Updated] 2024 Approved Efficient iPhone/Android Guide for Tweets as Visuals</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-ideal-choice-12-superior-clicking-adventures-on-your-pc-for-2024/"><u>[Updated] Ideal Choice 12 Superior Clicking Adventures on Your PC for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-premium-podcast-partners-in-academia/"><u>[Updated] Premium Podcast Partners in Academia</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-connect-your-tiktok-creativity-to-twitter/"><u>2024 Approved Connect Your TikTok Creativity to Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/alleviate-problem-buffering-tweets-in-chromebook/"><u>Alleviate Problem Buffering Tweets in Chromebook</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oneplus-12-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to OnePlus 12 FRP Bypass Instantly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-comedy-cornucopia-twitters-best/"><u>In 2024, Comedy Cornucopia Twitter's Best</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/maximizing-computer-speed-and-stability-expert-strategies-by-yl-software-experts/"><u>Maximizing Computer Speed & Stability: Expert Strategies by YL Software Experts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/prime-18-webcam-recorders-your-ultimate-tech-companion/"><u>Prime 18 Webcam Recorders Your Ultimate Tech Companion</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/simple-guide-to-safeguard-your-data-4-step-process-for-computer-file-backups/"><u>Simple Guide to Safeguard Your Data: 4-Step Process for Computer File Backups</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/splitcam-examination-camera-quality-showdown/"><u>SplitCam Examination - Camera Quality Showdown?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-pioneering-non-udemy-virtual-classrooms-for-learning/"><u>[New] 2024 Approved Pioneering Non-Udemy Virtual Classrooms for Learning</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-discovering-the-most-shared-twitvideos-of-the-year/"><u>[Updated] In 2024, Discovering the Most Shared TwitVideos of the Year</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitpic-saver-streamline-ios-video-downloads-from-tweets/"><u>[Updated] In 2024, TwitPic Saver Streamline iOS Video Downloads From Tweets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-recommended-portals-accessing-custom-ringers/"><u>2024 Approved Recommended Portals Accessing Custom Ringers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/engaging-eyesight-navigating-high-definition-tweets/"><u>Engaging Eyesight Navigating High-Definition Tweets</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-huawei-nova-y71-to-mac-drfone-by-drfone-android/"><u>How to Mirror Huawei Nova Y71 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-6-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 6 without the Previous Owner?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-tweet-videos-on-iphoneandroid-without-a-retweet/"><u>In 2024, How To Tweet Videos on iPhone/Android Without a Retweet</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-7-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 7 Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-12-pro-max-data-recovery-software-to-recover-lost-ios-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 12 Pro Max® Data Recovery Software to Recover Lost iOS® Data | Stellar</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/pioneering-your-custom-chatbot-with-advanced-gpt-skills/"><u>Pioneering Your Custom ChatBot with Advanced GPT Skills</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-y200-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Y200</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2025-01-05T20:32:06.526Z
-updated: 2025-01-11T11:50:50.703Z
+date: 2025-01-13T17:52:23.133Z
+updated: 2025-01-16T18:03:18.354Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -40,10 +40,6 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/P9a50_oB4MstZx5zB9lbu2dMq68=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-HeroSquare-8f7e93b2de844f05af55410cf220354c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Todd Braylor
 
 [View On Amazon $140](https://www.amazon.com/dp/B07MM5W7Q8?tag=lifewire-onsite-prod-20&ascsubtag=4768656%7Cn86d0302178f542a3a3e6f141913f57d715%7CB07MM5W7Q8) [View On Walmart $120](https://www.walmart.com/ip/Fitbit-Inspire-HR-Fitness-Tracker-Heart-Rate-Black-Small-and-Large-Wristbands/730616397) [View On Verizon](https://www.verizon.com/products/fitbit-inspire-hr/?slpfid=3)
@@ -71,7 +67,7 @@ Lifewire / Todd Braylor
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
@@ -98,10 +94,6 @@ Lifewire / Todd Braylor
 
  The entire setup takes about ten minutes, and the Fitbit app will give you quick tips for using your fitness tracker. Then you are all ready to go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: However you exercise, there's an app for that**
 
  The Fitbit Inspire HR has a host of different exercise apps for whatever activities you enjoy and features specific modes for running, biking, swimming, treadmill workouts, weight lifting, and interval training.
@@ -124,10 +116,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: Maximum capacity designed for 24/7 wear**
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience. You can wear the Inspire HR for several days of activity on end.
@@ -135,6 +123,10 @@ Lifewire / Todd Braylor
  Fitbit claims the Inspire HR battery will last up to five days with a full charge. We found this to be true—the unit we tested lasted a little over five full days before draining down to zero. Charging the Inspire HR took only about two hours before it was back at 100% again.
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software Features: Limited to the Fitbit wellness model**
 
@@ -145,12 +137,16 @@ Lifewire / Todd Braylor
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A host of insights at a good price**
 
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Fitbit Inspire HR vs. Garmin vívosport**
 
@@ -165,6 +161,10 @@ Lifewire / Todd Braylor
  **A motivating and wallet-friendly way to achieve wellness and performance goals.**
 
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -201,20 +201,22 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-tales-of-timeless-togetherness-this-seasons-top-10/"><u>[New] In 2024, Tales of Timeless Togetherness This Season's Top 10</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-re-establish-audible-vids-on-social-sound-for-2024/"><u>[New] Re-Establish Audible Vids on Social Sound for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-ensuring-visual-presentation-youtube-shorts-thumbnails-fix/"><u>[Updated] 2024 Approved Ensuring Visual Presentation YouTube Shorts Thumbnails Fix</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-gopro-vs-polaroid-which-video-editor-prevails/"><u>[Updated] In 2024, GoPro Vs. Polaroid Which Video Editor Prevails?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-digital-diary-keepers-securely-download-tweets-videos/"><u>2024 Approved Digital Diary Keepers Securely Download Tweets' Videos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-htc-u23-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-motorola-has-native-mov-support-by-aiseesoft-video-converter-play-mov-on-android/"><u>Does Motorola has native MOV support?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/essential-green-screen-strategies-in-video-editing-with-kinemaster/"><u>Essential Green Screen Strategies in Video Editing with Kinemaster</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/guide-to-free-music-for-mindfulness-and-serenity/"><u>Guide to Free Music for Mindfulness & Serenity</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/how-to-use-twitter-archive/"><u>How to Use Twitter Archive?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-pc-strategies-for-acquiring-twitter-jokes-gifs/"><u>In 2024, PC Strategies for Acquiring Twitter Jokes (GIFs)</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/overcoming-connectivity-hurdles-how-to-get-your-surface-pro-online-again-via-wi-fi/"><u>Overcoming Connectivity Hurdles: How to Get Your Surface Pro Online Again via Wi-Fi</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/smile-slam-the-best-comedy-moments-on-social-media-for-2024/"><u>Smile Slam The Best Comedy Moments on Social Media for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/videotwitterconverter-mp4-and-webm-generator-for-2024/"><u>VideoTwitterConverter MP4 & WebM Generator for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-efficient-tweet-strategy-embrace-aspect-ratio-specifications-for-2024/"><u>[New] Efficient Tweet Strategy Embrace Aspect Ratio Specifications for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-capture-twitter-gifs-on-your-computer-quickly/"><u>[New] In 2024, Capture Twitter Gifs on Your Computer Quickly</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-revolutionize-your-virtual-engagements-with-advanced-google-meet-customization/"><u>[Updated] 2024 Approved Revolutionize Your Virtual Engagements with Advanced Google Meet Customization</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unlocking-secrets-to-selecting-prime-videographers-for-2024/"><u>[Updated] Unlocking Secrets to Selecting Prime Videographers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-leveraging-influencers-in-your-twitter-marketing-plan/"><u>2024 Approved Leveraging Influencers in Your Twitter Marketing Plan</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-twittersphere-treasure-trove/"><u>2024 Approved The Twittersphere Treasure Trove</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-novice-to-expert-a-complete-guide-to-srt-creation/"><u>From Novice to Expert A Complete Guide to SRT Creation</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-7-plus-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 7 Plus Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://solve-help.techidaily.com/optimal-frequency-how-many-times-a-week-should-you-clear-temp-files-on-your-computer-tips-from-yl-computing/"><u>Optimal Frequency: How Many Times a Week Should You Clear Temp Files on Your Computer? - Tips From YL Computing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/solve-audio-absence-in-twitch-style-tweets/"><u>Solve Audio Absence in Twitch-Style Tweets</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-correcting-the-windows-update-failed-with-code-0x8024200d-issue/"><u>Step-by-Step Solution for Correcting the 'Windows Update Failed with Code 0X8024200D' Issue</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-insiders-look-at-twitter-ad-performance-metrics/"><u>The Insider's Look at Twitter Ad Performance Metrics</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-10-video-calls-software-compared-side-by-side/"><u>Top 10 Video Calls Software Compared Side by Side</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unlocking-the-art-of-engaging-with-tweets-in-videos/"><u>Unlocking the Art of Engaging with Tweets in Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-user-participation-a-blueprint-for-successful-social-posts/"><u>Unlocking User Participation: A Blueprint for Successful Social Posts</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-vs-youtube-which-is-better-in-2024/"><u>Vimeo vs YouTube Which Is Better, In 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/viral-visionaries-top-meme-creators-on-social-media-for-2024/"><u>Viral Visionaries Top Meme Creators on Social Media for 2024</u></a></li>
 </ul></div>
 

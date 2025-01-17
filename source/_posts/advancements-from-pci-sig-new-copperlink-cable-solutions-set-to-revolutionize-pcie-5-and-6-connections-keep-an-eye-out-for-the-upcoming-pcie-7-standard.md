@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2025-01-04T09:36:30.188Z
-updated: 2025-01-11T04:16:06.595Z
+date: 2025-01-15T00:27:22.813Z
+updated: 2025-01-16T20:31:49.360Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,16 +88,15 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-break-new-ground-in-social-sagas-free-extended-versions-await/"><u>[New] Break New Ground in Social Sagas – Free, Extended Versions Await</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-mastering-twitter-cleanup-top-apps-for-efficient-management/"><u>[New] In 2024, Mastering Twitter Cleanup Top Apps for Efficient Management</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-chuckle-champs-twitters-humor-heap/"><u>[Updated] Chuckle-Champs Twitter’s Humor Heap</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-crafting-winning-twitter-sponsored-content-for-2024/"><u>[Updated] Crafting Winning Twitter Sponsored Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-channeling-twitter-vids-seamlessly-to-snapchat/"><u>2024 Approved Channeling Twitter Vids Seamlessly to Snapchat</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-no-hassle-sending-tweeted-videos-to-whatsapp/"><u>2024 Approved No Hassle Sending Tweeted Videos to WhatsApp</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/como-transferir-rapidamente-datos-entre-almacenamiento-en-windows-10/"><u>Cómo Transferir Rapidamente Datos Entre Almacenamiento en Windows 10</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oneplus-open-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on OnePlus Open Phones with/without a PC</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-assemble-films-for-streaming-organization/"><u>In 2024, Assemble Films for Streaming Organization</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-realme-v30t-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Realme V30T Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/teacher/"><u>Teacher]:</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-evaluating-bandicam-and-camtasia-for-mac-users-for-2024/"><u>[New] Evaluating Bandicam and Camtasia for Mac Users for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-convert-twitter-videos-to-gifs/"><u>[New] How To Convert Twitter Videos To GIFS?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-soundtweetify-quick-audible-maker/"><u>[New] SoundTweetify Quick Audible Maker</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-aniworld-complete-app-audit-2024-edition/"><u>[Updated] AniWorld Complete App Audit - 2024 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-winning-windows-sound-engineers/"><u>[Updated] Winning Windows Sound Engineers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-accessing-your-twitter-history/"><u>2024 Approved Accessing Your Twitter History</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-apple-iphone-7-plus-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone 7 Plus When Its Locked Within Seconds</u></a></li>
+<li><a href="https://win-web.techidaily.com/estrategias-para-la-transferencia-adecuada-y-protegida-de-archivos-en-sistemas-operativos-de-windows/"><u>Estrategias Para La Transferencia Adecuada Y Protegida De Archivos en Sistemas Operativos De Windows</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-necessary-details-for-twitter-video-submissions-aspect-ratio/"><u>In 2024, Necessary Details for Twitter Video Submissions (Aspect Ratio)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-5-credit-cards-ideal-for-e-commerce-transactions-insights-from-zdnet/"><u>Top 5 Credit Cards Ideal for E-Commerce Transactions: Insights From ZDNet</u></a></li>
 </ul></div>
 
