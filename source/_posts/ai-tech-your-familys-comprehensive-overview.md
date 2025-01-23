@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2025-01-11T02:24:01.658Z
-updated: 2025-01-16T19:51:41.296Z
+date: 2025-01-20T04:51:57.986Z
+updated: 2025-01-22T18:53:24.095Z
 tags:
   - chatgpt
   - open-ai
@@ -17,12 +17,16 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Large language models (LLMs) come in all shapes and sizes, and will assist you in any way you see fit. But which is best? We put the dominant AIs from Alphabet, OpenAI, and Meta to the test.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What You Need to Know About AI Chatbots
 
 ![AI robot using a virtual touch screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/ai-robot-using-a-virtual-touch-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Artificial general intelligence has been a goal of computer scientists for decades, and AI has served as a mainstay for science fiction writers and moviemakers for even longer.
@@ -50,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ![Lego police surrounding a Lego person sitting at a desk.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/eliminating-human-error.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Both Bard and ChatGPT have extensive privacy policies, and Google repeatedly stresses in its documents that you should "not include information that can be used to identify you or others in your Bard conversations."
@@ -62,10 +66,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  OpenAI's Privacy policy is broadly similar and collects IP address and usage data. In contrast with Google's time-limited retention, OpenAI will "retain your Personal Information for only as long as we need in order to provide our Service to you, or for other legitimate business purposes such as resolving disputes, safety and security reasons, or complying with our legal obligations."
 
  In contrast, a local model on your own machine doesn't require an account or share user data with anyone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Which LLM Has the Best General Knowledge?
 
@@ -99,6 +99,10 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
@@ -107,13 +111,13 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  While both Bard and ChatGPT instantly returned usable and thoroughly commented code, which we were able to test and verify, none of the code from our local model would run.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
@@ -126,10 +130,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
  A derivative but original joke would be, "How are Large Language Models like atoms? They both make things up!"
 
 You read it here first, folks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## No Chatbot Is Perfect
 
@@ -154,19 +154,24 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-elevate-user-experience-with-these-leading-videophones/"><u>[New] 2024 Approved Elevate User Experience with These Leading Videophones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-enhancing-twits-visuals-to-fhd-standards/"><u>[New] Enhancing Twit's Visuals to FHD Standards</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-video-requirements-how-to-upload-a-video-on-twitter/"><u>[New] In 2024, Twitter Video Requirements | How to Upload a Video on Twitter?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-syncing-fb-vids-with-whatsapp-a-step-by-step-guide/"><u>[New] Syncing FB Vids with WhatsApp A Step-by-Step Guide</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-from-footage-to-followers-uploading-on-twitter/"><u>[Updated] In 2024, From Footage to Followers Uploading on Twitter</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-unmatched-melodies-selector-android-companion/"><u>2024 Approved Unmatched Melodies Selector, Android Companion</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-value-oriented-pc-visual-logging-suites/"><u>2024 Approved Value-Oriented PC Visual Logging Suites</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/direct-video-transmission-from-twitters-to-whatsapp/"><u>Direct Video Transmission From Twitters to WhatsApp</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-oneplus-nord-n30-se-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your OnePlus Nord N30 SE to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-get-your-tweets-right-comply-with-aspect-ratio-standards/"><u>In 2024, Get Your Tweets Right Comply with Aspect Ratio Standards</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-is-an-m1-macbook-air-smarter-and-faster-for-editing/"><u>In 2024, Is an M1 MacBook Air Smarter and Faster for Editing?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-video-ventures-uploading-to-twtplustumble-feeds/"><u>In 2024, Video Ventures Uploading to Twt+Tumble Feeds</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/organize-ideas-efficiently-with-mematic-for-2024/"><u>Organize Ideas Efficiently with Mematic for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/raf-png/"><u>무료 RAF PNG 이미지를 원각할 수 있는 방법 - 온라인 가이드</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-bypassing-channels-tweets-on-whatsapp/"><u>[New] Bypassing Channels Tweets on WhatsApp</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-fixing-muted-sound-on-youtube-based-twitter-clips/"><u>[New] Fixing Muted Sound on YouTube-Based Twitter Clips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-update-twitter-video-box-picture/"><u>[New] In 2024, Update Twitter Video Box Picture</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tailoring-twitter-video-thumbnails-a-step-by-step-guide/"><u>[New] Tailoring Twitter Video Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-ultimate-tweet-template-for-visual-sharing/"><u>[Updated] In 2024, The Ultimate Tweet Template for Visual Sharing</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-upload-guide-twitter-video-aspect-ratio-mandated-for-2024/"><u>[Updated] Upload Guide Twitter Video Aspect Ratio Mandated for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/pgmjpeg-movavi/"><u>免費線上轉換PGM格式為JPEG: 動感鎖定器 - Movavi 簡易指南</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/chuckle-fest-twitters-10-funniest-tweets-for-2024/"><u>Chuckle-Fest Twitter's 10 Funniest Tweets for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-honor-magic-v2-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Honor Magic V2</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-deciphering-the-art-of-personalized-playlist-curation-for-youtube/"><u>In 2024, Deciphering the Art of Personalized Playlist Curation for YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-insight-using-live-photos-effectively/"><u>In 2024, Expert Insight Using Live Photos Effectively</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-poco-f5-pro-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Poco F5 Pro 5G Lock Screen Password</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-navigating-video-uploads-on-social-platforms/"><u>In 2024, Navigating Video Uploads on Social Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-sync-twitch-with-snapchat-a-step-by-step-guide/"><u>In 2024, Sync Twitch with Snapchat A Step-by-Step Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/secrets-of-professional-rl-broadcasts/"><u>Secrets of Professional RL Broadcasts</u></a></li>
+<li><a href="https://tools.techidaily.com/stellardata-recovery/file-repair-toolkit/"><u>Toolkit for File Repair</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-meizu-21s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Meizu 21s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-video-editing-vs-visual-effects-premiere-vs-after-effects-explained/"><u>Updated Video Editing vs Visual Effects Premiere vs After Effects Explained</u></a></li>
 </ul></div>
 

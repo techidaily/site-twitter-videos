@@ -1,7 +1,7 @@
 ---
 title: "Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
-date: 2025-01-13T17:52:23.133Z
-updated: 2025-01-16T18:03:18.354Z
+date: 2025-01-21T21:07:17.338Z
+updated: 2025-01-23T06:31:48.283Z
 categories:
   - BestProducts
 description: "This Article Describes Unpacking Speed and Value: In-Depth Review of the TP-Link Archer C80 Sub-$100 Wireless Router"
@@ -66,11 +66,11 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/EVe-neqYdJ7lSX6koaCLTE-Ce7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-03-e8135fa8ae7a4844b3c42b45731c6a35.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Low-profile, comfortable, and intuitive**
 
@@ -114,6 +114,10 @@ Lifewire / Todd Braylor
 
 ![Fitbit Inspire HR](https://www.lifewire.com/thmb/kpOf5qE4yUp_TsA4L5ERLgL3tbM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4057119-02-e84796705da049fbb75f5e2a098c1e8e.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
 ## **Battery: Maximum capacity designed for 24/7 wear**
@@ -124,10 +128,6 @@ Lifewire / Todd Braylor
 
  The extended battery life of the Inspire HR makes for a true 24/7 wellness monitoring experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software Features: Limited to the Fitbit wellness model**
 
  The Inspire HR delivers all the key features that Fitbit has built its brand name around, but beyond the exercise apps, the software capabilities of the model are limited. One of the only extra features it has is the ability to show you call and text notifications when in Bluetooth range of your smartphone.
@@ -137,7 +137,7 @@ Lifewire / Todd Braylor
  You can also set weekly goals for yourself with the Fitbit app, like aiming to hit a certain number of steps, and the Inspire HR will let you know how you're doing and encourage you to move with notifications.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A host of insights at a good price**
@@ -145,7 +145,7 @@ Lifewire / Todd Braylor
  At a reasonable $99.95 MSRP, the Fitbit Inspire HR can help anyone find the motivation to be more active. There are more budget-friendly fitness trackers out there, including several cheaper models from Fitbit. But the addition of heart rate monitoring and sleep tracking of the Fitbit Inspire HR—combined with the numerous exercise apps—means you get a really good amount of functionality for $100.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Fitbit Inspire HR vs. Garmin vívosport**
@@ -163,7 +163,7 @@ Lifewire / Todd Braylor
  With the addition of continuous heart rate monitoring, the Fitbit Inspire HR turns the Fitbit app and its motivational metrics into a successful formula for a healthy lifestyle that any athlete can appreciate. Despite having a small display, the Inspire HR has a ton of training potential, and at a reasonable price.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -201,22 +201,17 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-efficient-tweet-strategy-embrace-aspect-ratio-specifications-for-2024/"><u>[New] Efficient Tweet Strategy Embrace Aspect Ratio Specifications for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-capture-twitter-gifs-on-your-computer-quickly/"><u>[New] In 2024, Capture Twitter Gifs on Your Computer Quickly</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-revolutionize-your-virtual-engagements-with-advanced-google-meet-customization/"><u>[Updated] 2024 Approved Revolutionize Your Virtual Engagements with Advanced Google Meet Customization</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unlocking-secrets-to-selecting-prime-videographers-for-2024/"><u>[Updated] Unlocking Secrets to Selecting Prime Videographers for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-leveraging-influencers-in-your-twitter-marketing-plan/"><u>2024 Approved Leveraging Influencers in Your Twitter Marketing Plan</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-twittersphere-treasure-trove/"><u>2024 Approved The Twittersphere Treasure Trove</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/from-novice-to-expert-a-complete-guide-to-srt-creation/"><u>From Novice to Expert A Complete Guide to SRT Creation</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-7-plus-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 7 Plus Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://solve-help.techidaily.com/optimal-frequency-how-many-times-a-week-should-you-clear-temp-files-on-your-computer-tips-from-yl-computing/"><u>Optimal Frequency: How Many Times a Week Should You Clear Temp Files on Your Computer? - Tips From YL Computing</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/solve-audio-absence-in-twitch-style-tweets/"><u>Solve Audio Absence in Twitch-Style Tweets</u></a></li>
-<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-correcting-the-windows-update-failed-with-code-0x8024200d-issue/"><u>Step-by-Step Solution for Correcting the 'Windows Update Failed with Code 0X8024200D' Issue</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-insiders-look-at-twitter-ad-performance-metrics/"><u>The Insider's Look at Twitter Ad Performance Metrics</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/top-10-video-calls-software-compared-side-by-side/"><u>Top 10 Video Calls Software Compared Side by Side</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/unlocking-the-art-of-engaging-with-tweets-in-videos/"><u>Unlocking the Art of Engaging with Tweets in Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-user-participation-a-blueprint-for-successful-social-posts/"><u>Unlocking User Participation: A Blueprint for Successful Social Posts</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-vs-youtube-which-is-better-in-2024/"><u>Vimeo vs YouTube Which Is Better, In 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/viral-visionaries-top-meme-creators-on-social-media-for-2024/"><u>Viral Visionaries Top Meme Creators on Social Media for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-laughing-up-high-reddit-and-twitters-top-twenty/"><u>[New] Laughing Up High Reddit and Twitter's Top Twenty</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-non-retweeting-video-tweets-from-your-phone-for-2024/"><u>[New] Non-Retweeting Video Tweets From Your Phone for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-alter-twitter-video-glimpse-artwork/"><u>[Updated] 2024 Approved Alter Twitter Video Glimpse Artwork</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-exploring-twittrends-2023s-hot-tweets-uncovered-for-2024/"><u>[Updated] Exploring TwitTrends 2023’S Hot Tweets Uncovered for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-amateurs-to-a-listers-top-10-film-cameras-reviewed/"><u>[Updated] From Amateurs to A-Listers Top 10 Film Cameras Reviewed</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-maximize-your-youtube-srt-a-three-pronged-plan/"><u>[Updated] In 2024, Maximize Your Youtube SRT A Three-Pronged Plan</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tailoring-twitter-video-thumbnails-a-step-by-step-guide/"><u>2024 Approved Tailoring Twitter Video Thumbnails A Step-by-Step Guide</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-reboot-your-ipad-a-comprehensive-tutorial-for-every-generation/"><u>How to Reboot Your iPad - A Comprehensive Tutorial for Every Generation</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/master-the-art-of-data-destruction-7-algorithms-for-irreversible-file-removal/"><u>Master the Art of Data Destruction: 7 Algorithms for Irreversible File Removal</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-apple-ipad-air-201/"><u>The Ultimate Guide to the Apple iPad Air (201</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-compatible-gpus-with-fortnite-gameplay-on-windows/"><u>Troubleshooting Steps for Compatible GPUs with Fortnite Gameplay on Windows</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/unveiling-the-reasons-behind-a-stationary-cpu-fan-insights-from-yl-computing/"><u>Unveiling the Reasons Behind a Stationary CPU Fan: Insights From YL Computing</u></a></li>
 </ul></div>
 

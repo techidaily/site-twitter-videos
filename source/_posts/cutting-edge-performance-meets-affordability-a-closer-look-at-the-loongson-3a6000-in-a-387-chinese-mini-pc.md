@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2025-01-10T16:59:04.803Z
-updated: 2025-01-16T20:19:57.766Z
+date: 2025-01-19T04:01:03.107Z
+updated: 2025-01-23T09:29:28.337Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,18 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-pioneering-non-udemy-virtual-classrooms-for-learning/"><u>[New] 2024 Approved Pioneering Non-Udemy Virtual Classrooms for Learning</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-discovering-the-most-shared-twitvideos-of-the-year/"><u>[Updated] In 2024, Discovering the Most Shared TwitVideos of the Year</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitpic-saver-streamline-ios-video-downloads-from-tweets/"><u>[Updated] In 2024, TwitPic Saver Streamline iOS Video Downloads From Tweets</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-recommended-portals-accessing-custom-ringers/"><u>2024 Approved Recommended Portals Accessing Custom Ringers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/engaging-eyesight-navigating-high-definition-tweets/"><u>Engaging Eyesight Navigating High-Definition Tweets</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-huawei-nova-y71-to-mac-drfone-by-drfone-android/"><u>How to Mirror Huawei Nova Y71 to Mac? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-6-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 6 without the Previous Owner?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Huawei P60? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-tweet-videos-on-iphoneandroid-without-a-retweet/"><u>In 2024, How To Tweet Videos on iPhone/Android Without a Retweet</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-rog-phone-7-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Asus ROG Phone 7 Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://review-topics.techidaily.com/iphone-12-pro-max-data-recovery-software-to-recover-lost-ios-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone 12 Pro Max® Data Recovery Software to Recover Lost iOS® Data | Stellar</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/pioneering-your-custom-chatbot-with-advanced-gpt-skills/"><u>Pioneering Your Custom ChatBot with Advanced GPT Skills</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-y200-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Y200</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preparing-for-twitter-know-the-required-aspect-ratio/"><u>[New] In 2024, Preparing for Twitter Know the Required Aspect Ratio</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-hackers-handbook-advanced-win11-tactics-for-2024/"><u>[New] The Hacker's Handbook Advanced Win11 Tactics for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-science-of-audience-retention-on-tweets/"><u>[New] The Science of Audience Retention on Tweets</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-quick-guide-to-purging-watched-youtube-videos/"><u>[Updated] 2024 Approved A Quick Guide to Purging Watched YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-posting-photos-and-vids-to-twitter-from-your-phone-not-as-a-retweet/"><u>[Updated] 2024 Approved Posting Photos and Vids to Twitter From Your Phone, Not as a Retweet</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-heimdalls-eye-the-watchers-of-ragnarok/"><u>[Updated] Heimdall's Eye The Watchers of Ragnarok</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-optimize-twitter-tweets-for-hd-viewing/"><u>[Updated] In 2024, Optimize Twitter Tweets for HD Viewing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/6-of-our-favorite-food-tracker-apps/"><u>6 of Our Favorite Food Tracker Apps</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/best-zero-price-tools-for-secure-cloud-storage-on-your-desktop-computer/"><u>Best Zero Price Tools for Secure Cloud Storage on Your Desktop Computer</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/descubre-el-tratodo-sobre-la-conversion-de-archivos-video-wmv-usando-ram-en-linea-gratis-la-solucion-de-movavi/"><u>Descubre El Tratodo Sobre La Conversión De Archivos Vídeo WMV Usando RAM en Línea Gratis: La Solución De Movavi</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/essential-info-for-tweeting-videos-aspect-ratios-required-for-2024/"><u>Essential Info for Tweeting Videos Aspect Ratios Required for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-optimizing-ad-reach-on-social-medias-leading-platform/"><u>In 2024, Optimizing Ad Reach on Social Media's Leading Platform</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-upgrade-video-experience-activate-av1-on-youtube/"><u>In 2024, Upgrade Video Experience Activate AV1 on YouTube</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/real-time-interaction-best-practices-for-discord-streamers-for-2024/"><u>Real-Time Interaction Best Practices for Discord Streamers for 2024</u></a></li>
 </ul></div>
 

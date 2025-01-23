@@ -1,7 +1,7 @@
 ---
 title: "[New] The Science of Audience Retention on Tweets for 2024"
-date: 2024-07-27T15:24:09.895Z
-updated: 2024-07-28T15:24:09.895Z
+date: 2025-01-19T08:39:24.647Z
+updated: 2025-01-23T00:26:59.477Z
 tags:
   - ai video
   - ai twitter
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 # How to Advertise on Twitter
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -84,10 +81,11 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 #### Step 1
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
@@ -99,9 +97,6 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 #### Step 3
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![twitter ads 3](https://images.wondershare.com/filmora/article-images/twitter-ads-3.jpg)
 
  Once you've defined the target audience as precisely as possible, you can move on to set your budget. By setting the financial limit to your campaign you can control how much you are spending on ads on a daily basis.
@@ -110,11 +105,12 @@ thumbnail: https://thmb.techidaily.com/3631238ca7c06e0c64e4d00a9d13c9e8220b196fb
 
 ![twitter ads 4](https://images.wondershare.com/filmora/article-images/twitter-ads-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -131,9 +127,6 @@ Follow @Ollie Mattison
 
  More than half of social media managers think that Twitter is the platform that leads the market in terms of return of investment since 94 percent of the social network's users have claimed that they planned to buy a product after discovering it on Twitter. In this article, we are going to show you how to advertise on Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Types of Advertising on Twitter
 
  If your company has reached the decision to start advertising on Twitter, there are three different ways in which you can accomplish this. Promoted Tweets, Promoted Trends and Promoted Accounts all offer different opportunities, so let's take a closer look at each of these options.
@@ -188,6 +181,10 @@ Follow @Ollie Mattison
 
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
 #### Step 2
@@ -204,14 +201,15 @@ Follow @Ollie Mattison
 
 #### Step 4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![twitter ads 4](https://images.wondershare.com/filmora/article-images/twitter-ads-4.jpg)
 
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -227,9 +225,6 @@ Follow @Ollie Mattison
 
  More than half of social media managers think that Twitter is the platform that leads the market in terms of return of investment since 94 percent of the social network's users have claimed that they planned to buy a product after discovering it on Twitter. In this article, we are going to show you how to advertise on Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Types of Advertising on Twitter
 
  If your company has reached the decision to start advertising on Twitter, there are three different ways in which you can accomplish this. Promoted Tweets, Promoted Trends and Promoted Accounts all offer different opportunities, so let's take a closer look at each of these options.
@@ -251,8 +246,9 @@ Follow @Ollie Mattison
  After someone clicks on the hashtag, they will be able to see a tweet you're promoting as well as a list of results for the given topic. If people start using that hashtag, more Twitter users will learn about your promoted tweet and enable you to grow the number of your followers organically.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Types of Twitter Ad Campaigns
 
  Combining several ad products is the most common method of creating an ad campaign on Twitter, although you can also use a single ad product for the same purpose. These are the types of ad campaigns most frequently used by marketers on Twitter.
@@ -279,19 +275,17 @@ Follow @Ollie Mattison
 
  In either case, you will only have to pay for the achieved results, while the rate you'll pay for each click is determined through the auction system.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## How to Set up Twitter Ad Campaigns
 
  Creating a new ad campaign is a simple process that can be completed in just four steps. Here's how you can set up your first Twitter ad campaign and start enjoying its benefits.
 
 #### Step 1
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![twitter ads 1](https://images.wondershare.com/filmora/article-images/twitter-ads-1.jpg )
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Open Twitter Ads Manager. On the left side of the screen, you'll be able to see campaign objectives, select the ones that are most appropriate for your campaign and then click on Create Campaign button. This action will open a new window where you can give a title to your campaign or decide when you want the campaign to start.
 
@@ -299,14 +293,19 @@ Follow @Ollie Mattison
 
 ![twitter ads 2](https://images.wondershare.com/filmora/article-images/twitter-ads-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In the next step, you will be asked to define your target audience. The platform offers a wide array of targeting options including gender, postal code or language. Twitter Ads offers support through the process, so you can maximize efficiency and reduce the costs of the campaign.
 
 #### Step 3
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![twitter ads 3](https://images.wondershare.com/filmora/article-images/twitter-ads-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once you've defined the target audience as precisely as possible, you can move on to set your budget. By setting the financial limit to your campaign you can control how much you are spending on ads on a daily basis.
 
@@ -316,9 +315,6 @@ Follow @Ollie Mattison
 
  At the end of the ad campaign setup, you will be asked to select a tweet you want to promote. The platform provides a list of tweets that already exist, but you can also insert the tweet your marketing team has created. You can also upload media, before hitting the Publish Tweet button and starting your new Twitter Ad campaign.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -335,14 +331,6 @@ Follow @Ollie Mattison
 
  More than half of social media managers think that Twitter is the platform that leads the market in terms of return of investment since 94 percent of the social network's users have claimed that they planned to buy a product after discovering it on Twitter. In this article, we are going to show you how to advertise on Twitter.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Types of Advertising on Twitter
 
  If your company has reached the decision to start advertising on Twitter, there are three different ways in which you can accomplish this. Promoted Tweets, Promoted Trends and Promoted Accounts all offer different opportunities, so let's take a closer look at each of these options.
@@ -364,8 +352,9 @@ Follow @Ollie Mattison
  After someone clicks on the hashtag, they will be able to see a tweet you're promoting as well as a list of results for the given topic. If people start using that hashtag, more Twitter users will learn about your promoted tweet and enable you to grow the number of your followers organically.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Types of Twitter Ad Campaigns
 
  Combining several ad products is the most common method of creating an ad campaign on Twitter, although you can also use a single ad product for the same purpose. These are the types of ad campaigns most frequently used by marketers on Twitter.
@@ -393,12 +382,9 @@ Follow @Ollie Mattison
  In either case, you will only have to pay for the achieved results, while the rate you'll pay for each click is determined through the auction system.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set up Twitter Ad Campaigns
 
  Creating a new ad campaign is a simple process that can be completed in just four steps. Here's how you can set up your first Twitter ad campaign and start enjoying its benefits.
@@ -446,8 +432,6 @@ Follow @Ollie Mattison
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -456,7 +440,24 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-sociostreamer-convert-tweets-to-videos/"><u>[New] 2024 Approved SocioStreamer Convert Tweets to Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-media-upload-instruction-manual/"><u>[New] In 2024, Twitter Media Upload Instruction Manual</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-streamlining-tiktok-twitter-integration/"><u>[New] Streamlining TikTok-Twitter Integration</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-dive-deep-into-gesture-recognition-systems/"><u>[Updated] In 2024, Dive Deep Into Gesture Recognition Systems</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-ignite-engagement-on-twitch-alive-tweeting-techniques/"><u>2024 Approved Ignite Engagement on Twitch Alive Tweeting Techniques</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/astro-a50-headset-audio-fixes-mend-that-silent-mic-now/"><u>Astro A50 Headset Audio Fixes - Mend That Silent Mic Now</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cutting-edge-tactics-for-sharing-video-content-from-twitter-and-whatsapp/"><u>Cutting-Edge Tactics for Sharing Video Content From Twitter and WhatsApp</u></a></li>
+<li><a href="https://video-capture.techidaily.com/dissective-review-of-sharex-criticism-and-substitutes-for-2024/"><u>Dissective Review of ShareX Criticism & Substitutes for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/freelance-mastery-through-ai-chatgpts-top-6-strategies/"><u>Freelance Mastery Through AI: ChatGPT's Top 6 Strategies</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gps-or-cellular-connectivity-exploring-the-differences-of-apple-watch-models/"><u>GPS or Cellular Connectivity? Exploring the Differences of Apple Watch Models</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-bringing-back-tunes-to-twitters-video-posts/"><u>In 2024, Bringing Back Tunes to Twitter's Video Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-conveying-content-tweets-and-tumbleloops/"><u>In 2024, Conveying Content Tweets & Tumbleloops</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-immerse-projects-in-audible-experience-via-premiere-pro/"><u>In 2024, Immerse Projects in Audible Experience via Premiere Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/navigating-traffic-with-intelligence-the-comprehensive-review-of-the-escort-ix-smart-radar-detector/"><u>Navigating Traffic with Intelligence: The Comprehensive Review of the Escort iX Smart Radar Detector</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-video-dimensions-what-you-need-to-know-for-2024/"><u>Twitter's Video Dimensions What You Need to Know for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-6-plus-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 6 Plus</u></a></li>
+</ul></div>
 
