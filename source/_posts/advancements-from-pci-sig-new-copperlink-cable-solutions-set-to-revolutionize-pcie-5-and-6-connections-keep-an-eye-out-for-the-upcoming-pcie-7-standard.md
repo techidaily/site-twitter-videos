@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2025-01-16T23:36:01.926Z
-updated: 2025-01-23T01:41:29.348Z
+date: 2025-01-24T19:38:42.123Z
+updated: 2025-01-30T19:08:35.594Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,19 +88,19 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-direct-video-tweeting-hacks-smartphones/"><u>[New] In 2024, Direct Video Tweeting Hacks Smartphones</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-reinstate-your-airdrop-linkages-simple-fixes-for-iosmacos-issues-for-2024/"><u>[New] Reinstate Your AirDrop Linkages Simple Fixes for iOS/macOS Issues for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-tweet-videos-on-iphoneandroid-without-a-retweet-for-2024/"><u>[Updated] How To Tweet Videos on iPhone/Android Without a Retweet for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-navigating-twitters-reaction-videos-explained/"><u>[Updated] In 2024, Navigating Twitter's Reaction Videos Explained</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitch-your-way-mastering-twitter-video-livestreaming/"><u>[Updated] In 2024, Twitch Your Way Mastering Twitter Video Livestreaming</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-right-approach-for-accurate-google-speech-to-text-for-2024/"><u>[Updated] The Right Approach for Accurate Google Speech-to-Text for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-trending-threads-triumph-top-twitters-for-2024/"><u>[Updated] Trending Threads Triumph Top Twitters for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-sharing-twitter-videos-a-step-by-step-guide-for-whatsapp-users/"><u>2024 Approved Sharing Twitter Videos A Step-by-Step Guide for WhatsApp Users</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/banish-buffering-fix-your-hulu-playback-problems-on-smart-tv-platforms-like-apple-tv-fire-stick-and-more/"><u>Banish Buffering: Fix Your Hulu Playback Problems on Smart TV Platforms Like Apple TV, Fire Stick, and More</u></a></li>
-<li><a href="https://win-able.techidaily.com/fast-fixes-how-to-speed-up-your-sluggish-chrome-browser-instantly/"><u>Fast Fixes: How to Speed Up Your Sluggish Chrome Browser Instantly!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fix-the-problem-of-xlivedll-error-a-comprehensive-tutorial/"><u>Fix the Problem of xlive.dll Error - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/inside-toms-computer-world-a-deep-dive-into-the-latest-in-hardware-technology/"><u>Inside Tom’s Computer World: A Deep Dive Into the Latest in Hardware Technology</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-google-pixel-8-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-reaction-reel-a-comprehensive-guide-for-23/"><u>[New] 2024 Approved Twitter's Reaction Reel A Comprehensive Guide for '23</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hear-the-hd-story-from-youtube-to-twitters-vids-for-2024/"><u>[New] Hear the HD Story From YouTube to Twitter's Vids for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-take-your-tweets-visual-aesthetics-from-vids-to-dynamic-gifs/"><u>[New] In 2024, How To Take Your Tweets Visual Aesthetics From Vids to Dynamic GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-social-media-sensation-tiktoks-top-10-per-share/"><u>[New] Social Media Sensation TikTok's Top 10 Per Share</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-posting-photos-and-vids-to-twitter-from-your-phone-not-as-a-retweet/"><u>[Updated] In 2024, Posting Photos and Vids to Twitter From Your Phone, Not as a Retweet</u></a></li>
+<li><a href="https://win-webster.techidaily.com/1-ultimate-guide-preserving-your-whole-chat-history-on-iphone-in-5-simple-steps/"><u>1. Ultimate Guide: Preserving Your Whole Chat History on iPhone in 5 Simple Steps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-superior-5-sites-matching-twitters-features/"><u>2024 Approved Superior 5 Sites Matching Twitter's Features</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chroma-blades-the-new-era-of-high-definition-capture-for-2024/"><u>Chroma Blades The New Era of High-Definition Capture for 2024</u></a></li>
+<li><a href="https://win-popular.techidaily.com/exploring-the-variety-of-export-options-available-in-flip-office-pro-a-comprehensive-guide-flipbuildercom/"><u>Exploring the Variety of Export Options Available in Flip Office Pro - A Comprehensive Guide [FlipBuilder.com]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rapid-audio-to-video-conversion-for-youtube-fans-for-2024/"><u>Rapid Audio-to-Video Conversion for YouTube Fans for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/score-big-savings-with-metas-premium-512gb-quest-3-vr-headset-exceptional-deals-in-the-virtual-realm/"><u>Score Big Savings with Meta's Premium 512GB Quest 3 VR Headset – Exceptional Deals in the Virtual Realm</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/tips-to-improve-your-gopros-power-sustainability-for-2024/"><u>Tips to Improve Your GoPro's Power Sustainability for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/troubleshooting-and-resolving-amd-radeon-driver-problems-quickly/"><u>Troubleshooting and Resolving AMD Radeon Driver Problems Quickly!</u></a></li>
+<li><a href="https://win-docs.techidaily.com/aaalg-oklyk-alan-ashm-alahtyatya-dkhol-mlfat-windows-il-alkrs-alslb-editions-11-erryone-knows-that/"><u>عالج وكليك الآن أسهم الاحتياطية: دخول ملفات Windows إلى القرص الصلب: Editions 11, Erryone Knows That.</u></a></li>
 </ul></div>
 

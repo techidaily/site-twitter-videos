@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2025-01-20T07:34:31.477Z
-updated: 2025-01-22T22:44:54.605Z
+date: 2025-01-28T18:25:24.876Z
+updated: 2025-01-30T22:18:40.708Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,19 +56,20 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-quicktweet-clip-iphone-friendly-video-download-tool/"><u>[New] 2024 Approved QuickTweet Clip IPhone-Friendly Video Download Tool</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweak-twitter-video-clip-cover/"><u>[New] 2024 Approved Tweak Twitter Video Clip Cover</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-video-to-song-instagrams-mp3-conversion-process/"><u>[New] In 2024, From Video to Song Instagram's Mp3 Conversion Process</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-inside-outlook-on-vr-good-and-bad-aspects/"><u>[New] Inside Outlook on VR Good & Bad Aspects</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-free-backdrops-for-sustainable-cinema/"><u>[Updated] Free Backdrops for Sustainable Cinema</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-laughter-league-twitters-best-jokes/"><u>[Updated] In 2024, Laughter League Twitter's Best Jokes</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-tweeting-videos-to-tweenish-animations-for-no-fee/"><u>[Updated] In 2024, Tweeting Videos to Tweenish Animations for No Fee</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-mastering-screen-recording-mi-11-edition/"><u>[Updated] Mastering Screen Recording Mi 11 Edition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/from-tube-to-chat-sharing-video-content-from-youtube-and-twitter-directly/"><u>From Tube to Chat Sharing Video Content From YouTube & Twitter Directly</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/mastering-social-media-tweeting-videos-to-facebook/"><u>Mastering Social Media Tweeting Videos to Facebook</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/navigating-iphone-album-organizing-techniques-and-icloud-uploads/"><u>Navigating iPhone Album Organizing Techniques and iCloud Uploads</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-issues-with-a-malfunctioning-iphone-close-range-detector/"><u>Resolving Issues with a Malfunctioning iPhone Close-Range Detector</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/the-efficacy-of-vlcs-screen-recording/"><u>The Efficacy of VLC's Screen Recording</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/vr-exercise-machines-the-leading-treadmills-uncovered/"><u>VR Exercise Machines The Leading Treadmills Uncovered</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pc-guide-extract-twitters-funny-images/"><u>[New] In 2024, PC Guide Extract Twitter's Funny Images</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-magic-march-2024/"><u>[New] Meme Magic March 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-animated-magic-with-movie-maker-software/"><u>[Updated] 2024 Approved Unveiling Animated Magic with Movie Maker Software</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-syncing-tiktok-content-with-twitter/"><u>[Updated] In 2024, Syncing TikTok Content with Twitter</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-taking-twitter-videos-from-regular-to-high-definition/"><u>[Updated] In 2024, Taking Twitter Videos From Regular to High-Definition</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-tweeted-videos-on-facebooks-networks/"><u>[Updated] Mastering Tweeted Videos on Facebooks Networks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-a-quick-walkthrough-of-new-user-registration-on-twitter/"><u>2024 Approved A Quick Walkthrough of New User Registration on Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/address-tweets-stuck-while-watching-online/"><u>Address Tweets Stuck While Watching Online</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypass-setup-will-exit-unrecognized-os-message-with-proven-solutions/"><u>Bypass 'Setup Will Exit - Unrecognized OS' Message with Proven Solutions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-nokia-g42-5g-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Nokia G42 5G</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-2-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Blaze 2 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-90-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor 90 Pro FRP Locks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s23-tactical-edition-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S23 Tactical Edition Phones with/without a PC</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-complete-obs-android-manual-for-professionals-for-2024/"><u>The Complete OBS Android Manual for Professionals for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>Twitter's Viral Spotlight Top 10 TikToks of the Week</u></a></li>
 </ul></div>
 

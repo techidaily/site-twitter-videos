@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2025-01-19T04:01:03.107Z
-updated: 2025-01-23T09:29:28.337Z
+date: 2025-01-24T22:37:37.709Z
+updated: 2025-01-30T18:05:23.464Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -50,7 +50,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -62,7 +62,7 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
@@ -88,19 +88,14 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preparing-for-twitter-know-the-required-aspect-ratio/"><u>[New] In 2024, Preparing for Twitter Know the Required Aspect Ratio</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-hackers-handbook-advanced-win11-tactics-for-2024/"><u>[New] The Hacker's Handbook Advanced Win11 Tactics for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-science-of-audience-retention-on-tweets/"><u>[New] The Science of Audience Retention on Tweets</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-quick-guide-to-purging-watched-youtube-videos/"><u>[Updated] 2024 Approved A Quick Guide to Purging Watched YouTube Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-posting-photos-and-vids-to-twitter-from-your-phone-not-as-a-retweet/"><u>[Updated] 2024 Approved Posting Photos and Vids to Twitter From Your Phone, Not as a Retweet</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-heimdalls-eye-the-watchers-of-ragnarok/"><u>[Updated] Heimdall's Eye The Watchers of Ragnarok</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-optimize-twitter-tweets-for-hd-viewing/"><u>[Updated] In 2024, Optimize Twitter Tweets for HD Viewing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/6-of-our-favorite-food-tracker-apps/"><u>6 of Our Favorite Food Tracker Apps</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/best-zero-price-tools-for-secure-cloud-storage-on-your-desktop-computer/"><u>Best Zero Price Tools for Secure Cloud Storage on Your Desktop Computer</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/descubre-el-tratodo-sobre-la-conversion-de-archivos-video-wmv-usando-ram-en-linea-gratis-la-solucion-de-movavi/"><u>Descubre El Tratodo Sobre La Conversión De Archivos Vídeo WMV Usando RAM en Línea Gratis: La Solución De Movavi</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/essential-info-for-tweeting-videos-aspect-ratios-required-for-2024/"><u>Essential Info for Tweeting Videos Aspect Ratios Required for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-optimizing-ad-reach-on-social-medias-leading-platform/"><u>In 2024, Optimizing Ad Reach on Social Media's Leading Platform</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-upgrade-video-experience-activate-av1-on-youtube/"><u>In 2024, Upgrade Video Experience Activate AV1 on YouTube</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/real-time-interaction-best-practices-for-discord-streamers-for-2024/"><u>Real-Time Interaction Best Practices for Discord Streamers for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-stop-buffer-tweet-vids-in-chromium-browser-for-2024/"><u>[New] Stop Buffer Tweet Vids in Chromium Browser for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-tech-tips-how-to-get-fcp-without-money/"><u>[New] Tech Tips How to Get FCP Without Money</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazons-all-star-series-most-retweeted-and-watched-originals-for-2024/"><u>[Updated] Amazon's All-Star Series Most Retweeted & Watched Originals for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-self-balancing-snap-shots-without-supports/"><u>[Updated] Self-Balancing Snap Shots Without Supports</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-vlc-enthusiasts-guide-to-10-stealthy-tricks/"><u>2024 Approved VLC Enthusiast's Guide to 10 Stealthy Tricks</u></a></li>
+<li><a href="https://app-tips.techidaily.com/bridging-the-widening-chasm-of-data-expertise-innovative-strategies-from-a-leading-tech-firm-zdnet/"><u>Bridging the Widening Chasm of Data Expertise: Innovative Strategies From a Leading Tech Firm | ZDNET</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-guide-saving-twitter-videos-on-your-mobile-device/"><u>Direct Guide Saving Twitter Videos on Your Mobile Device</u></a></li>
+<li><a href="https://solve-info.techidaily.com/guia-paso-a-paso-para-recuperar-carpetas-perdidas-de-dropbox/"><u>Guía Paso a Paso Para Recuperar Carpetas Perdidas De Dropbox</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/swift-transfer-tweets-as-vids-on-whatsapp-platform-for-2024/"><u>Swift Transfer Tweets as Vids on WhatsApp Platform for 2024</u></a></li>
 </ul></div>
 

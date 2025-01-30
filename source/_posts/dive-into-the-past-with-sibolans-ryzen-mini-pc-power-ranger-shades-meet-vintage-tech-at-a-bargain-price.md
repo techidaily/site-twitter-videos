@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2025-01-15T20:18:38.091Z
-updated: 2025-01-22T16:08:02.016Z
+date: 2025-01-24T17:27:02.763Z
+updated: 2025-01-30T16:05:26.715Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,20 +89,24 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-leading-5-gaming-screens-with-ps5-support/"><u>[New] 2024 Approved Leading 5 Gaming Screens with PS5 Support</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-proven-techniques-for-perfecting-video-aspect-ratios/"><u>[New] Proven Techniques for Perfecting Video Aspect Ratios</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-streamlining-social-sharing-coordinating-vids-on-tweets-plus-tumbles-for-2024/"><u>[New] Streamlining Social Sharing Coordinating Vids on Tweets + Tumbles for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-media-your-step-by-step-video-tweet/"><u>[Updated] 2024 Approved Mastering Media Your Step-by-Step Video Tweet</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-most-popular-tweets-top-ten-hits-list/"><u>[Updated] 2024 Approved Most Popular Tweets Top Ten Hits List</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-from-twitter-to-snaps-a-guide-to-cross-platform-posting/"><u>[Updated] From Twitter to Snaps A Guide to Cross-Platform Posting</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-to-tween-creating-free-animated-videos/"><u>[Updated] Twitter to Tween Creating FREE Animated Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-unlocking-old-tweets-with-twitter-archive-tools-for-2024/"><u>[Updated] Unlocking Old Tweets with Twitter Archive Tools for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-on-the-urban-armor-gear-macbook-pro-shield-a-blend-of-strength-and-practicality/"><u>Comprehensive Testing on the Urban Armor Gear MacBook Pro Shield - A Blend of Strength & Practicality</u></a></li>
-<li><a href="https://win-dash.techidaily.com/fixing-bcm2045a0-driver-glitches-fast-solutions/"><u>Fixing BCM2045A0 Driver Glitches - Fast Solutions!</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-vivo-y77t-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Vivo Y77t Location Settings | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-pro-level-strategies-for-photo-color-enhancement/"><u>In 2024, Pro-Level Strategies for Photo Color Enhancement</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/merge-several-pdf-documents-on-pc-or-mac-with-simple-methods/"><u>Merge Several PDF Documents on PC or Mac with Simple Methods</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/real-time-tips-to-dominate-twitter-broadcasts-for-2024/"><u>Real-Time Tips to Dominate Twitter Broadcasts for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-obsudios-ultimate-guide-to-video-recording-with-obs/"><u>[New] 2024 Approved Obsudio's Ultimate Guide to Video Recording with OBS</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preserve-tweets-as-visual-delights-with-iosandroid-steps/"><u>[New] In 2024, Preserve Tweets as Visual Delights with iOS/Android Steps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unveiling-the-process-of-making-a-twitter-account/"><u>[New] In 2024, Unveiling the Process of Making a Twitter Account</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/irthful-montage-mastering-7-comical-video-vignettes-for-2024/"><u>[New] Mirthful Montage Mastering 7 Comical Video Vignettes for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-radiant-hue-tuner-program/"><u>[New] Radiant Hue Tuner Program</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-into-the-rhythm-of-social-video-editing-with-music/"><u>[Updated] 2024 Approved Step Into the Rhythm of Social Video Editing with Music</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-capturing-and-storing-twitter-vids-on-phones/"><u>[Updated] Expert Advice Capturing and Storing Twitter Vids on Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-advertise-on-twitter/"><u>[Updated] How to Advertise on Twitter</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-expertly-convert-subtitles-to-srt-our-picks-for-the-best-8-tools-on-windowsmac/"><u>[Updated] In 2024, Expertly Convert Subtitles to SRT - Our Picks for the Best 8 Tools on Windows/Mac</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-secrets-to-successful-twitpicingvideos-included/"><u>[Updated] In 2024, Secrets to Successful Twitpicing—Videos Included</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-reviewing-and-analyzing-previous-tweets-for-2024/"><u>[Updated] Reviewing and Analyzing Previous Tweets for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-your-tweets-audience-engagement-techniques-for-2024/"><u>[Updated] Tweaking Your Tweets Audience Engagement Techniques for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-building-interactive-elements-a-guide-to-html-input-fields/"><u>2024 Approved Building Interactive Elements A Guide to HTML Input Fields</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-netflix-speed-management-for-enhanced-viewing/"><u>2024 Approved Netflix Speed Management for Enhanced Viewing</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-a05s-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy A05s</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-lava-yuva-2-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Lava Yuva 2 online without jailbreak</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-clear-cut-guide-to-high-definition-twitter-videos/"><u>The Clear-Cut Guide to High Definition Twitter Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windowsm4vavimov/"><u>Windows上でM4VファイルをAVI/MOV形式に簡単な変換の説明</u></a></li>
 </ul></div>
 
