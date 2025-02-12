@@ -1,7 +1,7 @@
 ---
 title: "[New] How To Post Photos and Videos on Twitter From Smartphones for 2024"
-date: 2025-01-21T08:10:19.202Z
-updated: 2025-01-23T01:03:37.917Z
+date: 2025-02-06T01:54:00.448Z
+updated: 2025-02-11T21:58:11.247Z
 tags:
   - ai video
   - ai twitter
@@ -39,6 +39,10 @@ If you are a blogger or an influencer, you will understand the importance of pos
 
 Content is vital in building relationships across the globe. Your signature or original content allows people to associate a specific type of content with you. It can be because of your views on a matter or what you represent. Constantly retweeting content might leave a negative impression on your audience, especially about your originality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Your own Input to a Situation
 
 While retweeting allows you to leave a comment on someone else’s tweet, sometimes posting a video yourself and writing your thoughts on it creates a better impression. You can delve deeper and express yourself by posting your own content.
@@ -48,10 +52,6 @@ While retweeting allows you to leave a comment on someone else’s tweet, someti
 Your own posts have a nicer look compared to retweets. On your profile, people will find your views more interesting if they see you have posted it yourself and not just retweeted different videos.
 
 Usually, the person who retweets is almost hidden in the retweet. So, people hardly notice who retweeted it, so it doesn't look good. On the flip side, if you post content and someone retweets it, you will gain new followers as people connect with your content and want to explore more of it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Market your Own Brand
 
@@ -63,6 +63,10 @@ If you are retweeting a post on your profile, you will mostly not appear in the 
 
 Online profiles are all about creating an online presence, and what use is it if you are only part of someone else's data, not creating your own.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Share Twitter Videos Without ReTweeting Android
 
 Those using Android may not have the Share Tweet feature that iPhones have. This feature allows you to share any Twitter video without retweeting. However, this is quite a nice hack that allows you to reap the same results. Here is how you can share a Twitter video without retweeting:
@@ -73,6 +77,10 @@ Those using Android may not have the Share Tweet feature that iPhones have. This
 * This will show you several options. Tap on **Copy Link to Tweet.**
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Now go back to the main page and type a new Tweet.
 * Compose your Tweet and then paste the URL that you copied.
@@ -109,10 +117,6 @@ If you are an iPhone user, you can easily post any video from Twitter on your pr
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * This will automatically generate the URL for the video for you to Tweet.
 * The URL will already be pasted in the Compose Tweet Box. Now, you can add any caption you like to the video and click on **Tweet**to post the video.
 
@@ -123,7 +127,7 @@ The video will now successfully be Tweeted without being retweeted.
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-7.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Sharing Twitter Videos with the Shortcuts App
@@ -146,10 +150,6 @@ A very easy way to Tweet a Twitter video without retweeting is by using the Shor
 * Tap on the small share icon under the Tweet and then tap on **Share Video Via….**
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-10.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * From the options, select the TVDL shortcut.
 * If this is your first time using this shortcut, you would need to grant access to third-party API, your Twitter account, and the Photos app so you can save videos on your phone.
@@ -186,152 +186,9 @@ Retweets also don't allow you to change captions or give the post a bit of your 
 
 If you are a blogger or an influencer, you will understand the importance of posting new content and engaging your Twitter followers. To ensure you have original content, 75% of your posts should be yours, and 25% should be retweets. Here is why you need original content for your Twitter profile:
 
-### Build a Relationship with the Audience
-
-Content is vital in building relationships across the globe. Your signature or original content allows people to associate a specific type of content with you. It can be because of your views on a matter or what you represent. Constantly retweeting content might leave a negative impression on your audience, especially about your originality.
-
-### Your own Input to a Situation
-
-While retweeting allows you to leave a comment on someone else’s tweet, sometimes posting a video yourself and writing your thoughts on it creates a better impression. You can delve deeper and express yourself by posting your own content.
-
-### A better Look for your Twitter Profile
-
-Your own posts have a nicer look compared to retweets. On your profile, people will find your views more interesting if they see you have posted it yourself and not just retweeted different videos.
-
-Usually, the person who retweets is almost hidden in the retweet. So, people hardly notice who retweeted it, so it doesn't look good. On the flip side, if you post content and someone retweets it, you will gain new followers as people connect with your content and want to explore more of it.
-
-### Market your Own Brand
-
-When you are retweeting posts and videos, you are marketing someone else on your profile most of the time. If you are an individual on Twitter looking for new followers or creating your own unique identity, then retweeting other people's tweets won't cut it. You will have to post your own videos so people can find them on your profile.
-
-### You are not Credited for the Content
-
-If you are retweeting a post on your profile, you will mostly not appear in the data chain at all. And why that may be bad? If you retweet a video on your profile and someone retweets it again from your profile, the video will be linked back to the original source, taking you out of the equation. It will appear as if you didn't exist at all.
-
-Online profiles are all about creating an online presence, and what use is it if you are only part of someone else's data, not creating your own.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-## Share Twitter Videos Without ReTweeting Android
-
-Those using Android may not have the Share Tweet feature that iPhones have. This feature allows you to share any Twitter video without retweeting. However, this is quite a nice hack that allows you to reap the same results. Here is how you can share a Twitter video without retweeting:
-
-* Before starting, make sure the Twitter app is installed on your phone.
-* Open the Twitter app and locate the video you want to share.
-* Once you find the video, open the tweet and tap on the small **share icon**under the Tweet.
-* This will show you several options. Tap on **Copy Link to Tweet.**
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-1.png)
-
-* Now go back to the main page and type a new Tweet.
-* Compose your Tweet and then paste the URL that you copied.
-* Then you need to edit the URL that you pasted. Remove the parameters at the end that is “?s=20”.
-* After removing, write in place of it "/video/1".
-* For example if the URL is “<https://twitter.com/><username>/status/1234567890?s=”
-* Then replace it with “<https://twitter.com/username/status/1234567890/video/1>”
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-2.png)
-
-* Now click on the **Tweet**button to post your Tweet.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-3.png)
-
-And that's it! You can add any video to your tweet with this method. This method is for Android users only. You can also follow the same steps if you are using Chrome or Twitter on the web.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Share Twitter Videos Without Retweeting iPhone
-
-There are various ways to post a video from Twitter without retweeting it. iPhone gives you the option to do that when you want to share the video. You can post the video as your own and comment on it as well without retweeting anyone else's video.
-
-There are two methods to do this. One is by using the Tweet Video option, and the other is by using the Shortcuts app on iPhone. This article shows how you can do that by using both methods.
-
-### 1\. Sharing Twitter Videos with the Tweet Video Option
-
-If you are an iPhone user, you can easily post any video from Twitter on your profile without retweeting. This method uses the Tweet Video app on iPhone that allows you to seamlessly Tweet videos without retweeting. So, let us dive in:
-
-* Open your Twitter app and log in with your credentials.
-* Locate the video you want to share.
-* Tap and hold down the play button on the video.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-4.png)
-
-* This will show some options on the screen. Select the **Tweet Video**option from the bottom of the screen.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-5.png)
-
-* This will automatically generate the URL for the video for you to Tweet.
-* The URL will already be pasted in the Compose Tweet Box. Now, you can add any caption you like to the video and click on **Tweet**to post the video.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-6.png)
-
-The video will now successfully be Tweeted without being retweeted.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-7.png)
-
-### 2\. Sharing Twitter Videos with the Shortcuts App
-
-A very easy way to Tweet a Twitter video without retweeting is by using the Shortcuts app. The Shortcuts app allows you to run a whole process on your phone by creating a shortcut for it. Here is how you can Tweet a video with the Shortcuts app:
-
-* Before starting, make sure you have the Shortcuts app installed on your iPhone. If you don't have it, you can easily install it from the Apple store.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-8.png)
-
-* Next, open your phone’s browser and open <https://www.tvdl.app/>. With TVDL, you can download Twitter videos on your phone by entering their URL.
-* You will see the **Get Shortcut**option on your screen. Tap on it.
-* This will redirect to the shortcuts app, where you can create a shortcut for the website.
-* Add the TVDL link there and in the description, tap on **Add Untrusted Shortcut**.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-9.png)
-
-* If you see an error message, you can go to **Settings**and then turn on the **Allow Untrusted Shortcuts**
-* Now, open your Twitter app and locate the video you want to Tweet.
-* Tap on the small share icon under the Tweet and then tap on **Share Video Via….**
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-10.png)
-
-* From the options, select the TVDL shortcut.
-* If this is your first time using this shortcut, you would need to grant access to third-party API, your Twitter account, and the Photos app so you can save videos on your phone.
-* You can then select the download quality, and the video will start downloading.
-* Once downloaded, it will save in your Photos app.
-
-![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-* To Tweet, the video, open your Twitter account and go to Create a New Tweet.
-* Under the Compose Tweet box, you will find the option to add a video from your gallery.
-* For ease of access, the most recent videos in the gallery will appear as top thumbnails, and you will find the video you just downloaded in it.
-* You can then trim the length of the video as the max limit for a video is 2 minutes and 20 seconds.
-* Once trimmed, you can click on Tweet to post the video along with a lovely caption.
-
-And that is how you can post a Twitter video without retweeting it from your iPhone.
-
-## Conclusion
-
-While retweeting takes a single click, posting the same video on your Twitter profile without Retweeting also takes around the same amount of time. Creating your own post rather than retweeting makes you prominent on a platform with millions of people. Whether you are an android user or an iPhone user, the above methods will work all the same.
-
-Give your followers some new content rather than just retweeting posts with this new method. Follow the steps mentioned above, and you will easily be able to share a video on Twitter without retweeting.
-
-And you will see the positive impact it has on your profile marketing your content.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Retweeting is a great way to share videos and posts quickly with just a single click. However, retweeting is not what one may always want. Sometimes constantly retweeting can create clutter on your profile.
-
-Retweets also don't allow you to change captions or give the post a bit of your flavor. In that case, you might want to add your thoughts on a particular Twitter video or express something entirely different. This article will show you you can post or Tweet the same video without retweeting it. So, let us begin:
-
-## Why Posting Your Own Content is Better than Retweeting Videos
-
-If you are a blogger or an influencer, you will understand the importance of posting new content and engaging your Twitter followers. To ensure you have original content, 75% of your posts should be yours, and 25% should be retweets. Here is why you need original content for your Twitter profile:
 
 ### Build a Relationship with the Audience
 
@@ -346,10 +203,6 @@ While retweeting allows you to leave a comment on someone else’s tweet, someti
 Your own posts have a nicer look compared to retweets. On your profile, people will find your views more interesting if they see you have posted it yourself and not just retweeted different videos.
 
 Usually, the person who retweets is almost hidden in the retweet. So, people hardly notice who retweeted it, so it doesn't look good. On the flip side, if you post content and someone retweets it, you will gain new followers as people connect with your content and want to explore more of it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Market your Own Brand
 
@@ -437,6 +290,157 @@ A very easy way to Tweet a Twitter video without retweeting is by using the Shor
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* From the options, select the TVDL shortcut.
+* If this is your first time using this shortcut, you would need to grant access to third-party API, your Twitter account, and the Photos app so you can save videos on your phone.
+* You can then select the download quality, and the video will start downloading.
+* Once downloaded, it will save in your Photos app.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-11.png)
+
+* To Tweet, the video, open your Twitter account and go to Create a New Tweet.
+* Under the Compose Tweet box, you will find the option to add a video from your gallery.
+* For ease of access, the most recent videos in the gallery will appear as top thumbnails, and you will find the video you just downloaded in it.
+* You can then trim the length of the video as the max limit for a video is 2 minutes and 20 seconds.
+* Once trimmed, you can click on Tweet to post the video along with a lovely caption.
+
+And that is how you can post a Twitter video without retweeting it from your iPhone.
+
+## Conclusion
+
+While retweeting takes a single click, posting the same video on your Twitter profile without Retweeting also takes around the same amount of time. Creating your own post rather than retweeting makes you prominent on a platform with millions of people. Whether you are an android user or an iPhone user, the above methods will work all the same.
+
+Give your followers some new content rather than just retweeting posts with this new method. Follow the steps mentioned above, and you will easily be able to share a video on Twitter without retweeting.
+
+And you will see the positive impact it has on your profile marketing your content.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Retweeting is a great way to share videos and posts quickly with just a single click. However, retweeting is not what one may always want. Sometimes constantly retweeting can create clutter on your profile.
+
+Retweets also don't allow you to change captions or give the post a bit of your flavor. In that case, you might want to add your thoughts on a particular Twitter video or express something entirely different. This article will show you you can post or Tweet the same video without retweeting it. So, let us begin:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Why Posting Your Own Content is Better than Retweeting Videos
+
+If you are a blogger or an influencer, you will understand the importance of posting new content and engaging your Twitter followers. To ensure you have original content, 75% of your posts should be yours, and 25% should be retweets. Here is why you need original content for your Twitter profile:
+
+### Build a Relationship with the Audience
+
+Content is vital in building relationships across the globe. Your signature or original content allows people to associate a specific type of content with you. It can be because of your views on a matter or what you represent. Constantly retweeting content might leave a negative impression on your audience, especially about your originality.
+
+### Your own Input to a Situation
+
+While retweeting allows you to leave a comment on someone else’s tweet, sometimes posting a video yourself and writing your thoughts on it creates a better impression. You can delve deeper and express yourself by posting your own content.
+
+### A better Look for your Twitter Profile
+
+Your own posts have a nicer look compared to retweets. On your profile, people will find your views more interesting if they see you have posted it yourself and not just retweeted different videos.
+
+Usually, the person who retweets is almost hidden in the retweet. So, people hardly notice who retweeted it, so it doesn't look good. On the flip side, if you post content and someone retweets it, you will gain new followers as people connect with your content and want to explore more of it.
+
+### Market your Own Brand
+
+When you are retweeting posts and videos, you are marketing someone else on your profile most of the time. If you are an individual on Twitter looking for new followers or creating your own unique identity, then retweeting other people's tweets won't cut it. You will have to post your own videos so people can find them on your profile.
+
+### You are not Credited for the Content
+
+If you are retweeting a post on your profile, you will mostly not appear in the data chain at all. And why that may be bad? If you retweet a video on your profile and someone retweets it again from your profile, the video will be linked back to the original source, taking you out of the equation. It will appear as if you didn't exist at all.
+
+Online profiles are all about creating an online presence, and what use is it if you are only part of someone else's data, not creating your own.
+
+## Share Twitter Videos Without ReTweeting Android
+
+Those using Android may not have the Share Tweet feature that iPhones have. This feature allows you to share any Twitter video without retweeting. However, this is quite a nice hack that allows you to reap the same results. Here is how you can share a Twitter video without retweeting:
+
+* Before starting, make sure the Twitter app is installed on your phone.
+* Open the Twitter app and locate the video you want to share.
+* Once you find the video, open the tweet and tap on the small **share icon**under the Tweet.
+* This will show you several options. Tap on **Copy Link to Tweet.**
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-1.png)
+
+* Now go back to the main page and type a new Tweet.
+* Compose your Tweet and then paste the URL that you copied.
+* Then you need to edit the URL that you pasted. Remove the parameters at the end that is “?s=20”.
+* After removing, write in place of it "/video/1".
+* For example if the URL is “<https://twitter.com/><username>/status/1234567890?s=”
+* Then replace it with “<https://twitter.com/username/status/1234567890/video/1>”
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-2.png)
+
+* Now click on the **Tweet**button to post your Tweet.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-3.png)
+
+And that's it! You can add any video to your tweet with this method. This method is for Android users only. You can also follow the same steps if you are using Chrome or Twitter on the web.
+
+## Share Twitter Videos Without Retweeting iPhone
+
+There are various ways to post a video from Twitter without retweeting it. iPhone gives you the option to do that when you want to share the video. You can post the video as your own and comment on it as well without retweeting anyone else's video.
+
+There are two methods to do this. One is by using the Tweet Video option, and the other is by using the Shortcuts app on iPhone. This article shows how you can do that by using both methods.
+
+### 1\. Sharing Twitter Videos with the Tweet Video Option
+
+If you are an iPhone user, you can easily post any video from Twitter on your profile without retweeting. This method uses the Tweet Video app on iPhone that allows you to seamlessly Tweet videos without retweeting. So, let us dive in:
+
+* Open your Twitter app and log in with your credentials.
+* Locate the video you want to share.
+* Tap and hold down the play button on the video.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* This will show some options on the screen. Select the **Tweet Video**option from the bottom of the screen.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* This will automatically generate the URL for the video for you to Tweet.
+* The URL will already be pasted in the Compose Tweet Box. Now, you can add any caption you like to the video and click on **Tweet**to post the video.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-6.png)
+
+The video will now successfully be Tweeted without being retweeted.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-7.png)
+
+### 2\. Sharing Twitter Videos with the Shortcuts App
+
+A very easy way to Tweet a Twitter video without retweeting is by using the Shortcuts app. The Shortcuts app allows you to run a whole process on your phone by creating a shortcut for it. Here is how you can Tweet a video with the Shortcuts app:
+
+* Before starting, make sure you have the Shortcuts app installed on your iPhone. If you don't have it, you can easily install it from the Apple store.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-8.png)
+
+* Next, open your phone’s browser and open <https://www.tvdl.app/>. With TVDL, you can download Twitter videos on your phone by entering their URL.
+* You will see the **Get Shortcut**option on your screen. Tap on it.
+* This will redirect to the shortcuts app, where you can create a shortcut for the website.
+* Add the TVDL link there and in the description, tap on **Add Untrusted Shortcut**.
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-9.png)
+
+* If you see an error message, you can go to **Settings**and then turn on the **Allow Untrusted Shortcuts**
+* Now, open your Twitter app and locate the video you want to Tweet.
+* Tap on the small share icon under the Tweet and then tap on **Share Video Via….**
+
+![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-10.png)
+
 * From the options, select the TVDL shortcut.
 * If this is your first time using this shortcut, you would need to grant access to third-party API, your Twitter account, and the Photos app so you can save videos on your phone.
 * You can then select the download quality, and the video will start downloading.
@@ -547,13 +551,13 @@ If you are an iPhone user, you can easily post any video from Twitter on your pr
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The video will now successfully be Tweeted without being retweeted.
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-7.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Sharing Twitter Videos with the Shortcuts App
 
@@ -569,10 +573,6 @@ A very easy way to Tweet a Twitter video without retweeting is by using the Shor
 * Add the TVDL link there and in the description, tap on **Add Untrusted Shortcut**.
 
 ![twitter videos](https://images.wondershare.com/filmora/article-images/2022/02/how-to-share-video-on-twitter-without-retweeting-9.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * If you see an error message, you can go to **Settings**and then turn on the **Allow Untrusted Shortcuts**
 * Now, open your Twitter app and locate the video you want to Tweet.
@@ -626,18 +626,19 @@ And you will see the positive impact it has on your profile marketing your conte
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-creating-a-memorable-and-unique-moniker-for-your-filmora-content/"><u>[New] 2024 Approved Creating a Memorable and Unique Moniker for Your Filmora Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-meme-madness-twitters-funniest-video-threads/"><u>[New] 2024 Approved Meme Madness Twitter's Funniest Video Threads</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-comprehensive-scrutiny-of-elite-parrot-ar-20/"><u>[New] Comprehensive Scrutiny of Elite Parrot AR 2.0</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-unfreeze-non-playing-youtube-tweets-chrome-for-2024/"><u>[New] Unfreeze Non-Playing YouTube Tweets Chrome for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-unveiling-visuals-top-10-instagram-editing-applications-for-professionals/"><u>[New] Unveiling Visuals Top 10 Instagram Editing Applications for Professionals</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-freely-flowing-world-of-historical-works/"><u>[Updated] 2024 Approved The Freely Flowing World of Historical Works</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-streamline-video-sharing-between-twitter-and-tumblr/"><u>[Updated] In 2024, Streamline Video Sharing Between Twitter and Tumblr</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-socialsoundify-twitter-videos-to-audio/"><u>2024 Approved SocialSoundify Twitter Videos to Audio</u></a></li>
-<li><a href="https://windows11.techidaily.com/decoding-and-fixing-windows-error-0x800704b3-on-pcslaptops/"><u>Decoding & Fixing Windows Error 0X800704B3 on PCs/Laptops</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/download-the-best-free-panoramic-video-player-software-for-windows-and-macos-ranked-1-to-4/"><u>Download the Best Free Panoramic Video Player Software for Windows and macOS, Ranked #1 to #4</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/from-tweets-to-device-storage-android-and-iphone-gif-steps-for-2024/"><u>From Tweets to Device Storage Android & iPhone GIF Steps for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-samsung-galaxy-a25-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/navigating-safely-why-steer-clear-of-mac-app-stores-chatgpt-options/"><u>Navigating Safely: Why Steer Clear of Mac App Store's ChatGPT Options</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitters-entry-points-creating-an-account/"><u>[New] 2024 Approved Twitters' Entry Points Creating an Account</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-expert-analysis-highest-quality-video-snappers/"><u>[New] Expert Analysis Highest Quality Video Snappers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-ultimate-guide-non-jittery-screen-recording-software/"><u>[New] In 2024, Ultimate Guide Non-Jittery Screen Recording Software</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-easy-media-sharing-on-twitter-no-retweets-required/"><u>[Updated] 2024 Approved Easy Media Sharing on Twitter - No Retweets Required</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-the-art-of-unfollow-a-compilation-of-essential-tools-for-2024/"><u>[Updated] Mastering the Art of Unfollow A Compilation of Essential Tools for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-quick-intro-to-instagram-video-chat-for-2024/"><u>[Updated] Quick Intro to Instagram Video Chat for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-guide-to-best-in-class-racing-games-for-2024/"><u>[Updated] The Ultimate Guide to Best-in-Class Racing Games for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-vegaspros-new-era-reviewed-2019-for-2024/"><u>[Updated] VegasPro's New Era Reviewed (2019) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-infinix-hot-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-digital-drama-videoviral-sagas-unfold-online/"><u>In 2024, Digital Drama #VideoViral Sagas Unfold Online</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-social-media-snipping-an-easy-method-for-capturing-twitters-gifs/"><u>In 2024, Social Media Snipping An Easy Method for Capturing Twitter’s GIFs</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/innovative-pedagogy-discussion-with-global-peers/"><u>Innovative Pedagogy Discussion with Global Peers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/introducing-seasonics-new-power-supplies-with-cutting-edge-12vhpwr-interface-priced-at-230-and-above/"><u>Introducing Seasonic's New Power Supplies with Cutting-Edge 12VHPWR Interface Priced at $230 and Above</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-clear-communication-on-discord-tips-for-rectifying-audio-glitches/"><u>Mastering Clear Communication on Discord - Tips for Rectifying Audio Glitches</u></a></li>
 </ul></div>
 

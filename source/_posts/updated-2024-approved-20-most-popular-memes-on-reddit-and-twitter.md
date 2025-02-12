@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  20 Most Popular Memes on Reddit and Twitter\""
-date: 2025-01-18T08:33:13.315Z
-updated: 2025-01-22T17:17:29.903Z
+date: 2025-02-06T20:13:24.305Z
+updated: 2025-02-11T22:07:43.835Z
 tags:
   - ai video
   - ai twitter
@@ -32,6 +32,10 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 * [**Part1: The Most Popular Memes on Reddit**](#part1)
 * [**Part2: The Most Popular Memes on Twitter**](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: The Most Popular Memes on Reddit
 
 ### 1\. Manning Face
@@ -40,15 +44,15 @@ This is a meme featuring Peyton Manning wearing a black hood and kneeling on a f
 
 ![Manning Face](https://images.wondershare.com/filmora/article-images/Manning-Face-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. That's The Joke
 
 From a line spoken by comedian Rainier Wolfcastle in a Simpsons episode, it’s a meme now used in order to either explain the punchline to a joke in a condescending manner, or it is meant to be a deadpan (or annoyed) reply to something that wouldn’t have been funny otherwise.
 
 ![The Joke](https://images.wondershare.com/filmora/article-images/The-Joke-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Feels Bad Man / Sad Frog
 
@@ -56,21 +60,25 @@ This meme, which consists of a sad frog with tears in his eyes and sometimes has
 
 ![Sad Frog](https://images.wondershare.com/filmora/article-images/Sad-Frog-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Confession Bear
 
 Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, leaning against a log. Usually, Confession Bear is accompanied by some sort of confession that people normally wouldn’t admit in polite company – things that are seen as taboo.
 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. This is Fine
 
 4his is Fine” is based on a cartoon where a dog is sitting in a chair, drinking out of a coffee mug and stating “This is Fine” while the entire house is burning down around him. This is usually posted as a response to a news story or information where something chaotic is happening and no one seems to be reacting as they should be.
 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Smug Frog
 
@@ -79,11 +87,7 @@ Smug Frog, who is usually known as Pepe the Frog, is a meme where a strange look
 ![Smug Frog](https://images.wondershare.com/filmora/article-images/Smug-Frog-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7\. Roll Safe
@@ -98,15 +102,15 @@ Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or so
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. Make America Great Again
 
 Used as Trump’s campaign slogan, nowadays this is used as satire when pointing out things that are going on around the United States that aren’t so great.
 
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10\. Fake CCG Cards
 
@@ -115,6 +119,10 @@ CCG’s like Magic the Gathering are still popular, and fake CCG cards are used 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
 
 ## Part 2: The Most Popular Memes on Twitter
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Arthur’s Fist
 
@@ -146,6 +154,10 @@ These images vary, but they’re usually a person with a specific expression on 
 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Expanding Brain
 
 Expanding Brain is a picture with three images of the brain; one ordinary, one slightly lit up, and then one that appears to be exploding in light. On the right hand side of the image, it’s usually something about the user’s evolving thoughts or ideas relating to a topic or how they do things.
@@ -158,10 +170,6 @@ These posters, at first glance, look like motivational posters, with images of n
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Cash Me Outside/Howbow Dah
 
 From a Dr. Phil episode, this picture is of an angry girl who told the audience “Catch me outside, how about that?” in a strong accent – needless to say, it’s been immortalized in memes and used when people are arguing (whether playfully or literally).
@@ -169,7 +177,7 @@ From a Dr. Phil episode, this picture is of an angry girl who told the audience 
 ![Cash Me Outside](https://images.wondershare.com/filmora/article-images/Cash-Me-Ousside-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
@@ -182,19 +190,11 @@ The rapper Conceited is captured in this meme, looking off camera and pursing hi
 
 ![Conceited Reaction](https://images.wondershare.com/filmora/article-images/Conceited-Reaction-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Computer Reaction Faces
 
 Usually represented by a stick figure, it’s someone looking at a computer with some sort of emotion on their face, related to the person’s reaction to something being said or discussed on a thread.
 
 ![Computer Reaction Faces](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -219,20 +219,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-gifify-your-tweet-a-costless-how-to-guide/"><u>[New] 2024 Approved Gifify Your Tweet A Costless How-To Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>[New] In 2024, Beyond the Basics Advanced Techniques for Improved Recordings</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-streamlined-social-media-management-our-picks-of-the-best-8-planners-for-2024/"><u>[New] Streamlined Social Media Management Our Picks of the Best 8 Planners for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-twitter-video-requirements-how-to-upload-a-video-on-twitter-for-2024/"><u>[New] Twitter Video Requirements | How to Upload a Video on Twitter for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-best-ios-video-streaming-tools-for-iphones-ipads-for-2024/"><u>[Updated] Best iOS Video Streaming Tools for iPhones, iPads for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-discover-the-art-of-curating-music-on-youtube-with-our-steps/"><u>[Updated] In 2024, Discover the Art of Curating Music on YouTube with Our Steps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-primes-peak-performers-highest-tweets-and-viewing-numbers/"><u>[Updated] In 2024, Prime’s Peak Performers Highest Tweets & Viewing Numbers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-virality-equation-tiktok-vs-twitter-for-2024/"><u>[Updated] The Virality Equation TikTok Vs. Twitter for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-tuneful-texting-whatsapp-audio-integration/"><u>[Updated] Tuneful Texting WhatsApp Audio Integration</u></a></li>
-<li><a href="https://change-location.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-vivo-y100-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-upload-without-rt-video-tweets/"><u>In 2024, How to Upload Without RT Video Tweets</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-modify-twitter-video-capture-image/"><u>In 2024, Modify Twitter Video Capture Image</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Which is the Best Fake GPS Joystick App On Apple iPhone 7? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/pazera-unchained-master-your-music-extraction-techniques-for-2024/"><u>Pazera Unchained Master Your Music Extraction Techniques for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voice-dominance-in-asia-trimodal-popularity-spotlight/"><u>Voice Dominance in Asia: Trimodal Popularity Spotlight</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-turn-up-the-volume-enabling-sound-on-tweeted-videos/"><u>[New] 2024 Approved Turn Up the Volume Enabling Sound on Tweeted Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-post-a-video-between-twitter-and-tumblr/"><u>[New] In 2024, How to Post a Video Between Twitter and Tumblr?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unlock-full-hd-tweeting-on-your-screen/"><u>[New] In 2024, Unlock Full HD Tweeting on Your Screen</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-navigating-video-uploads-on-social-platforms-for-2024/"><u>[New] Navigating Video Uploads on Social Platforms for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-effortless-extraction-of-twitter-jokes-3-ways/"><u>[Updated] Effortless Extraction of Twitter Jokes 3 Ways</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-15-best-free-youtube-introduction-tools/"><u>[Updated] In 2024, 15 Best Free YouTube Introduction Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficiently-uploading-youtube-vids-to-insta-profile/"><u>[Updated] In 2024, Efficiently Uploading YouTube Vids to Insta Profile</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-reclaim-lost-chatter-in-shared-tweeted-films/"><u>[Updated] In 2024, Reclaim Lost Chatter in Shared Tweeted Films</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-personalize-twitter-video-thumbnail-for-2024/"><u>[Updated] Personalize Twitter Video Thumbnail for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tips-and-tricks-elevating-your-images-with-text-editing/"><u>[Updated] Tips & Tricks Elevating Your Images with Text Editing</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oppo-a38-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Oppo A38 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/how-to-overcome-connectivity-issues-between-ios-device-and-pc-during-data-transfer/"><u>How To Overcome Connectivity Issues Between iOS Device and PC During Data Transfer</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-apple-iphone-13-pro-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-how-to-keep-the-momentum-ios-and-android-gif-savings/"><u>In 2024, How to Keep the Momentum IOS & Android GIF Savings</u></a></li>
+<li><a href="https://video-capture.techidaily.com/libertycam-pro-live-stream-review-explored-for-2024/"><u>LibertyCam Pro Live Stream Review Explored for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/m4aaacmovavi/"><u>オンライン無料で高速: M4AファイルにAACを変換するためのMovavi対応ソフトウェア</u></a></li>
 </ul></div>
 

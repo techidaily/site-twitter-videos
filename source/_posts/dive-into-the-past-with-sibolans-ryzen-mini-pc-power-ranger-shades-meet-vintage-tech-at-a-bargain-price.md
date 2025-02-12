@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2025-01-24T17:27:02.763Z
-updated: 2025-01-30T16:05:26.715Z
+date: 2025-02-09T00:40:57.283Z
+updated: 2025-02-11T22:21:40.852Z
 tags:
   - desktop
 categories:
@@ -41,7 +41,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -57,7 +57,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -65,7 +65,7 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  (Image credit: Miniproca)
@@ -89,24 +89,21 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-obsudios-ultimate-guide-to-video-recording-with-obs/"><u>[New] 2024 Approved Obsudio's Ultimate Guide to Video Recording with OBS</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-preserve-tweets-as-visual-delights-with-iosandroid-steps/"><u>[New] In 2024, Preserve Tweets as Visual Delights with iOS/Android Steps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unveiling-the-process-of-making-a-twitter-account/"><u>[New] In 2024, Unveiling the Process of Making a Twitter Account</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/irthful-montage-mastering-7-comical-video-vignettes-for-2024/"><u>[New] Mirthful Montage Mastering 7 Comical Video Vignettes for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-radiant-hue-tuner-program/"><u>[New] Radiant Hue Tuner Program</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-into-the-rhythm-of-social-video-editing-with-music/"><u>[Updated] 2024 Approved Step Into the Rhythm of Social Video Editing with Music</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-expert-advice-capturing-and-storing-twitter-vids-on-phones/"><u>[Updated] Expert Advice Capturing and Storing Twitter Vids on Phones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-how-to-advertise-on-twitter/"><u>[Updated] How to Advertise on Twitter</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-expertly-convert-subtitles-to-srt-our-picks-for-the-best-8-tools-on-windowsmac/"><u>[Updated] In 2024, Expertly Convert Subtitles to SRT - Our Picks for the Best 8 Tools on Windows/Mac</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-secrets-to-successful-twitpicingvideos-included/"><u>[Updated] In 2024, Secrets to Successful Twitpicing—Videos Included</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-reviewing-and-analyzing-previous-tweets-for-2024/"><u>[Updated] Reviewing and Analyzing Previous Tweets for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweaking-your-tweets-audience-engagement-techniques-for-2024/"><u>[Updated] Tweaking Your Tweets Audience Engagement Techniques for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-building-interactive-elements-a-guide-to-html-input-fields/"><u>2024 Approved Building Interactive Elements A Guide to HTML Input Fields</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-netflix-speed-management-for-enhanced-viewing/"><u>2024 Approved Netflix Speed Management for Enhanced Viewing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Tecno Pova 5 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-a05s-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy A05s</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-lava-yuva-2-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Lava Yuva 2 online without jailbreak</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-clear-cut-guide-to-high-definition-twitter-videos/"><u>The Clear-Cut Guide to High Definition Twitter Videos</u></a></li>
-<li><a href="https://blog-min.techidaily.com/windowsm4vavimov/"><u>Windows上でM4VファイルをAVI/MOV形式に簡単な変換の説明</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-efficient-ways-to-download-and-store-youtube-like-tweet-videos/"><u>[New] Efficient Ways to Download and Store YouTube-Like Tweet Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unlocking-the-value-in-twitters-archives/"><u>[New] In 2024, Unlocking the Value in Twitters Archives</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-navigating-through-grids-in-google-meet-webinar-for-2024/"><u>[New] Navigating Through Grids in Google Meet Webinar for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-elevating-your-twitters-with-a-snapchat-integration/"><u>[Updated] Elevating Your Twitters with a Snapchat Integration</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-live-video-responses-on-twitter-your-ultimate-how-to-manual/"><u>[Updated] In 2024, Live Video Responses on Twitter Your Ultimate How-To Manual</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-interactive-media-exchange-twitter-to-snapchat-videos-for-2024/"><u>[Updated] Interactive Media Exchange Twitter to Snapchat Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-your-influence-amidst-changing-social-media-ecosystem-for-2024/"><u>[Updated] Mastering Your Influence Amidst Changing Social Media Ecosystem for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitter-archives-a-comprehensive-guide-for-2024/"><u>[Updated] Navigating Twitter Archives A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-crafting-compelling-and-credible-documentary-scripts/"><u>[Updated] The Ultimate Guide to Crafting Compelling and Credible Documentary Scripts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-the-ultimate-selection-top-voice-recorders-for-macos-for-2024/"><u>[Updated] The Ultimate Selection Top Voice Recorders for MacOS for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-perfect-your-yt-thumbnails-with-these-mac-tips/"><u>2024 Approved Perfect Your YT Thumbnails with These Mac Tips</u></a></li>
+<li><a href="https://win-hot.techidaily.com/como-realizar-la-copia-de-seguridad-perfecta-desde-su-nas-qnap-hasta-una-unidad-usb-o-hdd-externo/"><u>Cómo Realizar La Copia De Seguridad Perfecta Desde Su NAS QNAP Hasta Una Unidad USB O HDD Externo</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-file-revival-a-complete-assessment-of-recuvas-capabilities-and-features/"><u>Navigating File Revival: A Complete Assessment of Recuva's Capabilities and Features</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/navigating-twitters-algorithm-to-amplify-your-message/"><u>Navigating Twitter's Algorithm to Amplify Your Message</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/steps-to-restore-accidentally-erased-inx-documents/"><u>Steps to Restore Accidentally Erased INX Documents</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/troubleshooting-guide-how-to-get-quicktime-to-play-wmv-movies-on-both-mac-osx-and-windows-pcs/"><u>Troubleshooting Guide: How to Get QuickTime to Play WMV Movies on Both Mac OSX and Windows PCs</u></a></li>
 </ul></div>
 

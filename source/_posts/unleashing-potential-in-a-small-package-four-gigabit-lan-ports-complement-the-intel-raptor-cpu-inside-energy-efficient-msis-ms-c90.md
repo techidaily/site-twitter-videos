@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2025-01-28T18:25:24.876Z
-updated: 2025-01-30T22:18:40.708Z
+date: 2025-02-10T17:18:14.744Z
+updated: 2025-02-12T07:28:53.340Z
 tags:
   - desktop
 categories:
@@ -30,7 +30,7 @@ For just $59, musicians now have a new option for a purpose-built musical comput
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -56,20 +56,18 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pc-guide-extract-twitters-funny-images/"><u>[New] In 2024, PC Guide Extract Twitter's Funny Images</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-meme-magic-march-2024/"><u>[New] Meme Magic March 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-animated-magic-with-movie-maker-software/"><u>[Updated] 2024 Approved Unveiling Animated Magic with Movie Maker Software</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-syncing-tiktok-content-with-twitter/"><u>[Updated] In 2024, Syncing TikTok Content with Twitter</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-taking-twitter-videos-from-regular-to-high-definition/"><u>[Updated] In 2024, Taking Twitter Videos From Regular to High-Definition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-tweeted-videos-on-facebooks-networks/"><u>[Updated] Mastering Tweeted Videos on Facebooks Networks</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-a-quick-walkthrough-of-new-user-registration-on-twitter/"><u>2024 Approved A Quick Walkthrough of New User Registration on Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/address-tweets-stuck-while-watching-online/"><u>Address Tweets Stuck While Watching Online</u></a></li>
-<li><a href="https://common-error.techidaily.com/bypass-setup-will-exit-unrecognized-os-message-with-proven-solutions/"><u>Bypass 'Setup Will Exit - Unrecognized OS' Message with Proven Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-nokia-g42-5g-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Nokia G42 5G</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-blaze-2-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Lava Blaze 2 Pro Phone without Any Data Loss</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-90-pro-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor 90 Pro FRP Locks</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s23-tactical-edition-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S23 Tactical Edition Phones with/without a PC</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/the-complete-obs-android-manual-for-professionals-for-2024/"><u>The Complete OBS Android Manual for Professionals for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-viral-spotlight-top-10-tiktoks-of-the-week/"><u>Twitter's Viral Spotlight Top 10 TikToks of the Week</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-audio-restoration-on-visual-posts-from-twitter/"><u>[New] 2024 Approved Audio Restoration on Visual Posts From Twitter</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-breakdown-the-broadcasting-barrier-easy-windows-pc-guide-to-live-tv-recording-for-2024/"><u>[New] Breakdown the Broadcasting Barrier Easy Windows PC Guide to Live TV Recording for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-crafting-captivating-real-time-tweets-for-maximum-impact/"><u>[New] Crafting Captivating Real-Time Tweets for Maximum Impact</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-mania-social-medias-most-hilarious-video-threads/"><u>[New] Meme Mania Social Media's Most Hilarious Video Threads</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-fast-track-to-flawless-podcast-live/"><u>[Updated] 2024 Approved Fast Track to Flawless Podcast Live</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-essential-steps-in-choosing-exceptional-video-makers/"><u>[Updated] Essential Steps in Choosing Exceptional Video Makers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-perfecting-the-art-of-twitter-broadcasts/"><u>[Updated] Perfecting the Art of Twitter Broadcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-the-guide-to-posting-twitter-clips-on-facebook-platform/"><u>[Updated] The Guide to Posting Twitter Clips on Facebook Platform</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boosting-social-reach-share-tiktoks-with-a-twist-of-twitter-for-2024/"><u>Boosting Social Reach Share TikToks with a Twist of Twitter for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/detailed-synopsis-gopro-silver-hero4-model-review-for-2024/"><u>Detailed Synopsis GoPro Silver Hero4 Model Review for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/setting-up-two-screens-a-step-by-step-guide-for-windows-11/"><u>Setting up Two Screens: A Step-by-Step Guide for Windows 11</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unleash-your-potential-become-a-broadcasting-pro-on-instagram-using-obs/"><u>Unleash Your Potential Become a Broadcasting Pro on Instagram Using OBS</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-tecno-camon-20-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Tecno Camon 20 Phone Network-Ready</u></a></li>
 </ul></div>
 

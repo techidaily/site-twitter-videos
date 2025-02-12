@@ -1,7 +1,7 @@
 ---
 title: "\"Shared Humor  Top 20 Memes Across Social Networks for 2024\""
-date: 2025-01-27T22:07:29.737Z
-updated: 2025-01-30T17:21:47.114Z
+date: 2025-02-04T17:31:00.724Z
+updated: 2025-02-11T18:25:24.258Z
 tags:
   - ai video
   - ai twitter
@@ -32,10 +32,6 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 * [**Part1: The Most Popular Memes on Reddit**](#part1)
 * [**Part2: The Most Popular Memes on Twitter**](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: The Most Popular Memes on Reddit
 
 ### 1\. Manning Face
@@ -43,10 +39,6 @@ Which memes did the study show were the most popular in the mainstream Twitter a
 This is a meme featuring Peyton Manning wearing a black hood and kneeling on a football field during practice. It is usually used as what is called a “bait and switch” meme. People will click on a link and expect it to be something interesting or important, and it just ends up being Manning Face.
 
 ![Manning Face](https://images.wondershare.com/filmora/article-images/Manning-Face-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. That's The Joke
 
@@ -67,7 +59,7 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![Confession Bear](https://images.wondershare.com/filmora/article-images/Confession-Bear-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\. This is Fine
@@ -77,7 +69,7 @@ Confession Bear is a picture of a Malaysian Sun Bear who appears to be pouting, 
 ![This is Fine](https://images.wondershare.com/filmora/article-images/this-is-fine-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Smug Frog
@@ -92,11 +84,19 @@ Kayode Ewumi, an actor, is pointing to his temple with a grin on his face. (It�
 
 ![Roll Safe](https://images.wondershare.com/filmora/article-images/roll-safe-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8\. Rage Guy
 
 Rage guy is a pencil drawing of an angry face yelling “fffffffuuuuuuu” or something similar. It’s usually used when the person posting is exasperated about something stupid that is being discussed.
 
 ![Rage Guy](https://images.wondershare.com/filmora/article-images/Rage-Guy-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. Make America Great Again
 
@@ -104,15 +104,15 @@ Used as Trump’s campaign slogan, nowadays this is used as satire when pointing
 
 ![Make America Great Again](https://images.wondershare.com/filmora/article-images/Make-America-Great-Again-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\. Fake CCG Cards
 
 CCG’s like Magic the Gathering are still popular, and fake CCG cards are used as image parodies for almost anything imaginable, from people, to animals, to other memes.
 
 ![Fake CCG Cards](https://images.wondershare.com/filmora/article-images/Fake-CCG-Cards-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: The Most Popular Memes on Twitter
 
@@ -123,7 +123,7 @@ This is a picture of a fist from Arthur, the animated cartoon featuring the ante
 ![Arthur’s Fist](https://images.wondershare.com/filmora/article-images/Arthur-Fist-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Evil Kermit
@@ -138,6 +138,14 @@ Nut Button started as a sexual meme, but it’s commonly used as a picture of so
 
 ![Nut Button](https://images.wondershare.com/filmora/article-images/Nut-Button-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Spongebob Mock
 
 Spongebob Mocking is a screen capture of Spongebob making a strange face and walking like a chicken. It is usually accompanied by a reply written like this: ExAmPlE tExT, which is mocking the person who said the same sentence.
@@ -151,7 +159,7 @@ These images vary, but they’re usually a person with a specific expression on 
 ![Reaction Images](https://images.wondershare.com/filmora/article-images/Computer-Reaction-Faces-meme.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6\. Expanding Brain
@@ -160,19 +168,15 @@ Expanding Brain is a picture with three images of the brain; one ordinary, one s
 
 ![Expanding Brain](https://images.wondershare.com/filmora/article-images/Expanding-Brain-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Demotivational Posters
 
 These posters, at first glance, look like motivational posters, with images of nature or animals or other beautiful things – but the text is usually something sarcastic or sardonic.
 
 ![Demotivational Posters](https://images.wondershare.com/filmora/article-images/Demotivational-Posters-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8\. Cash Me Outside/Howbow Dah
 
@@ -200,10 +204,6 @@ If you want to make memes right now, Filmora meme maker can help you easily crea
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -219,19 +219,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-achieve-peaceful-nights-with-expert-recommended-asmr/"><u>[New] 2024 Approved Achieve Peaceful Nights with Expert-Recommended ASMR</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-strategies-for-maximizing-your-twitter-archive/"><u>[New] 2024 Approved Strategies for Maximizing Your Twitter Archive</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitgrabber-mobile-app-for-downloading-tweets-videos/"><u>[New] 2024 Approved TwitGrabber Mobile App for Downloading Tweets' Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unpacking-twitter-video-sharing-the-whatsapp-connection/"><u>[New] 2024 Approved Unpacking Twitter Video Sharing The WhatsApp Connection</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-how-to-post-photos-and-videos-on-twitter-from-smartphones/"><u>[New] How To Post Photos and Videos on Twitter From Smartphones</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-whos-following-amazon-prime-series-with-the-highest-tweets-2023/"><u>[Updated] 2024 Approved Who's Following? Amazon Prime Series with the Highest Tweets, 2023</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-restore-original-sound-in-tweet-video-links/"><u>2024 Approved Restore Original Sound in Tweet Video Links</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-innovative-ways-to-react-on-tiktok-videos/"><u>In 2024, Innovative Ways to React on TikTok Videos</u></a></li>
-<li><a href="https://media-tips.techidaily.com/quick-tips-on-transforming-video-files-to-compatible-flash-formats-flvswff4v-for-online-viewing/"><u>Quick Tips on Transforming Video Files to Compatible Flash Formats (FLV/SWF/F4V) for Online Viewing</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reviving-the-trend-nomad-reintroduces-iconic-travelers-wallets/"><u>Reviving the Trend: Nomad Reintroduces Iconic Traveler's Wallets</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/save-big-with-the-newly-discounted-phrozen-sonic-mini-8k-ss-resin-3d-printing-machine-just-325/"><u>Save Big with the Newly Discounted Phrozen Sonic Mini 8K sS Resin 3D Printing Machine - Just $325!</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/step-by-step-guide-purchasing-digital-coins-with-yl-computing/"><u>Step-by-Step Guide: Purchasing Digital Coins with YL Computing</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/techniques-for-interpreting-video-reactions-on-youtube/"><u>Techniques for Interpreting Video Reactions on YouTube</u></a></li>
-<li><a href="https://win-answers.techidaily.com/tv-stick/"><u>どうやってファイア TV Stickで視聴中のテレビ番組を記録するか？</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-how-to-use-twitter-archive/"><u>[New] 2024 Approved How to Use Twitter Archive?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-complying-with-dimension-requirements-in-twitter-videos/"><u>[New] In 2024, Complying with Dimension Requirements in Twitter Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-restore-audio-in-twitters-video-tweets/"><u>[New] In 2024, How to Restore Audio in Twitter's Video Tweets</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-masterful-multiclip-management-on-youtube/"><u>[New] In 2024, Masterful Multiclip Management on YouTube</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-quintessential-screenplays-among-varied-genres-for-2024/"><u>[New] Quintessential Screenplays Among Varied Genres for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-mastery-adding-visuals-to-your-tweet-for-2024/"><u>[New] Twitter Mastery Adding Visuals to Your Tweet for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-fixing-audio-absence-in-online-shared-videos/"><u>[Updated] Fixing Audio Absence in Online Shared Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-video-mastery-posting-on-snapchat-from-twitter-revealed/"><u>[Updated] In 2024, Video Mastery Posting on Snapchat From Twitter Revealed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-mastering-twitter-setup-a-step-by-step-guide/"><u>[Updated] Mastering Twitter Setup A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-metaverse-wisdom-a-compilation-of-inspiring-thoughts/"><u>[Updated] Metaverse Wisdom A Compilation of Inspiring Thoughts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-professionals-take-on-screenflow-pro-macos-experience-for-2024/"><u>[Updated] Professional's Take on ScreenFlow Pro macOS Experience for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-switch-clash-top-10-intense-battles-to-play/"><u>[Updated] Switch Clash Top 10 Intense Battles to Play</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-an-aural-experience-for-previews/"><u>2024 Approved Crafting an Aural Experience for Previews</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/correct-no-sound-issue-on-shared-videos-for-2024/"><u>Correct No Sound Issue on Shared Videos for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-infinix-note-30i-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Infinix Note 30i Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-12-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock OnePlus 12 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-swift-and-steady-follower-filtering-the-leading-twitter-tools-list/"><u>In 2024, Swift and Steady Follower Filtering The Leading Twitter Tools List</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamless-skyrim-experience-cutting-down-x-script-errors/"><u>Seamless Skyrim Experience: Cutting Down X-Script Errors</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-v29-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo V29 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
 </ul></div>
 
