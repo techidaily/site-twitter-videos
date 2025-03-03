@@ -1,7 +1,7 @@
 ---
 title: Dive Into the Past with Sibolan's Ryzen Mini PC - Power Ranger Shades Meet Vintage Tech at a Bargain Price
-date: 2025-02-09T00:40:57.283Z
-updated: 2025-02-11T22:21:40.852Z
+date: 2025-02-24T19:36:20.478Z
+updated: 2025-03-02T18:01:14.618Z
 tags:
   - desktop
 categories:
@@ -40,10 +40,6 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
  Miniproca’s new Mini-PC seems to have got off to a flying start. The project was launched today with a funding goal of $5,000 within 5 hours, and it has since reached past $33,000 with 33 days to go.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -56,17 +52,9 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  (Image credit: Miniproca)
 
 ![Miniproca All-in-One mini PC](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  (Image credit: Miniproca)
 
@@ -89,21 +77,18 @@ A new mini-PC from Miniproca melds a NUC-like device with a flip-up touchscreen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-efficient-ways-to-download-and-store-youtube-like-tweet-videos/"><u>[New] Efficient Ways to Download and Store YouTube-Like Tweet Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-unlocking-the-value-in-twitters-archives/"><u>[New] In 2024, Unlocking the Value in Twitters Archives</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-navigating-through-grids-in-google-meet-webinar-for-2024/"><u>[New] Navigating Through Grids in Google Meet Webinar for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-elevating-your-twitters-with-a-snapchat-integration/"><u>[Updated] Elevating Your Twitters with a Snapchat Integration</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-live-video-responses-on-twitter-your-ultimate-how-to-manual/"><u>[Updated] In 2024, Live Video Responses on Twitter Your Ultimate How-To Manual</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-interactive-media-exchange-twitter-to-snapchat-videos-for-2024/"><u>[Updated] Interactive Media Exchange Twitter to Snapchat Videos for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-your-influence-amidst-changing-social-media-ecosystem-for-2024/"><u>[Updated] Mastering Your Influence Amidst Changing Social Media Ecosystem for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-navigating-twitter-archives-a-comprehensive-guide-for-2024/"><u>[Updated] Navigating Twitter Archives A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-crafting-compelling-and-credible-documentary-scripts/"><u>[Updated] The Ultimate Guide to Crafting Compelling and Credible Documentary Scripts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-the-ultimate-selection-top-voice-recorders-for-macos-for-2024/"><u>[Updated] The Ultimate Selection Top Voice Recorders for MacOS for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-perfect-your-yt-thumbnails-with-these-mac-tips/"><u>2024 Approved Perfect Your YT Thumbnails with These Mac Tips</u></a></li>
-<li><a href="https://win-hot.techidaily.com/como-realizar-la-copia-de-seguridad-perfecta-desde-su-nas-qnap-hasta-una-unidad-usb-o-hdd-externo/"><u>Cómo Realizar La Copia De Seguridad Perfecta Desde Su NAS QNAP Hasta Una Unidad USB O HDD Externo</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/navigating-file-revival-a-complete-assessment-of-recuvas-capabilities-and-features/"><u>Navigating File Revival: A Complete Assessment of Recuva's Capabilities and Features</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/navigating-twitters-algorithm-to-amplify-your-message/"><u>Navigating Twitter's Algorithm to Amplify Your Message</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/steps-to-restore-accidentally-erased-inx-documents/"><u>Steps to Restore Accidentally Erased INX Documents</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/troubleshooting-guide-how-to-get-quicktime-to-play-wmv-movies-on-both-mac-osx-and-windows-pcs/"><u>Troubleshooting Guide: How to Get QuickTime to Play WMV Movies on Both Mac OSX and Windows PCs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-amplify-youtube-twits-with-superior-hd-views-for-2024/"><u>[New] Amplify YouTube Twits with Superior HD Views for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-vlog-to-audio-conversion-with-twitta/"><u>[New] In 2024, Vlog-to-Audio Conversion with Twitta</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-pinpointing-best-launch-dates-for-podcasts/"><u>[New] Pinpointing Best Launch Dates for Podcasts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitters-hot-spots-1-10-viral-visits/"><u>[New] Twitter's Hot Spots #1-#10 Viral Visits</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-10-top-ranked-offline-ios-gaming-hacks-you-need-for-2024/"><u>[Updated] 10 Top-Ranked Offline iOS Gaming Hacks You Need for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-exploring-paid-tweeting-on-twitter-for-2024/"><u>[Updated] Exploring Paid Tweeting on Twitter for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-byte-sized-hits-the-heart-of-viral-content/"><u>2024 Approved Byte-Sized Hits The Heart of Viral Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-your-photo-archives-new-eden-mix-no-fee-infinite-with-paid-cloud-spaces/"><u>2024 Approved Your Photo Archive's New Eden Mix No-Fee Infinite with Paid Cloud Spaces</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-webm-to-mp4-top-10-converters-for-smooth-video-playback/"><u>In 2024, From WebM to MP4 Top 10 Converters for Smooth Video Playback</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-apple-iphone-13-pro-max-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From Apple iPhone 13 Pro Max Smoothly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-lava-yuva-3-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Lava Yuva 3 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/skyrocketing-growth-top-strategies-to-increase-views-in-freefire-tagging/"><u>Skyrocketing Growth Top Strategies to Increase Views in FreeFire Tagging</u></a></li>
 </ul></div>
 

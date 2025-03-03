@@ -1,7 +1,7 @@
 ---
 title: "AI Tech: Your Family's Comprehensive Overview"
-date: 2025-02-10T07:32:14.711Z
-updated: 2025-02-11T21:58:15.119Z
+date: 2025-02-27T22:49:17.562Z
+updated: 2025-03-02T21:51:30.292Z
 tags:
   - chatgpt
   - open-ai
@@ -17,17 +17,9 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  Large language models (LLMs) come in all shapes and sizes, and will assist you in any way you see fit. But which is best? We put the dominant AIs from Alphabet, OpenAI, and Meta to the test.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What You Need to Know About AI Chatbots
 
 ![AI robot using a virtual touch screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/ai-robot-using-a-virtual-touch-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Artificial general intelligence has been a goal of computer scientists for decades, and AI has served as a mainstay for science fiction writers and moviemakers for even longer.
 
@@ -52,10 +44,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which Is the Most Private Large Language Model?
 
 ![Lego police surrounding a Lego person sitting at a desk.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/eliminating-human-error.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Both Bard and ChatGPT have extensive privacy policies, and Google repeatedly stresses in its documents that you should "not include information that can be used to identify you or others in your Bard conversations."
 
@@ -99,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 
  In our opinion. none of the chatbots gave instructions sufficient to help someone correctly wire a BS 1363 electrical plug. A concise and correct response would be, "Blue on the left, brown on the right."
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Which LLM Is Good for Writing Code?
 
 ![MicroPython logo with snake sitting on a microchip](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/asdfasdf.jpg)
@@ -114,10 +98,6 @@ thumbnail: https://thmb.techidaily.com/6aa0ea7bbcaddf2e39d658fccf6a692e44a4ec4a5
 ## Which LLM Tells the Best Jokes?
 
 ![Yellow ball with laughing expression painted on](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/3d-laughing-emoji-ball-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Humor is one of the fundamentals of being human and surely one of the best ways of telling man and machine apart. To each of our models, we gave the simple prompt: "Create an original and funny joke."
 
@@ -154,24 +134,15 @@ You read it here first, folks.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-video-transmission-from-twitters-to-whatsapp/"><u>[New] 2024 Approved Direct Video Transmission From Twitters to WhatsApp</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-from-bland-to-breathtaking-add-flare-with-stunning-icon-graphics-on-instagram/"><u>[New] 2024 Approved From Bland to Breathtaking Add Flare with Stunning Icon Graphics on Instagram</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-giggle-guild-the-ultimate-list-of-twitter-joke-threads/"><u>[New] 2024 Approved Giggle Guild The Ultimate List of Twitter Joke Threads</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-guardian-of-gifs-saving-memorable-moments-from-twitter/"><u>[New] 2024 Approved The Guardian of GIFs Saving Memorable Moments From Twitter</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-effortlessly-manage-followers-with-top-twitter-cleanup-apps/"><u>[New] In 2024, Effortlessly Manage Followers with Top Twitter Cleanup Apps</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-instantaneous-sharability-tweeting-videos-on-snapchat-network/"><u>[Updated] 2024 Approved Instantaneous Sharability Tweeting Videos on Snapchat Network</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-snap-a-story-sharing-photos-and-videos-without-retweet/"><u>[Updated] 2024 Approved Snap a Story Sharing Photos & Videos Without Retweet</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-comprehensive-kinetics-study-2023/"><u>[Updated] Comprehensive Kinetics Study 2023</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-leading-edge-16-youtube-intros-that-skyrocket-views/"><u>[Updated] Leading Edge 16 YouTube Intros That Skyrocket Views</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-prime-video-the-twitterspheres-favorite-shows-of-23-for-2024/"><u>[Updated] Prime Video The Twittersphere's #Favorite Shows of '23 for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-sculpt-visual-jokes-adobe-memes-guide-for-2024/"><u>[Updated] Sculpt Visual Jokes Adobe Memes Guide for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-secrets-for-hd-streaming-on-the-worlds-largest-social-network/"><u>[Updated] Secrets for HD Streaming on the World's Largest Social Network</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2023s-amazonprimetrending-top-tweets-that-stood-out-for-2024/"><u>2023'S #AmazonPrimeTrending - Top Tweets That Stood Out for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-professional-mov-file-handling-on-your-latest-windows-11-system/"><u>2024 Approved Professional .MOV File Handling on Your Latest Windows 11 System</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-xiaomi-civi-3-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Xiaomi Civi 3 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-streamline-your-twitterscape-with-these-pc-tips/"><u>In 2024, Streamline Your Twitterscape with These PC Tips</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/why-are-my-speakers-not-working-unraveling-sound-card-issues-with-expert-insight-from-yl-software/"><u>Why Are My Speakers Not Working? Unraveling Sound Card Issues with Expert Insight From YL Software</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723209993082-fixed-ps4-nat-type-failed-step-by-step-guide/"><u>[Fixed] PS4 NAT Type Failed - Step by Step Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-direct-video-tweet-to-twitter-via-smartphone-no-retweeting/"><u>[New] Direct Video Tweet to Twitter via Smartphone No Retweeting</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-a-new-world-of-farming-the-best-7-mods-in-stardew/"><u>[Updated] A New World of Farming - The Best 7 Mods in Stardew</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-unveiling-the-process-of-making-a-twitter-account/"><u>[Updated] In 2024, Unveiling the Process of Making a Twitter Account</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-leveraging-secondary-footage-for-enhanced-storytelling-for-2024/"><u>[Updated] Leveraging Secondary Footage for Enhanced Storytelling for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimal-zoom-settings-for-microsoft-teams-communication/"><u>[Updated] Optimal Zoom Settings for Microsoft Teams Communication</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-social-synergy-sharing-tweets-as-snaps-in-2e-2023/"><u>2024 Approved Social Synergy Sharing Tweets as Snaps in 2E 2023</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitvid-mastery-your-go-to-resource-for-video-downloads/"><u>In 2024, TwitVid Mastery Your Go-To Resource for Video Downloads</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maintaining-always-ontop-status-of-calculator-in-windows/"><u>Maintaining Always Ontop Status of Calculator in Windows</u></a></li>
+<li><a href="https://win-top.techidaily.com/movavi-dts-aac/"><u>Movavi의 DTS AAC 속성 오디오를 원활하게 인터넷 연결을 통해 무료로 전환: 이해하기 쉽고 사용자 친화적</u></a></li>
 </ul></div>
 

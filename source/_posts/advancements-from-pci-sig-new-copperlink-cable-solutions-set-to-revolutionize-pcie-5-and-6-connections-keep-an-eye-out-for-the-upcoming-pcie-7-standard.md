@@ -1,7 +1,7 @@
 ---
 title: "Advancements From PCI-SIG: New CopperLink Cable Solutions Set to Revolutionize PCIe 5 and #6 Connections; Keep an Eye Out for the Upcoming PCIe 7 Standard"
-date: 2025-02-11T06:05:28.009Z
-updated: 2025-02-11T19:59:00.540Z
+date: 2025-02-27T00:57:11.291Z
+updated: 2025-03-03T03:15:42.228Z
 tags:
   - desktop
 categories:
@@ -31,10 +31,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -49,10 +45,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -60,10 +52,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -88,21 +76,14 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-cinematic-upgrade-gopro-hero5-black-vs-hero4-silver-edition/"><u>[New] 2024 Approved Cinematic Upgrade GoPro Hero5 Black vs Hero4 Silver Edition</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-overcome-sound-absence-on-tweeted-film-rolls/"><u>[New] 2024 Approved Overcome Sound Absence on Tweeted Film Rolls</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-restore-lost-sounds-to-twitter-vids/"><u>[New] 2024 Approved Restore Lost Sounds to Twitter Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitters-obsession-with-top-10-tiktok-videos/"><u>[Updated] 2024 Approved Twitter's Obsession with Top 10 TikTok Videos</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-superior-liquid-games/"><u>[Updated] In 2024, The Ultimate Guide to Superior Liquid Games</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-trendsetters-on-twitternet-top-10-threads-ranking/"><u>[Updated] Trendsetters on Twitternet Top 10 Threads Ranking</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-windows-11-game-recording-5-methods-for-2024/"><u>[Updated] Windows 11 Game Recording [5 Methods] for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mobiles-leading-free-image-enhancement-and-layer-apps-ranked/"><u>2024 Approved Mobile's Leading Free Image Enhancement & Layer Apps Ranked</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/elevate-engagement-mastering-online-presentations-via-zoom-and-youtube/"><u>Elevate Engagement Mastering Online Presentations via Zoom and YouTube</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-update-your-intel-wireless-ac-9560-network-adapter-drivers-easily-and-quickly/"><u>How to Update Your Intel Wireless AC 9560 Network Adapter Drivers Easily & Quickly</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ideal-plot-crafting-platform/"><u>Ideal Plot Crafting Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-a-practical-guide-to-managing-twitter-archives/"><u>In 2024, A Practical Guide to Managing Twitter Archives</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-sociostreamer-convert-tweets-to-videos/"><u>In 2024, SocioStreamer Convert Tweets to Videos</u></a></li>
-<li><a href="https://games-able.techidaily.com/razers-new-deathadder-v3-pro-a-bold-step-forward-ending-old-traditions-and-why-it-matters-for-gamers-tech-digest/"><u>Razer's New DeathAdder V3 Pro: A Bold Step Forward Ending Old Traditions (and Why It Matters for Gamers) | Tech Digest</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/the-essentials-of-real-time-tweets-on-twitter-for-2024/"><u>The Essentials of Real-Time Tweets on Twitter for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-samsung-galaxy-f04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-successful-patch-obs-full-screen-functionality/"><u>[Updated] 2024 Approved Successful Patch OBS Full Screen Functionality</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-a-step-by-step-guide-to-your-first-twitter-profile-for-2024/"><u>[Updated] A Step-by-Step Guide to Your First Twitter Profile for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-apex-alternatives-social-networks-beyond-twitter/"><u>2024 Approved Apex Alternatives Social Networks Beyond Twitter</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-complying-with-aspect-ratios-in-tweets/"><u>2024 Approved Complying with Aspect Ratios in Tweets</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-by-step-guide-to-convert-avis-into-gifs-via-filmora-software/"><u>2024 Approved Step-by-Step Guide to Convert AVIs Into GIFs via Filmora Software</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-the-glitch-effective-solutions-for-modern-warfare-es-pc-crashing-problems/"><u>Beat the Glitch: Effective Solutions for Modern Warfare E's PC Crashing Problems</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-broadcom-wireless-drivers-ensuring-compatibility-and-seamless-connectivity/"><u>Download Broadcom Wireless Drivers: Ensuring Compatibility and Seamless Connectivity</u></a></li>
+<li><a href="https://extra-support.techidaily.com/strategic-marketing-websites-for-youtube-videos-for-2024/"><u>Strategic Marketing Websites for YouTube Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/twitch-and-prime-whos-watching-the-show-2023-edition/"><u>Twitch and Prime Who’s Watching the Show? 2023 Edition</u></a></li>
 </ul></div>
 

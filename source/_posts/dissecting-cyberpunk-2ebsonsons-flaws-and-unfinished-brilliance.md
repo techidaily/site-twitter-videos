@@ -1,7 +1,7 @@
 ---
 title: Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
-date: 2025-02-06T05:39:43.836Z
-updated: 2025-02-11T17:04:56.143Z
+date: 2025-02-27T19:11:29.894Z
+updated: 2025-03-02T22:24:59.933Z
 categories:
   - BestProducts
 description: This Article Describes Dissecting Cyberpunk 2Ebsonson's Flaws and Unfinished Brilliance
@@ -73,25 +73,13 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -102,10 +90,6 @@ Lifewire / Emily Ramirez
  Unfortunately, configuring Creative Labs’ drivers and software suite was a much less intuitive process. The ZxR’s outputs are controlled via the Sound Blaster Z-series Software, where users can select whether they’re listening with their headphones or their speakers, apply EQ effects, and more. By default, the software is set to output to speakers with several different EQ effects turned on. We had to manually switch it to headphone output and turn off EQ; the software does not automatically detect which jacks are in use.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -119,10 +103,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -134,10 +114,6 @@ Lifewire / Emily Ramirez
 ## **Price: Unjustified expense**
 
  The Sound Blaster ZxR retails for about $250, on par with other high-end consumer audio cards. Its 6.3mm audio and microphone jacks, coupled with support for headphone impedance of up to 600 ohms, gives the listener flexibility in the rest of their audio setup: no need for 6.3mm to 3.5mm adapters or extension cords. One major hardware disappointment is its lack of 7.1 surround compatibility, which is something many sound card enthusiasts prize in a high-end sound card. There are also a number of other products with better sound quality for less than the ZxR’s $250 MSRP.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition:** **Falls short of less expensive options**
 
@@ -202,22 +178,19 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-swift-transfer-methods-getting-files-onto-computers/"><u>[New] 2024 Approved Swift Transfer Methods Getting Files Onto Computers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-maximizing-engagement-from-tiktok-to-twitter/"><u>[New] Maximizing Engagement From TikTok to Twitter</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-top-10-lifters-drones-that-move-mountains/"><u>[New] The Top 10 Lifters Drones That Move Mountains</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-the-ultimate-checklist-for-twitter-video-posts-for-2024/"><u>[New] The Ultimate Checklist for Twitter Video Posts for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-video-posting-on-twitter-and-tumblr-connection-for-2024/"><u>[New] Video Posting on Twitter and Tumblr Connection for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-saving-the-fun-downloading-tweets-gif-content-easily/"><u>[Updated] 2024 Approved Saving the Fun Downloading Tweets' GIF Content Easily</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2023s-quick-share-tweeted-videos-to-whatsapp-for-2024/"><u>2023'S Quick Share Tweeted Videos to WhatsApp for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-listeners-respectfully-for-increased-sign-ups-for-2024/"><u>Engaging Listeners Respectfully for Increased Sign-Ups for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/cing-your-spotify-collection-with-youtube-music-integration-for-2024/"><u>Enhancing Your Spotify Collection with YouTube Music Integration for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-apple-iphone-13-pro-max-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the Apple iPhone 13 Pro Max Without Previous Owner?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-mastering-twitter-videos-adhere-to-aspect-ratio-rules/"><u>In 2024, Mastering Twitter Videos Adhere to Aspect Ratio Rules</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-the-key-to-engaging-audiences-instagram-video-descriptions/"><u>In 2024, The Key to Engaging Audiences Instagram Video Descriptions</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-infinix-zero-5g-2023-turbo-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Infinix Zero 5G 2023 Turbo to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweeted-treasures-your-path-to-preserving-pics-and-vids/"><u>Tweeted Treasures Your Path to Preserving Pics & Vids</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitta-visuals-audio-extraction-services-for-2024/"><u>Twitta Visuals Audio Extraction Services for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/png-movavi/"><u>오픈 소스 PNG 파일을 강화하는 방법 – Movavi 도구를 사용해 보세요</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-audio-and-visual-quality-in-youtube-videos/"><u>[New] Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tiktok-trends-the-top-ten-tweets-shaping-social-media/"><u>[New] TikTok Trends The Top Ten Tweets Shaping Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-audio-take-from-twitter-video-sources/"><u>[Updated] 2024 Approved Audio Take From Twitter Video Sources</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-end-audio-blackout-vocalize-tweet-videos/"><u>[Updated] In 2024, End Audio Blackout Vocalize Tweet Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-securing-your-audio-library-the-top-5-steps-for-internet-radio-storage/"><u>[Updated] Securing Your Audio Library The Top 5 Steps for Internet Radio Storage</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-shorts-shown-no-more-hidden-videos/"><u>[Updated] Shorts Shown – No More Hidden Videos</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-on-apple-iphone-11-pro-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock on Apple iPhone 11 Pro</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-free-and-paid-blu-ray-video-player-software-for-pcandmac/"><u>Best Free and Paid Blu-Ray Video Player Software for PC&Mac</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-realme-gt-5-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Realme GT 5? Try These Fixes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-easily-create-compelling-fb-video-ads-with-no-cost-kit/"><u>In 2024, Easily Create Compelling FB Video Ads with No-Cost Kit</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-full-screen-obs-complication-overcome/"><u>In 2024, Full Screen OBS Complication Overcome</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-share-videos-directly-on-twitter-via-mobile-devices-only/"><u>In 2024, Share Videos Directly on Twitter via Mobile Devices Only</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/shareable-video-surge-2024/"><u>Shareable Video Surge 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-to-changing-the-dvd-region-setting-on-your-pc/"><u>Step-by-Step Guide to Changing the DVD Region Setting on Your PC</u></a></li>
 </ul></div>
 

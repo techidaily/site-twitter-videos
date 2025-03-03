@@ -1,7 +1,7 @@
 ---
 title: "Unleashing Potential in a Small Package: Four Gigabit LAN Ports Complement the Intel Raptor CPU Inside Energy-Efficient MSI's MS-C90"
-date: 2025-02-10T17:18:14.744Z
-updated: 2025-02-12T07:28:53.340Z
+date: 2025-02-27T17:49:51.646Z
+updated: 2025-03-03T01:54:15.526Z
 tags:
   - desktop
 categories:
@@ -29,10 +29,6 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
  When it comes to specialized hardware like this (or retro PC hardware in general), "necessity is the mother of invention" and "limitations foster creativity." It would be interesting to see some rudimentary arcade or DOS game ports on this machine— a dual-core 250 MHz microcontroller may not sound like a lot today, but in the 80s, even 16 MHz was considered cutting-edge.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -56,18 +52,24 @@ For just $59, musicians now have a new option for a purpose-built musical comput
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-audio-restoration-on-visual-posts-from-twitter/"><u>[New] 2024 Approved Audio Restoration on Visual Posts From Twitter</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-breakdown-the-broadcasting-barrier-easy-windows-pc-guide-to-live-tv-recording-for-2024/"><u>[New] Breakdown the Broadcasting Barrier Easy Windows PC Guide to Live TV Recording for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-crafting-captivating-real-time-tweets-for-maximum-impact/"><u>[New] Crafting Captivating Real-Time Tweets for Maximum Impact</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-meme-mania-social-medias-most-hilarious-video-threads/"><u>[New] Meme Mania Social Media's Most Hilarious Video Threads</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-fast-track-to-flawless-podcast-live/"><u>[Updated] 2024 Approved Fast Track to Flawless Podcast Live</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-essential-steps-in-choosing-exceptional-video-makers/"><u>[Updated] Essential Steps in Choosing Exceptional Video Makers</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-perfecting-the-art-of-twitter-broadcasts/"><u>[Updated] Perfecting the Art of Twitter Broadcasts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-guide-to-posting-twitter-clips-on-facebook-platform/"><u>[Updated] The Guide to Posting Twitter Clips on Facebook Platform</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/boosting-social-reach-share-tiktoks-with-a-twist-of-twitter-for-2024/"><u>Boosting Social Reach Share TikToks with a Twist of Twitter for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/detailed-synopsis-gopro-silver-hero4-model-review-for-2024/"><u>Detailed Synopsis GoPro Silver Hero4 Model Review for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/setting-up-two-screens-a-step-by-step-guide-for-windows-11/"><u>Setting up Two Screens: A Step-by-Step Guide for Windows 11</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/unleash-your-potential-become-a-broadcasting-pro-on-instagram-using-obs/"><u>Unleash Your Potential Become a Broadcasting Pro on Instagram Using OBS</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-tecno-camon-20-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Tecno Camon 20 Phone Network-Ready</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-visual-vaults-expert-tips-on-capturing-and-storing-twitter-video/"><u>[New] 2024 Approved Visual Vaults Expert Tips on Capturing and Storing Twitter Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-funniest-punchlines-reddit-vs-twitter-memes/"><u>[New] Funniest Punchlines Reddit Vs. Twitter Memes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-on-camera-lens-selection-for-professional-vloggers/"><u>[New] In 2024, Expert Tips on Camera Lens Selection For Professional Vloggers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-pocket-guide-retaining-twitter-media-on-your-cellphone/"><u>[New] In 2024, Pocket Guide Retaining Twitter Media on Your Cellphone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-watchful-eye-discovering-twitters-hd-features/"><u>[New] In 2024, Watchful Eye Discovering Twitter’s HD Features</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tapping-into-your-previous-twitter-posts-for-2024/"><u>[New] Tapping Into Your Previous Twitter Posts for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-understanding-browser-caching-and-its-effect-on-performance-for-2024/"><u>[New] Understanding Browser Caching and Its Effect on Performance for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-primes-favorites-highest-tweets-and-view-counts-analysis-for-2024/"><u>[Updated] Prime's Favorites Highest Tweets & View Counts Analysis for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/addressing-uncontrolled-energy-bursts-at-primary-connection-junction-a-resolved-case-study/"><u>Addressing Uncontrolled Energy Bursts at Primary Connection Junction: A Resolved Case Study</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/archive-exploration-for-social-media-insight-for-2024/"><u>Archive Exploration for Social Media Insight for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-oneplus-12-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from OnePlus 12.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-lava-agni-2-5g-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Lava Agni 2 5G Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-f54-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/old-tweet-discovery-mining-twitters-history/"><u>Old Tweet Discovery Mining Twitter's History</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/step-by-step-guide-converting-tod-videos-into-mp4-avi-and-other-formats/"><u>Step-by-Step Guide: Converting TOD Videos Into MP4, AVI, and Other Formats</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-instructions-for-changing-your-login-credentials-on-formerlytwitter/"><u>Step-by-Step Instructions for Changing Your Login Credentials on FormerlyTwitter</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transformer-gratuitement-un-fichier-mp4-en-m2ts-en-ligne-movavi/"><u>Transformer Gratuitement Un Fichier MP4 en M2TS en Ligne - Movavi</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-vivo-x-fold-2-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Vivo X Fold 2 Phone Password Without Factory Reset Full Guide Here</u></a></li>
 </ul></div>
 

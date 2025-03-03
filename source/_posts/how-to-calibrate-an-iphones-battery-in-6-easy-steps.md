@@ -1,7 +1,7 @@
 ---
 title: How to Calibrate an iPhone's Battery in 6 Easy Steps
-date: 2025-02-09T04:03:20.204Z
-updated: 2025-02-12T04:49:03.556Z
+date: 2025-02-28T16:15:22.754Z
+updated: 2025-03-02T18:23:27.783Z
 tags:
   - iphone
   - apple
@@ -30,19 +30,11 @@ thumbnail: https://thmb.techidaily.com/72d9cc19f5dd74f14cb9e7915834c6357e497aa75
 
  While you shouldn't need to calibrate regularly, it's worth a try if your iPhone is older or you've had battery issues that other steps didn't resolve.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Preparing to Calibrate Your iPhone's Battery
 
  Before starting the calibration process, you should take a few steps in preparation. They all revolve around disabling features and services, so as few tasks as possible draw power.
 
  This will help lead to an accurate reading later in the process. After you've reset the battery, you can re-enable all of these options. It's also worth ensuring you haven't accidentally enabled Low Power Mode by going to**Settings > Battery** .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Disable Location Services
 
@@ -78,10 +70,6 @@ Close
 
 Close
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Decrease Your Screen Brightness
 
 Here's how to lower the screen brightness on an iPhone:
@@ -92,17 +80,9 @@ Here's how to lower the screen brightness on an iPhone:
 
 ![ios brightness menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![ios brightness slider](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/03/ios-brightness.png)
 
 Close
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Turn Off Automatic App Updates
 
@@ -124,17 +104,9 @@ Close
 
  Luckily, you don't need any third-party tools or apps. Anything you see in the App Store promising to reset your iPhone's battery is, at best, unnecessary and, at worst, a scam. iPhone's battery calibration is easy to perform without extra help.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Step 1: Drain Your iPhone's Battery
 
  The first step is to completely drain your iPhone's battery. You can do so during normal usage. If you want to speed up the process, you can play a long video on YouTube with the volume turned up to the maximum level.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 2: Wait Three Hours
 
@@ -149,10 +121,6 @@ Close
 * Use a wall socket rather than a computer to charge.
 * Ideally, use an official Apple charger. At the very least, make sure you [use a trusted Lightning cable](https://www.makeuseof.com/tag/5-great-lightning-cables-charge-iphone-ipad/) or a [high-quality USB-C cable](https://www.makeuseof.com/tag/micro-usb-cables-charge/) if you have an iPhone 15 (or later) and not a cheap knockoff.
 * Continue to charge for a couple of hours even after your phone shows the battery as 100 percent full. You need to ensure you squeeze in every drop of power to ensure the calibration works correctly.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Step 4: Drain Your iPhone
 
@@ -179,10 +147,6 @@ And that's it. Now, your iPhone's battery has been recalibrated.
 ![battery settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-settings-iphone.jpg)
 
 ![battery health settings iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/battery-health-settings-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![optimized battery charging iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/optimized-battery-charging-iphone.jpg)
 
@@ -211,24 +175,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-exploring-past-social-media-engagement-via-twitter-archive/"><u>[New] 2024 Approved Exploring Past Social Media Engagement via Twitter Archive</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-vimeoifytweets-audiovideo-tweet-tool/"><u>[New] In 2024, VimeoifyTweets Audio/Video Tweet Tool</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-necessary-details-for-twitter-video-submissions-aspect-ratio-for-2024/"><u>[New] Necessary Details for Twitter Video Submissions (Aspect Ratio) for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-best-practices-for-compliant-twitter-videos-for-2024/"><u>[Updated] Best Practices for Compliant Twitter Videos for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-supercharge-your-social-media-scrapping-the-best-5-chrome-plugins/"><u>[Updated] In 2024, Supercharge Your Social Media Scrapping The Best 5 Chrome Plugins</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-precision-cuts-in-kinemaster-transition-essentials-for-2024/"><u>[Updated] Precision Cuts in Kinemaster Transition Essentials for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-the-hd-chronicles-of-twitters-visual-content-for-2024/"><u>[Updated] The HD Chronicles of Twitter's Visual Content for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-tweet-town-ranking-the-trending-threads-for-2024/"><u>[Updated] Tweet Town Ranking the Trending Threads for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/bending-words-altering-text-images-for-2024/"><u>Bending Words Altering Text Images for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-to-follow-tutorial-install-apples-official-iphone-drivers-on-your-windows-aturkey-11-pc/"><u>Easy-to-Follow Tutorial: Install Apple's Official iPhone Drivers on Your Windows Aturkey 11 PC</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/engage-with-mematic-seamless-note-management/"><u>Engage with Mematic Seamless Note Management</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-joking-jokebooks-top-10-hilarious-social-media-posts/"><u>In 2024, Joking Jokebooks Top 10 Hilarious Social Media Posts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-link-up-titles-video-upload-to-twittertumblr/"><u>In 2024, Link-Up Titles Video Upload to Twitter/Tumblr</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-windows-hdri-a-users-editing-handbook/"><u>In 2024, Windows HDRI A User’s Editing Handbook</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-visibility-restoring-unhidden-apps-on-apples-device/"><u>Mastering Visibility: Restoring Unhidden Apps on Apple's Device</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/no-cost-video-blurring-the-best-online-tools-and-techniques/"><u>No-Cost Video Blurring The Best Online Tools and Techniques</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/retweeted-gifs-iphoneandroid-step-by-step-savings-for-2024/"><u>Retweeted Gifs IPhone/Android Step-by-Step Savings for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/uniting-ushers-and-undertones-with-video-editing/"><u>Uniting Ushers and Undertones with Video Editing</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-the-secrets-of-the-turing-test-can-ai-ever-triumph/"><u>Unveiling the Secrets of the Turing Test: Can AI Ever Triumph?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-a-practical-guide-to-managing-twitter-archives/"><u>[New] A Practical Guide to Managing Twitter Archives</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-from-novice-to-pro-conquering-twitter-streams/"><u>[New] From Novice to Pro Conquering Twitter Streams</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-quick-solution-capturing-downloading-and-keeping-tweets-visuals/"><u>[New] In 2024, Quick Solution Capturing, Downloading, & Keeping Tweets' Visuals</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twittomp4maker-social-streaming-solution/"><u>[New] In 2024, TwitToMP4Maker Social Streaming Solution</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-silent-tweets-end-auditory-upgrades-for-twitter-videos-for-2024/"><u>[Updated] Silent Tweets' End Auditory Upgrades for Twitter Videos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/choosing-between-copilot-and-copilot-pro-understanding-their-distinct-benefits/"><u>Choosing Between Copilot & Copilot Pro: Understanding Their Distinct Benefits</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-vivo-v30-pro-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Vivo V30 Pro?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-share-your-tweets-as-snaps-easy-tutorials/"><u>In 2024, Share Your Tweets as Snaps - Easy Tutorials</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-vivo-s18e-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Vivo S18e FRP Bypass</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-audio-file-transformation-turn-your-m2ts-videos-into-mp3-on-macos/"><u>Mastering Audio File Transformation: Turn Your M2TS Videos Into MP3 on macOS</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/maximize-memories-overwatch-game-footage/"><u>Maximize Memories Overwatch Game Footage</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-list-of-independent-mobile-games-play-without-a-network-android/"><u>The Ultimate List of Independent Mobile Games - Play Without a Network (Android)</u></a></li>
 </ul></div>
 

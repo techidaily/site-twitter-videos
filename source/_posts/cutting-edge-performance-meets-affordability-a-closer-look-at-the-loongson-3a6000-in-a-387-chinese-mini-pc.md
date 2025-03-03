@@ -1,7 +1,7 @@
 ---
 title: "Cutting-Edge Performance Meets Affordability: A Closer Look at the Loongson 3A6000 in a $387 Chinese Mini PC"
-date: 2025-02-09T17:44:37.445Z
-updated: 2025-02-11T19:20:10.464Z
+date: 2025-02-28T21:37:49.033Z
+updated: 2025-03-03T03:42:29.488Z
 tags:
   - desktop
 categories:
@@ -31,10 +31,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
  The Turbo Mini X is loaded with ports, including a 10 Gbps USB-C port that can output 45 watts for charging, a 20 Gbps USB-C port and 5 USB Type-A ports. But what's most interesting is a proprietary port that connects to the Mini Maker StreamPlay X External Graphics Box, which is sold separately. The port uses USB-C, but according to Mini Maker, it enables a direct PCIe connection which is faster than what you get when using Thunderbolt 4 to connect a laptop to an after-market eGPU like the Razer Core X.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -49,10 +45,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 ![Mini Maker StreamPlay X Cable](https://cdn.mos.cms.futurecdn.net/7PWKa2qagFoGCQJ7GH9t5H-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  (Image credit: Tom's Hardware)
 
  The StreamPlay X is a remarkably compact eGPU, but an attractive one. It allows you to see your card through a wrap-around plastic window and it has a case fan to help cool your graphics card. The device is available with different power supply capacities: 250, 350 or 400 watts.
@@ -60,10 +52,6 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
  At the upper end of this power envelope, you could probably run an RTX 4080\. You'd probably need an adapter as there are two 8-pin connectors, but no 16-pin. The top, which has some air holes, easily pops off to allow you to install your card.
 
 ![Mini Maker StreamPlay X](https://cdn.mos.cms.futurecdn.net/bofwgvfDKpeYqVAheTShC9-320-80.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  (Image credit: Tom's Hardware)
 
@@ -88,15 +76,22 @@ Mini PCs, the class of desktops that fit in really tiny cases, have a following 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-leveraging-influencers-in-your-twitter-marketing-plan/"><u>[New] In 2024, Leveraging Influencers in Your Twitter Marketing Plan</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-transforming-video-quality-from-sdr-to-stunning-hdr-a-practical-handbook/"><u>[New] Transforming Video Quality From SDR to Stunning HDR - A Practical Handbook</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-2023-how-to-share-twitter-videos-on-whatsapp/"><u>[Updated] In 2024, 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/enhancing-privacy-for-text-documents-master-the-art-of-file-encryption-and-password-protection-methods/"><u>Enhancing Privacy for Text Documents: Master the Art of File Encryption & Password Protection Methods</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/gradual-aesthetic-launch-for-2024/"><u>Gradual Aesthetic Launch for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-iphone-7-smoothly-by-drfone-ios/"><u>How To Remove iCloud On iPhone 7 Smoothly</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Motorola Moto G13? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-from-twitter-to-whatsapp-a-guide-to-sharing-online-videos/"><u>In 2024, From Twitter to WhatsApp A Guide to Sharing Online Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/tweeting-videos-to-tweenish-animations-for-no-fee-for-2024/"><u>Tweeting Videos to Tweenish Animations for No Fee for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-approach-for-adding-soundtracks-to-youtube-clips/"><u>[New] 2024 Approved A Step-by-Step Approach for Adding Soundtracks to YouTube Clips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-boost-engagement-posting-twitter-videos-on-snapchat-for-2024/"><u>[New] Boost Engagement Posting Twitter Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-digital-domination-diaries/"><u>[New] Digital Domination Diaries</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-videography-policy-including-aspect-ratios-is-crucial/"><u>[New] In 2024, Twitter's Videography Policy Including Aspect Ratios Is Crucial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveil-vlogger-success-key-youtube-seo-tech/"><u>[New] Unveil Vlogger Success Key YouTube SEO Tech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-vivid-visions-enhancing-youtubes-aesthentic-content/"><u>[New] Vivid Visions Enhancing YouTube's Aesthentic Content</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-secure-and-simple-the-top-10-trusted-online-transformers/"><u>[Updated] 2024 Approved Secure and Simple The Top 10 Trusted Online Transformers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-your-first-step-on-twitter-creating-an-account/"><u>[Updated] 2024 Approved Your First Step on Twitter Creating an Account</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-the-ultimate-playbook-skyrocket-your-youtube-shorts-traffic-and-engagement/"><u>[Updated] In 2024, The Ultimate Playbook Skyrocket Your YouTube Shorts Traffic and Engagement</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-premium-quick-insight-for-pics-on-win-11/"><u>[Updated] Premium Quick Insight for Pics on Win 11</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-snagting-smiles-on-iphones-and-androids-from-twitters-timeline/"><u>2024 Approved Snagting Smiles on iPhones & Androids From Twitter's Timeline</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-strategic-use-of-twitters-wayback-machine-features/"><u>2024 Approved Strategic Use of Twitter's Wayback Machine Features</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/aspect-ratio-essentials-for-social-network-videos-for-2024/"><u>Aspect Ratio Essentials for Social Network Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/eliminate-quiet-vids-tweet-audio-revival-for-2024/"><u>Eliminate Quiet Vids Tweet Audio Revival for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo A1x 5G? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unidentified-video-images-strategies-for-blurring-private-sections-for-2024/"><u>Unidentified Video Images Strategies for Blurring Private Sections for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/unleashing-the-power-of-macos-subtitles-manipulation/"><u>Unleashing the Power of macOS Subtitles Manipulation</u></a></li>
 </ul></div>
 
